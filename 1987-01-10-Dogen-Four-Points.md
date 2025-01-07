@@ -5,6 +5,10 @@ title: "Dogen: Four Points"
 
 #### [List](list#1987) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-03-06-Platform-Sutra-Talk-1)
 
+### Summary
+
+Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*: zazen as *practice*.
+
 ### Transcript
 
 #### Part 1
@@ -17,7 +21,7 @@ Dogen Zenji's teaching may be explained in terms of four points.
 
 The first one is [...] *realization of impermanence*.
 
-The second point is *shikantaza*: zazen as practice. 
+The second point is *shikantaza*: zazen as *practice*. 
 
 The third, [can I] say *liberation*, or *body and mind dropping off*. According to Dogen's term, I think he uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
 
@@ -29,7 +33,7 @@ So it’s four points. First one, the *realization of impermanence*. The second,
 
 [...] There is a short fascicle of *the whole works* (“*Zenki*”) written by Dogen. It is a very interesting fascicle, related with life and death. 
 
-So let me first explain one by one. 
+So let me first explain [the points] one by one. 
 
 #### 04:11
 
@@ -135,43 +139,43 @@ Manifesting your life in simplicity. That is [what we call] practice.
 
 So practice is human action, but that human action is very *refined*. That’s why in Japanese we call it [*shigyo*]. [*Shigyo*] means refined action.
 
-Dogen Zenji [says it] like this: “The buddha way is to make myriad dharmas exist in the realization.” “In the realization” means in the realization of the oneness, unity. “The buddha way” means the true reality of your life. Relating with all other beings, that is buddha way. You cannot think your life separate from all other beings. If you want to think of your life, you have to think your life *with* other beings. That is called Buddha way, we say. Universal life. The Buddha way is to make myriad dharmas exist in the realization of the unity. 
+Dogen Zenji [says it] like this: “The buddha way is to make myriad dharmas exist in the realization.” “In the realization” means in the realization of the oneness, unity. “The buddha way” means the true reality of your life. Relating with all other beings: that is the buddha way. You cannot think your life separate from all other beings. If you want to think of your life, you have to think your life *with* other beings. That is called buddha way, we say. Universal life. 
 
-That means everything is one. That means you should taste the teaching of impermanence, or no substantiality. Which means everything is one. 
+The buddha way is to make myriad dharmas exist in the realization of the unity. That means everything is one. That means you should taste the teaching of impermanence, or no substantiality. Which means everything is one. 
 
-And then next, he says, “And to practice the total reality.” To practice the oneness beyond realization. *Beyond realization* means if you taste it, something deep, you attach to it. It’s very difficult to leave it, or to let it go. Do you understand? 
+And then next, he says, “And to practice the total reality.” To practice the oneness *beyond* realization. *Beyond realization* means if you taste it, something deep, you attach to it. It’s very difficult to leave it, or to let it go. Do you understand? 
 
-If you work hard and you have built your life, I think you immediately attach to your own life because you have built up your life in a hard way. So you are successful in doing something, you are successful in running the business, et cetera, and then you attach to your business so much. So it’s very difficult to let it go. 
+If you work hard and you have built your life, I think you immediately attach to your own life, because you have built up your life in a hard way. So you are successful in doing something, you are successful in running a business, et cetera, and then you attach to your business so much. So it’s very difficult to let it go. 
 
-But I think beyond the realization, if you understand deeply, something deep, I think you should be free from *that*. To be free from that something deep which you have tasted, makes you put into practice, actually. In other words, it puts you right in the middle of practice, action. Because reality is always going, from moment to moment, without stopping even for a moment, so you cannot stop. So very naturally the action, free from a deep realization, allows you to put into practice, *practically*. In other words, you have simultaneous participation in impermanence. Not looking at the impermanence of objectively. You can participate organically, directly, or simultaneously in the flow of impermanence, flow of no substantiality. And then this is called *action*. 
+But I think beyond the realization, if you understand deeply, something deep, I think you should be free from *that*. To be free from that, something deep which you have tasted, makes you put into practice *actually*. In other words, it puts you right in the middle of practice, action. Because reality is always going, from moment to moment, without stopping even for a moment. So you cannot stop. So very naturally the action, free from a deep realization, allows you to put into practice, *practically*. In other words, you have simultaneous participation in impermanence. Not looking at the impermanence objectively; you participate. You can participate organically, directly, or simultaneously in the flow of impermanence, the flow of no substantiality. And then this is called *action*. 
 
-So flow of action comes up. That flow of action is a state of being beyond the experience of realization. So that’s why he says, “and to practice total reality,” or oneness. You have to practice oneness, beyond realization. So to practice oneness beyond realization is to have direct and simultaneous participation in the flow of impermanence, the flow of no substantiality. 
+So flow of action comes up. That flow of action is a state of being beyond the experience of realization. 
+
+So that’s why he says, “and to practice total reality,” or oneness. You have to practice oneness, beyond realization. So to practice oneness beyond realization is to have direct and simultaneous participation in the flow of impermanence, the flow of no substantiality. 
 
 This is our practice, so-called *shikan*.
 
-Today’s [talk is short], so maybe next time I will continue to [say]. But do you have some questions about this?
+Today’s [talk is short], so maybe next time I will continue to [talk about this]. But do you have some questions about this?
  
 #### Part 2
 
-<p align=”center” style=”font-style: italic”>
-<a href=”https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-27448608” target=”_blank”>Listen to this talk on mnzencenter.org</a>
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-27448608" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-... *Ta* means hit. *Shikan* means wholeheartedness, means simplicity, manifestation of your life in simplicity. That is *shikan*. *One-pointedness*, we say. 
+... *Shikan* means wholeheartedness, means manifestation of your life in simplicity. That is *shikan*. *One-pointedness*, we say. 
 
-And *ta* of the *taza* means “to hit”. *To hit* means not just to the side. You know *kendo*? I always give the example of *kendo*. If you practice *kendo* with the bamboo sword and having a mask, just like fencing, [wisdom] fencing. Have you ever seen? And then if you hit the head, you have to hit the head *right there*, exactly. Right point. And then you can get the point. *[He chuckles.]* But if your sword slips a *little bit* from the point, you cannot get the point. Even though you say, “I got it!” You know, screaming, you know, “Yah!” like this! *[Laughter.]* It is just a sound, okay? You cannot get the point. 
+And *ta* of the *taza* means “to hit.” *To hit* means not just to the side. You know *kendo*? I always give the example of *kendo*. If you practice *kendo*, with the bamboo sword, and having a mask, just like fencing [...]. Have you ever seen? And then if you hit the head, you have to hit the head *right there*, exactly – and then you can get the point. *[He chuckles.]* But if your sword slips a *little bit* from the point, you cannot get the point. Even though you say, “I got it!” You know, screaming, “Yah!” like this. *[Laughter.]* It is just a sound, okay? You cannot get the point. 
 
-So if you want to, *shikan*, if you want to sitting, you have to hit the right head on the zazen, okay? *[Laughter.]* Right head, not side of the head of zazen. But usually everyone is always hitting the *side* of the zazen, *[he laughs,]* and then they feel *good*. Because daydreaming, and sometimes sleeping, which is mixed up with *samadhi*, concentration. But that concentration is exactly like sleeping. So everyone always hits the side of the head of zazen, okay? But if you want to do Zazen, you have to hit the right head. That is called *to hit*, okay? *Ta-za*. *Za* means zazen. 
+So if you want to *shikan*, if you want [do] sitting, you have to hit the right head on the zazen, okay? *[Laughter.]* Right hit. Not side of the head of zazen. But usually everyone is always hitting the *side* of that zazen, *[he laughs,]* and then they feel *good*! Because daydreaming, and sometimes sleeping, which is mixed up with *samadhi*, concentration. But that concentration is exactly like sleeping. So everyone always hits the side of the head of zazen, okay? But if you want to do zazen, you have to hit the right head. That is called *to hit*, okay? *Ta-za*. *Za* means zazen. 
 
-And then if you hit the right head of zazen, then it is called *shikan*. That way to do something is called *effort*, named *whole-heartedness*, *one-pointedness*. Okay? This is shikantaza. 
-
-Beyond your speculation, okay? Good or bad, right or wrong, you have to *do it*. It’s not an idea.
+And then if you hit the right head of zazen, then it is called *shikan*. That way to do something is called *effort*, named *whole-heartedness*, *one-pointedness*. Okay? This is shikantaza. Beyond your speculation – good or bad, right or wrong. You have to *do it*. It’s not [an] idea.
 
 Any other questions? Yes? 
 
 **Question:** *[Unintelligible.]*
 
-**Katagiri Roshi:** [Well,] if you hit the side of the head, you should realize you have hit the side of the head. And then, you try, always, you must be mindful of where is the right top of the head. Okay? And then aiming at the top of the head, constantly. Alright? That’s your effort. 
+**Katagiri Roshi:** [Well,] if you hit the side of the head, you should realize, you have hit the side of the head. And then, [...] always, you must be mindful of where is the right top of the head. Okay? And then aiming at the top of the head, constantly. Alright? That’s your effort. 
 
 With your whole body and mind, you should taste it: where is the top of the head of zazen. Right top. Taste it. Okay? With your consciousness, with your whole body and mind. 
 
@@ -179,7 +183,7 @@ But still you don’t know, you don’t touch the right top of the head. But wit
 
 And then, someday, sometimes, you can *hit*. Organically. Automatically. 
 
-So don’t be disappointed. Even though you hit the side of the head, that’s fine. It’s *not* fine... it’s not fine, okay? But it’s not good. It’s not good. So you must always participate in the teaching of no substantiality. In other words, no idea of your understanding. Even though you understand, “this is *good* zazen” – no. You must be free from it. Even though you feel the *bad* zazen, you must be free from it. And then what you have to do is, be mindful of the right top of the head, constantly aiming at that top of the head. Constantly. Then next, do it. Okay? 
+So don’t be disappointed. Even though you hit the side of the head, that’s fine. It’s *not* fine... it’s not fine, okay? It’s not good. So you must be always participating in the teaching of no substantiality. In other words, no idea of your understanding. Even though you understand, “this is *good* zazen” – no. You must be free from it. Even though you feel the *bad* zazen, you must be free from it. And then what you have to do is, be mindful of the right top of the head, constantly aiming at that top of the head. Anyway, constantly. Then next, do it. Okay? 
 
 *Who* does it? I don’t know. *[He laughs.]* Something allows you to hit the right top of the head, if you practice like this, what I mentioned, always. Someday, somewhere, sometime, you can hit it. Completely beyond realization, or completely beyond your speculation, you can hit the right head. And then, it makes you surprised! It’s really a new surprise. Have you ever experienced this one? 
 
