@@ -34,8 +34,6 @@ So the interpretation is divided into three chapters. One is “Revelation of th
 
 “The part on outline has been given”: this is page 28, Part Two, “Outline.” So [...] “next the part on interpretation...” This is “Interpretation.”
 
-#### 2:57
-
 > Chapter One  
 > Revelation of True Meaning  
 
