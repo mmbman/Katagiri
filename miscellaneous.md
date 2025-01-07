@@ -24,6 +24,12 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 
 ---
 
+##### [Dogen: Four Points](1987-01-10-Dogen-Four-Points)
+
+Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*: zazen as *practice*.
+
+---
+
 ##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
 Summary not yet available.

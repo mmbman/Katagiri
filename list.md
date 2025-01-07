@@ -375,8 +375,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 ### 1987
 
-1. Dogen Four Points: Track 1 of 2
-1. Dogen Four Points: Track 2 of 2
+1. [Dogen: Four Points](1987-01-10-Dogen-Four-Points)
 
 1. *Blue Cliff Record* Case 80 Talk 1
 1. *Blue Cliff Record* Case 80 Talk 2

@@ -3,7 +3,7 @@ title: "Tiantai Buddhism: Historical Background"
 ---
 ## October 31, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-03-06-Platform-Sutra-Talk-1) \| Series: [Tiantai Buddhism](tiantai-buddhism)
+#### [List](list#1986) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-01-10-Dogen-Four-Points) \| Series: [Tiantai Buddhism](tiantai-buddhism)
 
 ### Transcript
 
@@ -229,4 +229,4 @@ So for the next, I would like to go into the outline of the Tendai Fourfold Teac
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-03-06-Platform-Sutra-Talk-1) \| Series: [Tiantai Buddhism](tiantai-buddhism)
+#### [List](list#1986) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-01-10-Dogen-Four-Points) \| Series: [Tiantai Buddhism](tiantai-buddhism)

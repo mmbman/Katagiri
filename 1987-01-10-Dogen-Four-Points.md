@@ -3,7 +3,7 @@ title: "Dogen: Four Points"
 ---
 ## January 10, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-03-06-Platform-Sutra-Talk-1)
+#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [*Miscellaneous*](miscellaneous)
 
 ### Summary
 
@@ -23,7 +23,7 @@ The first one is [...] *realization of impermanence*.
 
 The second point is *shikantaza*: zazen as *practice*. 
 
-The third, [can I] say *liberation*, or *body and mind dropping off*. According to Dogen's term, I think he uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
+The third, [can I] say *liberation*, or *body and mind dropping off*. [Dogen] uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
 
 Fourth, that is, how can I say, *the whole works*. 
 
@@ -193,4 +193,4 @@ And then continue to practice it. That’s very important for us.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1986-07-23-Verse-of-Opening-the-Sutra) \| [Next](1987-03-06-Platform-Sutra-Talk-1)
+#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [*Miscellaneous*](miscellaneous)
