@@ -59,27 +59,27 @@ Well, anyway:
 
 > The revelation of the true meaning by that the principle of One Mind has two aspects. 
 
-In this case “the principle” means *dharma*. *Dharma* is translated as “the principle” here, in this translation. So, “dharma of One Mind.” 
+In this case “the principle” means *dharma*. *Dharma* is translated as “the principle” here, in this translation. So, “dharma of one-mind.” 
 
 Look at page 28, “Part Two (Outline),” the third paragraph: 
 
 > The principle is "the Mind of the sentient being." This Mind includes in itself all states of being of the phenomenal world and the transcendental world. On the basis of this Mind, the meanings of Mahayana may be unfolded. 
 
-In this case also “the principle” refers to *dharma*. “The dharma is the mind of the sentient being. This mind includes in [itself] all states of being of the phenomenal world and the transcendental world. On the basis of this mind, the meanings of Mahayana may be unfolded.” This statement is described in detail in this paragraph I read, “One Mind and Two Aspects.” So that's why here it says, "The revelation of the true meaning by that principle [of] the Dharma of the One Mind has two aspects." 
+In this case also “the principle” refers to *dharma*. “The dharma is the mind of the sentient being. This mind includes in [itself] all states of being of the phenomenal world and the transcendental world. On the basis of this mind, the meanings of Mahayana may be unfolded.” This statement is described in detail in this paragraph I read, “One Mind and Two Aspects.” So that's why here it says, the revelation of the true meaning by that principle [of] the dharma of the one-mind has two aspects. 
 
-So from this point, *One Mind* means *dharma*. One Mind is dharma, dharma is One Mind. One Mind means universal entity. You can say *absolute*, you can say *truth*. 
+So from this point, *one-mind* means *dharma*. One-mind is dharma, dharma is one-mind. One-mind means universal entity. You can say *absolute*, you can say *truth*. 
 
-In the Avatamsaka school, *Avatamsaka Sutra*, we say *Mind Only*. Mind Only, this is also One Mind; [it is the] same meaning [as] One Mind. The teaching of the Mind Only comes from this, *The Awakening of Faith*. 
+In the Avatamsaka school, *Avatamsaka Sutra*, we say *Mind Only*. Mind Only, this is also one-mind; [it is the] same meaning [as] one-mind. The teaching of the Mind Only comes from this, *The Awakening of Faith*. 
 
 So this book has lots of teachings. Zen teachings are also here. This book tried to collect the essence of the Buddhist teaching. So from this book, the Shin school comes out, Zen comes out from this teaching, *Avatamsaka Sutra*, and also the Buddhist psychology. So this book is kind of a... what would you say... “digest” of Buddhist teaching. That's why this book is very popular. 
 
-Usually One Mind is understood as the absolute in the philosophical sense. But here it says, One Mind, dharma, is the mind of the all sentient beings. [This is] not [the] ontological, philosophical sense. Dharma is not the philosophical sense, but that is the mind of all sentient beings. So that means all of us. So dharma or One Mind is the mind of all sentient beings: the mind of the tape recorder, the mind of all of us. 
+Usually one-mind is understood as the absolute in the philosophical sense. But here it says, one-mind, dharma, is the mind of the all sentient beings. [This is] not [the] ontological, philosophical sense. Dharma is not the philosophical sense, but that is the mind of all sentient beings. So that means all of us. So dharma or one-mind is the mind of all sentient beings: the mind of the tape recorder, the mind of all of us. 
 
-So [it comes] very close. If you understand One Mind as philosophical or psychological, it's kind of an idea. But if you understand One Mind as the mind of all sentient beings, it comes very close. 
+So [it comes] very close. If you understand one-mind as philosophical or psychological, it's kind of an idea. But if you understand one-mind as the mind of all sentient beings, it comes very close. 
 
 That's why in Part Two (Outline), first of all it says [that] dharma is the mind of sentient beings. This is very important. 
 
-And also, this One Mind unfolds Mahayana teaching. So all Mahayana teaching comes from One Mind. That is [...], idealistically, you say *truth*, or the *buddha-nature*, or *dharma-nature*, or *tathagatagarbha* – whatever you say – but the Mahayana teaching comes from the mind of all sentient beings. That teaching comes from all of you, from your life. 
+And also, this one-mind unfolds Mahayana teaching. So all Mahayana teaching comes from one-mind. That is [...], idealistically, you say *truth*, or the *buddha-nature*, or *dharma-nature*, or *tathagatagarbha* – whatever you say – but the Mahayana teaching comes from the mind of all sentient beings. That teaching comes from all of you, from your life. 
 
 That's why here it says, the dharma is the mind of all sentient beings.
 
@@ -87,7 +87,7 @@ That's why I [always say] Buddha’s teaching is human life. It's not philosophy
 
 When I went to university, [...] all the teachers gave lectures on the *Madhyamakas*, and the *Avatamsaka Sutras*, and emptiness... Whatever they taught, all of their teaching was really cold. Their teaching had nothing to do with our lives. 
 
-So [...] when the truth is seen in terms of [...] the phenomenal world of human suffering, in other words the samsaric world, truth is called “the mind of all sentient beings.” But, when the truth is seen from the absolute – no delusions, no confusions, et cetera – it is called One Mind, we say One Mind. So, there are many words there, but they all have [almost] the same meaning. But when the truth is seen from a different angle, at that time, truth has different words. One Mind, the mind of all sentient beings. Or *tathagatagarbha* means you have buddha-nature, you are already buddha-nature, buddha. This is *tathagatagarbha*. You are already *stored*; *garbha* means “storage.” “Dharma container,” your body is dharma container, *garbha*. *Tathagata* means *buddha*. 
+So [...] when the truth is seen in terms of [...] the phenomenal world of human suffering, in other words the samsaric world, truth is called “the mind of all sentient beings.” But, when the truth is seen from the absolute – no delusions, no confusions, et cetera – it is called one-mind, we say one-mind. So, there are many words there, but they all have [almost] the same meaning. But when the truth is seen from a different angle, at that time, truth has different words. One-mind, the mind of all sentient beings. Or *tathagatagarbha* means you have buddha-nature, you are already buddha-nature, buddha. This is *tathagatagarbha*. You are already *stored*; *garbha* means “storage.” “Dharma container,” your body is dharma container, *garbha*. *Tathagata* means *buddha*. 
 
 #### 20:18
 
@@ -99,7 +99,7 @@ So-called *truth*...
 
 > ... and the other is the aspect of Mind in terms of phenomena.
 
-So, *phenomena* and *truth*: One Mind has two aspects. In other words, one piece of paper with two aspects: one is the absolute or truth, the other is phenomena. 
+So, *phenomena* and *truth*: One-mind has two aspects. In other words, one piece of paper with two aspects: one is the absolute or truth, the other is phenomena. 
 
 And also, 
 
@@ -107,7 +107,7 @@ And also,
 
 Each of these two aspects, the absolute and phenomena, embraces all sentient beings. 
 
-So that means [the] real reality we live, from day to day, is called One Mind in terms of the absolute. So real reality is completely absolute, completely no comment. Constantly you are there, wherever you may go. You make a mistake, you don't make a mistake, or crying, laughing, or whatever you say, you are doing [it] right in the middle of real reality, based on One Mind. This is, philosophically we say, One Mind. And then, we *act*. When we act, we think, we cry, we suffer, many things. This is the phenomenal world. So the phenomenal world is always going in the realm of the absolute. Nowhere to escape [to]. 
+So that means [the] real reality we live, from day to day, is called one-mind in terms of the absolute. So real reality is completely absolute, completely no comment. Constantly you are there, wherever you may go. You make a mistake, you don't make a mistake, or crying, laughing, or whatever you say, you are doing [it] right in the middle of real reality, based on one-mind. This is, philosophically we say, one-mind. And then, we *act*. When we act, we think, we cry, we suffer, many things. This is the phenomenal world. So the phenomenal world is always going in the realm of the absolute. Nowhere to escape [to]. 
 
 So this is the very important outlook on human life, the human world. Whatever you think – tape recorder, microphone, trees, birds, winters, whatever you think – anyway, all sentient beings exist just like this. So, you should have outlook on human life, human world according to this teaching. 
 
@@ -135,7 +135,7 @@ I think in order to understand the human world, human beings, you should keep th
  
 [It is] just like kind of a statue of the Buddha made of gold. And if you see this statue, maybe you say, “[It’s] gold.” Yes, it's gold. But on the other hand, someone says, “It's a Buddha statue!” Because, it's a Buddha statue. Whatever you say, it hits the mark, because it's a Buddha statue, but on the other hand, it is gold. So [if] you say “gold,” it's right, because the Buddha statue is made of gold. So whatever part of the Buddha statue is taken by you, it's gold. But without gold, you cannot make the Buddha statue. 
 
-The Buddha statue is the phenomenal world. The gold is truth, absolute, One Mind. The mind of all sentient beings. Your basic nature is exactly gold. 
+The Buddha statue is the phenomenal world. The gold is truth, absolute, one-mind. The mind of all sentient beings. Your basic nature is exactly gold. 
 
 And then that gold and Buddha statue are exactly one. You cannot separate it. So without it, without the gold, without the absolute or the mind of all sentient beings, without buddha-nature, without truth – you cannot exist. Just like Roger, just like Katagiri. [...] Just like [the] table. 
 
@@ -143,7 +143,7 @@ This is a very important point. If you try to understand the people and things, 
 
 #### 32:55
 
-[...] And also... here it says, “[these] two aspects are mutually inclusive.” Well, temporarily I can say so, like this. [The] limits of suffering – limits of phenomena, the limits of knowledge, limits of pleasure, whatever you say – [the] limits of suffering is the beginning of *vastness*, the truth, exactly. The limits of suffering is the beginning of vastness or truth or one mind, universe. So “limits of the suffering” means if you experience suffering through and through... [sometimes] you cannot cry; sometimes you can burst out laughing. *[He chuckles.]* Okay? So the limits of suffering is not suffering, completely not suffering. It's something else. So maybe laughing. And the limits of laughter becomes suffering, crying. Like this. Because the limits of joy is the beginning of vastness; because the end of the joy is completely extending everywhere, so that is vastness. That is called *beginning of the vastness*, so-called *truth*. 
+[...] And also... here it says, “[these] two aspects are mutually inclusive.” Well, temporarily I can say so, like this. [The] limits of suffering – limits of phenomena, the limits of knowledge, limits of pleasure, whatever you say – [the] limits of suffering is the beginning of *vastness*, the truth, exactly. The limits of suffering is the beginning of vastness or truth or one-mind, universe. So “limits of the suffering” means if you experience suffering through and through... [sometimes] you cannot cry; sometimes you can burst out laughing. *[He chuckles.]* Okay? So the limits of suffering is not suffering, completely not suffering. It's something else. So maybe laughing. And the limits of laughter becomes suffering, crying. Like this. Because the limits of joy is the beginning of vastness; because the end of the joy is completely extending everywhere, so that is vastness. That is called *beginning of the vastness*, so-called *truth*. 
 
 Everyone experiences this. For instance, in the 1960s and 70s in San Francisco, lots of things happened. I knew a couple of people who were really mental disordered. In a sense, one man suffered a lot. I don't know if he suffered in appropriate way or not, anyway, he suffered. And then several times he was in the hospital, and coming out, or getting in again, always back and forth, back and forth. And he seemed to be very sad. Very often, he cried. But when he was completely disordered, he became laughter. Completely he laughed. He didn't cry. 
 
@@ -173,7 +173,7 @@ But still there is a difference between the person who doesn't realize and the p
 
 Just like a crazy person’s laughter. At the end of suffering, they laugh. But even though [...] they become great laughter, it's not great laughter just like Yakusan Zen Master. Completely different. He is a crazy person.
 
-So you have to realize. That's why it says here, One Mind is not a philosophical entity, this is the mind of all sentient beings, all of us. And this One Mind is really something interrelated, interconnected, interdependent with the phenomenal world and truth, constantly. There is no gap between. 
+So you have to realize. That's why it says here, one-mind is not a philosophical entity, this is the mind of all sentient beings, all of us. And this one-mind is really something interrelated, interconnected, interdependent with the phenomenal world and truth, constantly. There is no gap between. 
 
 Temporarily I say “end of the phenomena,” but there is no end. No end and no beginning; constantly working. But temporarily I can say “end of the suffering,” or “limits of the suffering,” “limits of the phenomena,” “limits of knowledge.” And then, that is the beginning of the universe. If you come to a dead end, that dead end is not a dead end, it's a beginning, anyway.
 
@@ -205,7 +205,7 @@ So *nirvana* is something more than enlightenment, something more than a divine 
 
 **Same person:** Just doing.
 
-**Katagiri Roshi:** Yes. You can say so, no-enlightenment. But no-enlightenment means experience of enlightenment is melted away in the vastness, so-called truth, One Mind. Because always there is the One Mind. And everything is melted away, constantly. You experience suffering, next moment, it's melted away, just like a drop of dew is falling into the ocean. The moment your drop of dew is falling into the ocean is a reaction: suffering, pleasure, you know? Next moment, it is melted away in the ocean. 
+**Katagiri Roshi:** Yes. You can say so, no-enlightenment. But no-enlightenment means experience of enlightenment is melted away in the vastness, so-called truth, one-mind. Because always there is the one-mind. And everything is melted away, constantly. You experience suffering, next moment, it's melted away, just like a drop of dew is falling into the ocean. The moment your drop of dew is falling into the ocean is a reaction: suffering, pleasure, you know? Next moment, it is melted away in the ocean. 
 
 That is interrelation, interpenetration between truth and the phenomenal world. That's why this is not ideas, this is human life. If you look at human life, you can really realize this. 
 
@@ -213,7 +213,7 @@ So suffering is not always suffering. Through the suffering, you can really lear
 
 So that is called *nirvana*, we say nirvana. 
 
-**Same person:** Okay, well, why do we call that state of universal reality, or whatever you want to call it, why do we call that state of One Mind? Like, why do we use the term *mind* rather than *universal energy* or any other word we can come up with? 
+**Same person:** Okay, well, why do we call that state of universal reality, or whatever you want to call it, why do we call that state of one-mind? Like, why do we use the term *mind* rather than *universal energy* or any other word we can come up with? 
 
 **Katagiri Roshi:** Well, *mind*, I don't know, in English “mind” is not... In Chinese or in Japanese, “mind” is a little bit broad. I use “mind” but it's not *mind*. The term *mind* I use is the mind including spirit, soul, or “psyche”... I don’t know. *[He laughs.]* “Psyche”? Whole stuff. 
 
@@ -297,7 +297,7 @@ That practice tells you the vastness of existence, and also cognition of your ex
 
 So what makes you understand the vastness of existence and also each individual? Each individual, your life is right in the middle of vastness. But simultaneously, you live in the vastness. How to live? Just swim, beyond survive or not survive, die or ... whatever. 
 
-That practice is called just *oneness*. One Mind, we say. Or, “the mind of all sentient beings.”
+That practice is called just *oneness*. One-mind, we say. Or, “the mind of all sentient beings.”
 
 So it's very difficult to say they are equal. No, not equal. But they are not different. They are working together, so they are not different. But they are not equal. 
 
