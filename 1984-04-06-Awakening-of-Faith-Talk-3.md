@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 3"
+title: "The Awakening of Faith – Talk 3: One Mind and Its Two Aspects"
 ---
 ## April 6, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -47,6 +47,8 @@ So [...] “Revelation of True Meaning” is [that] they try to explain the *rea
 
 And then, this Chapter One is also divided into two sections. [The first] is called [...] “One Mind and Its Two Aspects.”
 
+> I. One Mind and Its Two Aspects
+> 
 > The revelation of the true meaning [...] by [...] that the principle of One Mind has two aspects. One is the aspect of Mind in terms of the Absolute [...], and the other is the aspect of Mind in terms of phenomena [...]. Each of these two aspects embraces all states of existence. Why? Because these two aspects are mutually inclusive.
 
 The last sentence is translated in a different way according to D. T. Suzuki. He says, "Both are so closely interrelated that one cannot be separated from the other." 
