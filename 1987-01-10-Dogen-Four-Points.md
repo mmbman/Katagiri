@@ -15,19 +15,19 @@ title: "Dogen: Four Points"
 
 Dogen Zenji's teaching may be explained in terms of four points. 
 
-The first one is *realization*: realization of impermanence.
+The first one is [...] *realization of impermanence*.
 
-The second point is *shikantaza*, zazen as practice. 
+The second point is *shikantaza*: zazen as practice. 
 
-The third, [I'm going to] say *liberation*, or *body and mind dropping off*. According to Dogen's term, I think he uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
+The third, [can I] say *liberation*, or *body and mind dropping off*. According to Dogen's term, I think he uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
 
 Fourth, that is, how can I say, *the whole works*. 
 
-So it’s four points. First one, the *realization of impermanence*. The ssecond, *shikantaza*, or zazen with wholeheartedness as practice – extending to *any* practice, any kind of practice in everyday life. Third, *liberation in action*. Fourth, *the whole works*. 
+So it’s four points. First one, the *realization of impermanence*. The second, *shikantaza*, or zazen with wholeheartedness as practice – extending to *any* kind of practice in everyday life. Third, *liberation in action*. Fourth, *the whole works*. 
 
-*The whole works* simply speaking means that the everyday life beyond your speculation must be alive, vividly, beyond your doubt, your speculation, your theories, whatever you think. Any explanation, any doubt, any idea doesn't hit the mark. So, *the whole works* means that your life day to day must be vividly working. This is what we call *the whole works*. 
+*The whole works*, simply speaking, means that the everyday life beyond your speculation must be alive, vividly – beyond your doubt, your speculation, your theories, whatever you think. Any explanation, any doubt, any idea doesn't hit the mark. So, *the whole works* means that your life day-to-day must be vividly working. [We call this] *the whole works*. 
 
-I think there is a short fascicle of *the whole works* written by Dogen. It is a very interesting fascicle, related with life and death. 
+[...] There is a short fascicle of *the whole works* (“*Zenki*”) written by Dogen. It is a very interesting fascicle, related with life and death. 
 
 So let me first explain one by one. 
 
@@ -35,73 +35,73 @@ So let me first explain one by one.
 
 First one, *the realization of impermanence*. 
 
-He often mentions how important realization of impermanence is. If you really want to practice the Buddha way, or if you really want to know what human life is, you have to see fully or deeply into how transient the world is, and how fragile life and death is. 
+[Dogen] often mentions how important the realization of impermanence is. If you really want to practice the Buddha way, or if you really want to know what human life is, you have to see fully or deeply into how transient the world is and how fragile life and death is. 
 
 In general Buddhism, we say *no substantiality*. The idea of no substantiality and impermanence is one of the teachings of life and death in terms of physics or modern sciences. I think not only Buddhism, [but] physicists, all scientists realize already how transient the world is, how fragile human life is. It’s not only Buddhist teaching. 
 
-So the teaching of no substantiality means that everything is produced by many conditioned factors, or everything is aggregated organically by myriad, myriad conditioned factors. It means in other words that there is no particular idea called the “I” or “you” or “table”. No particular idea. Because everything is, everything comes into, everything is allowed to exist only by the power of organical aggregates. That’s it. 
+So the teaching of no substantiality means that everything is produced by many conditioned factors. Or, everything is aggregated organically by myriad, myriad conditioned factors. It means, in other words, that there is no particular idea called the “I,” or “you,” or “table.” No particular idea. Because everything *is*, everything comes into, everything is allowed to exist only by the power of organical aggregates. That’s it. 
 
-So even though I say Katagiri, “I”, this is *my* idea, so-called Katagiri. If I call myself Katagiri, this is a kind of fixed idea. So it’s very narrow understanding. If I attach to Katagiri immediately, this is the being separate from others. But Katagiri can exist only by virtue of organical aggregates. In other words, only in the relation with all of you, the “I” named Katagiri can come into existence. Without you, without the table, without the floor, without Minneapolis, Katagiri called the “I” never comes into existence. So that is the meaning of no substantiality. 
+So even though I say “Katagiri,” “*I*”, this is *my* idea, so-called Katagiri. If I call myself Katagiri, this is a kind of fixed idea. So it’s a very narrow understanding. If I attach to Katagiri, immediately this is the being separate from others. But Katagiri can exist only by virtue of organical aggregates. In other words, only in the relation with all of you, the “I” named Katagiri can come into existence. Without you, without the table, without the floor, without Minneapolis, Katagiri called the “I” never comes into existence. So that is the meaning of no substantiality. 
 
-So if you look at your life, I think everyone has ideas, evaluated by usual sense of value, morality. So always you judge yourself, and then put yourself down sometimes. Sometimes you proud of yourself so much. But whichever you go, proud of yourself, or putting yourself down, whichever you go, it doesn’t hit the mark in order to understand who you are, who I am, how I should live in this human society. It doesn’t hit the mark. Always there is some question. 
+So if you look at your life, I think everyone has ideas, evaluated by the usual sense of value, morality, [et cetera]. So always you judge yourself, and then put yourself down sometimes. Sometimes you are very proud of yourself. But whichever [way] you go – proud of yourself, or putting yourself down, whichever [way] you go – it doesn’t hit the mark, in order to understand who you are, who I am, how I should live in this human society. It doesn’t hit the mark. Always there is some question. 
 
-That question is every day, every moment, *how* I should live with the people. If you figure out a way to live only for you, it seems to be easy, but it doesn’t last for long. Temporarily it lasts, but it doesn’t last for long, and also you are separated from people and society. 
+That question is, every day, every moment, *how* I should live with the people. If you figure out a way to live only for *you*, it seems to be easy, but it doesn’t last for long. Temporarily it lasts, but it doesn’t last for long, and also you are separated from people and society. 
 
-So very naturally you have to think [of] yourself in the universal perspective, we always say. So even though you have your own ideas, you have to put aside your ideas. 
+So very naturally, you have to think [of] yourself in the universal perspective, we always say. 
 
-And then, practically speaking, there seems to be no way to have your own ideas, or to have ideas how to live. Practically, there seems to have no ideas how to live in peace and harmony. Because every day we create a lot of trouble. Even though we always emphasizing peace and harmony, always somebody somewhere, always creating something dangerous weapons, and somebody always fighting and killing each other. 
+So even though you have your own ideas, you have to put aside your ideas. 
 
-So if you look around the human world and the human beings, there seems to have no idea of how to live in peace and harmony. And then people say, no way to live. 
+And then, practically speaking, there seems to be no way to have your own ideas, or to have ideas how to live. Practically, [we] seem to have no ideas how to live in peace and harmony. Because every day, we create a lot of trouble. Even though we are always emphasizing peace and harmony, always somebody, somewhere, is always creating something dangerous, weapons, and somebody is always fighting and killing each other. So if you look around the human world and the human beings, there seems to [be] no idea of how to live in peace and harmony. And then people say, “No way to live.”
 
-So if you say no way to live in peace, it is your idea. But broadly speaking, in terms of the truth, true state of existence, there is no substantiality, [which] means everything is aggregated organically by conditioning factors. So no particular ideas. 
+So if you say “no way to live in peace,” it is your idea. But broadly speaking, in terms of the truth, the true state of existence, there is no substantiality, [which] means everything is aggregated organically by conditioned factors. So no particular ideas. 
 
-So all you have to do is, within a certain state of existence which there seems to have no idea to live in peace and harmony, we try to find a way to live in peace and harmony. This is our effort. 
+So all you have to do is, within a certain state of existence which there seems to [be] no idea to live in peace and harmony, we try to find a way to live in peace and harmony. This is our effort. 
 
-So whatever kind of idea you have: “there is a way to live,” “I found a way to live in peace and harmony” – yes, it is fine, but if you attach to it, it doesn’t last long. Sooner or later it will be a cause of trouble. 
+So whatever kind of idea you have – “there is a way to live,” “I found a way to live in peace and harmony” – yes, it is fine, but if you attach to it, it doesn’t last long. Sooner or later, it will be a cause of trouble. 
 
-So whatever kind of idea you have, anyway, that’s fine. But the point is, every day, you have to find a way how to live in peace and harmony, day to day, with the people. It’s not ideas. 
+So whatever kind of idea you have, anyway, that’s fine. But a point is, every day, you have to find a *way* how to live in peace and harmony, day to day, with the people. It’s not ideas!
 
-So the teaching of no substantiality or teaching of impermanence is, everything exists exactly as a unity, as one. So Katagiri, if I say Katagiri, there is no reason I should attach to Katagiri so much. But all I can do is... I mentioned, there seems to have no way to take care of Katagiri as an individual. So, let it go. Nevertheless, I’ve tried to figure out a way to take care of Katagiri in the universal perspective. 
+So the teaching of no substantiality or teaching of impermanence is, everything exists exactly as a unity, as one. So if I say Katagiri, there is no reason I should attach to Katagiri so much. But all I can do is... I mentioned, there seems to [be] no way to take care of Katagiri as an individual. So, let it go. Nevertheless, I’ve tried to figure out a way to take care of Katagiri in the universal perspective. 
 
-That’s why people always emphasize peace work. There seems to be, to have no peace. If there is no peace and you attach to the idea of no peace, everyone cannot have any hope. Everyone cannot have any way to live. So everyone should give up. But you cannot give up simply, no. You cannot die simply. 
+That’s why people are always emphasizing peace work. There seems to be [...] no peace. If there is no peace and you attach to the idea of no peace, everyone cannot have any hope. Everyone cannot have any way to live, so everyone should give up. But you cannot simply give up, no. You cannot simply die. 
 
-So there is a contradictory situation, okay? Broadly speaking, in terms of your understanding, in terms of your experience, remember this point. First point: there seems to have no way to live in peace and harmony. This is always questioned. That’s why it makes me question, how should I live? 
+So there is a contradictory situation, okay? Broadly speaking, in terms of your understanding, in terms of your experience, remember this point. First point: there seems to [be] no way to live in peace and harmony. This is always [the] question. That’s why it makes me question, how should I live? 
 
-So no way to live in peace means not pessimistic, okay? Not pessimistic. It means everything [lives] in the same and one way. That’s it. There is nothing to touch by you, by your ideas, by another’s ideas, no. So everything is oneness. Okay? 
+So no way to live in peace [is] not pessimistic, okay? Not pessimistic. It means everything [lives] in the same and one way. That’s it. There is nothing to touch by you, by your ideas, by another’s ideas. No. So everything is oneness, we say.
 
-So teaching of no substantiality means, in other words, unity of existence, unity of all things. Everything is one. That’s why in Buddhism we say, “One is all, all is one.” 
+So the teaching of no substantiality means, in other words, *unity* of existence, unity of all things. Everything is one. That’s why in Buddhism we say, “One is all, all is one.” 
 
-So first of all, we should remember this point. Remember and we should be *mindful* of this, okay? 
+So first of all, we should remember this. Remember, and we should be *mindful* of this. Okay? 
 
-We use the [the words] *samatha* and *vipassana* in Sanskrit. We use *vipassana* in Sanskrit, which means “observation” or “insight”. I think not only insight, not only the experience of insight, but I think realization, realization of impermanence or realization of no substantiality. Which means impermanence, or no substantiality, or everything is one, those teachings must be true to nature in your life. That is realization. 
+We use the [the words] *samatha* and *vipassana* in Sanskrit. We use *vipassana* in Sanskrit, which means “observation” or “insight.” I think not only the experience of insight, but I think realization, realization of impermanence or realization of no substantiality. Which means impermanence, or no substantiality, or everything is one – those teachings must be [true] to nature in your life. That is realization. 
 
-In other words, you have to *taste* it. You have to taste it deeply, with your body and mind. That is called realization. That is called *true to nature*. Is that okay? 
+In other words, you have to *taste* it. You have to taste it *deeply*, with your body and mind. That is called *realization*. That is called *true to nature*. Is that okay? 
 
-Not only insight, not only experience of insight, so-called *vipassana*. *Vipassana* is fine. This is one of the practices of Tendai Buddhism, but that is another term. What I want to tell you is, generally speaking, whoever you are, Buddhist or Christian, whoever you are, that’s fine. If you are a human being, there must be a certain way, universally, to live in this world. 
+Not only the experience of insight, so-called *vipassana*. *Vipassana* is fine. This is one of the practices in Tendai Buddhism. But that is another term. What I want to tell you is, generally speaking, whoever you are, Buddhist or Christian, whoever you are, that’s fine. If you are a human being, there must be a certain way, universally, to live in this world. 
 
-So, for this, I think not only the experience of insight, but the experience of realization. Tasting those teachings very deeply with body and mind, totally, totally and wholeheartedly. 
+So for this, I think not only the experience of insight, but the experience of realization. Tasting those teachings very deeply with body and mind, totally and wholeheartedly. 
 
-That is the first point of the Dogen Zenji’s teachings. 
+That is the first point of Dogen Zenji’s teachings. 
 
-In terms of general Buddhism, Buddha Shakyamuni mentions in the Eightfold Path. The first one is Right View. Right View is that you have to understand the human world, human beings, very deeply. Based on impermanence and no-substantiality. This is the Right Understanding. 
+In terms of general Buddhism, Buddha Shakyamuni mentions the Eightfold Path. The first one is *Right View*. Right View is that you have to understand the human world, human beings, very deeply, based on impermanence and no-substantiality. This is the Right Understanding. 
 
-Dogen Zenji’s comment on Right Understanding says, “Right View is that your life must be absorbed by Buddha’s *I*.” That means universal *I*, the universe. *I* means function of the universe. Cosmos. Something more than cosmos, but in the physics point of view. Anyway, the universe. Let me say universe.
+Dogen Zenji’s comment on Right [View] says, “Right View is that your life must be absorbed by Buddha’s eye.” That means universal eye; the universe. *Eye* means function of the universe, cosmos. Something more than cosmos, in the physics point of view. Anyway, let me say the universe. So, your life must be encompassed or included or embraced by the universe, already. That is called *ganzei ri zō shin* in Japanese. *Ganze ri* means within the Buddha’s eye. *Zō shin* means the body is stored. So your body means that the life and death is already stored in the big storage called the universe. (*Transcriber’s Note:* This is referring to *Shobogenzo* “*Sanjūshichi-bon-bodai-bunpō*”, “The Thirty-Seven Factors of Bodhi”.)
 
-So, your life must be encompassed or included or embraced by the universe already. That is called [Ganzeri Zoshin] in Japanese. “Ganzeri” means within the Buddha’s “I”. “Zoshin” means the body is stored already. Body is stored. So your body means that the life and death is already stored in the big storage called the universe. 
+So, that is [that you should] think of it, you should be mindful of this Right View. 
 
-So, that is, you think of it, you should be mindful of this Right View. 
+So you should be deeply mindful of this every day: oneness of the universe. Oneness of existence. Oneness of all things. Anyway you should [be mindful of it], and *taste it* very deeply with your body and mind. 
 
-So you should be mindful deeply of this every day. Oneness of the universe. Oneness of existence. Oneness of all things. Anyway you should. And taste it very deeply with your body and mind. 
+And then, *how*? [How should you] taste it?
 
-Then, *how*? You should taste it. 
+#### 22:06
 
-Then next, the second point is practice. 
+Then next, the second point is *practice*. 
 
-Practice is, you have to act on your object, your object or a thing or idea with wholeheartedness. This is the practice. 
+*Practice* is, you have to act on your object, or a thing or idea, with *wholeheartedness*. This is the practice. 
 
-So always in the United States now, generally human beings always want to know first, systematically or intellectually first, as your background, the background of your life. You want to understand it. Sure, it is important. But life cannot be taken care of in that way *always*. Because life is really vast. There are lots of things you don’t understand. 
+Always in the United States now, and human beings [in general], always want to know *first*, systematically or intellectually first, as your *background*, the background of your life. You want to understand it. 
 
-So *sometimes*, ok, sometimes you have to practice *first*. 
+Sure, it is important. But life cannot be taken care of in that way *always*. Because, life is really vast. There are lots of things you don’t understand. So *sometimes*, okay? *Sometimes* you have to practice *first*. 
 
 And then in order to practice first, I think to the minimum, you have to have a certain information how to behave, how to act. Of course it is. For instance, if you want to come here and to listen to Buddha’s teaching, I think you don’t have any idea of Buddhism. But if you want to come here, I think there is a several procedure how to reach here. So to the minimum, you should have information how to come here. 
 
