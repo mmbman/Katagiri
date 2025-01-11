@@ -18,18 +18,6 @@ Katagiri Roshi discusses the true purpose of Buddhism, which intersects with a d
 
 ---
 
-##### [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
-
-An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
-
----
-
-##### [Dogen: Four Points](1987-01-10-Dogen-Four-Points)
-
-Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*: zazen as *practice*.
-
----
-
 ##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
 Summary not yet available.

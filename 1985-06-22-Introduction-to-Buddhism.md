@@ -3,7 +3,7 @@ title: "Introduction to Buddhism"
 ---
 ## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1985) \| [Previous](1984-05-14-Awakening-of-Faith-Talk-9) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Miscellaneous](miscellaneous)
+#### [List](list#1985) \| [Previous](1984-05-14-Awakening-of-Faith-Talk-9) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Introduction](introduction-to-zen)
 
 ### Summary
 
@@ -15,7 +15,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-*(Transcriber’s Note: In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism – so it seems likely that he is simply adding an extraneous “the” to “Buddhist faith”. I have omitted the “the” in some cases.)*
+(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism – so it seems likely that he is simply adding an extraneous “the” to “Buddhist faith.” I have omitted the “the” in most cases. However, “the Buddhist faith” might also work in some cases.)
 
 #### 0:00
 
@@ -69,7 +69,7 @@ But if you don’t do that and just sit, with no space, at that time you fall as
 
 Real intimacy is exactly total oneness between you and the water. So, in order to do this, you have to use your whole body and mind, and stand up straight there, and then next moment you have to return to the emptiness. That means, don’t hang on. All you have to do is manifest your total effort right there and don’t hang on, because you have to return to emptiness, the source of existence.
 
-So that’s why in the Prajñāpāramitā Sutra, in the last sentence we say, “Gate gate paragate parasamgate bodhi svaha”. That means you devote yourself to doing something right now, right here. Next moment, you have to go beyond. “Go beyond” means let it be. You have to be exactly you, as you really are. All you have to do is just continue to do this practice, continue to practice this. 
+So that’s why in the *Prajñāpāramitā Sutra*, in the last sentence we say, “Gate gate paragate parasamgate bodhi svaha”. That means you devote yourself to doing something right now, right here. Next moment, you have to go beyond. “Go beyond” means let it be. You have to be exactly you, as you really are. All you have to do is just continue to do this practice, continue to practice this. 
 
 So that’s why Buddhism always tricks you: seeing, facing emptiness directly. And within the emptiness, you have to see your life, how it works. That is the Buddhist total attitude toward human life: so-called faith. Empirically, it is called intimacy. 
 
@@ -86,9 +86,9 @@ It says, “within the principle of the truth.” That means, within the princip
 
 And then it says, “to bear up.” There are three ways of “bearing up,” three kinds of patience. 
 
-One is “the patience of the unborn dharma”. “Unborn dharma” means emptiness. The patience of emptiness means nothing to hold on to, nothing to throw away, nothing to have, nothing get. Nothing. That is dharma, that is emptiness, that is the nature of your life. This is one point.
+One is “the patience of the unborn dharma.” “Unborn dharma” means emptiness. The patience of emptiness means nothing to hold on to, nothing to throw away, nothing to have, nothing get. Nothing. That is dharma, that is emptiness, that is the nature of your life. This is one point.
 
-That is the patience of emptiness; we say “unborn dharma”. If you are interested in dharma, it is no longer interest in the real dharma, but you are interested in the *concept* of dharma. Real dharma is beyond the concept of dharma. Do you understand?
+That is the patience of emptiness; we say “unborn dharma.” If you are interested in dharma, it is no longer interest in the real dharma, but you are interested in the *concept* of dharma. Real dharma is beyond the concept of dharma. Do you understand?
 
 I always say: If you see something beautiful and you are very impressed by something beautiful, *[unintelligible]* then you say, “Wow.” This “wow” is a very grand word, the first word before you explain how beautiful it is. That grand word, so-called “wow”, is already something expressed, which you have had through your six senses, through your body. Do you understand? That is the very first [expression] of your experience. But dharma or truth or emptiness is something deep, prior to having created that grand word, so-called “wow,” because “wow” is coming from exactly oneness between nature and you, when you stand right in the middle of nature. Without this oneness between real nature and you, you cannot get the first, very original word, grand word, so-called “wow”. You never experience it.
 
@@ -194,4 +194,4 @@ Thank you very much.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1985) \| [Previous](1984-05-14-Awakening-of-Faith-Talk-9) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Miscellaneous](miscellaneous)
+#### [List](list#1985) \| [Previous](1984-05-14-Awakening-of-Faith-Talk-9) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Introduction](introduction-to-zen)

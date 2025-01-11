@@ -3,7 +3,7 @@ title: "Dogen: Four Points"
 ---
 ## January 10, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Miscellaneous](miscellaneous)
+#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Introduction](introduction-to-zen)
 
 ### Summary
 
@@ -193,4 +193,4 @@ And then continue to practice it. That’s very important for us.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Miscellaneous](miscellaneous)
+#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Introduction](introduction-to-zen)
