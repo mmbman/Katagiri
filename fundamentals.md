@@ -2,7 +2,7 @@
 title: "Fundamentals of Zen"
 ---
 
-This is a collection of talks in which Katagiri Roshi discusses the fundamentals of Buddhist practice, particularly the fundamentals of the Zen of Eihei Dogen, the 13th century founder of Soto Zen in Japan. The talks listed here might serve as an entry point into the study of Dogen and the practice of Zen. Topics covered here include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (commonly translated as “the practice of Zen”), *shikantaza* (“just sitting”),  *sunyata* (or *kū*, “*emptiness*”), *shinjin datsuraku* (“dropping off body and mind”), and *zenki* (“the whole works”).
+This is a collection of talks in which Katagiri Roshi discusses the fundamentals of Buddhist practice, particularly the fundamentals of the Zen of Eihei Dogen, the 13th century founder of Soto Zen in Japan. The talks listed here might serve as an entry point into the study of Dogen and the practice of Zen. Topics covered include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (commonly translated as “the practice of Zen”), *shikantaza* (“just sitting”),  *sunyata* (or *kū*, “*emptiness*”), *shinjin datsuraku* (“dropping off body and mind”), and *zenki* (“the whole works”).
 
 The talk “Introduction to Buddhism” included here actually concerns the meaning of the word *faith* in Buddhism. The term *faith* might be challenging for some, but it is also fundamental in both Dogen and Katagiri’s teaching, so it’s important to understand what it means in the context of Zen.
 
