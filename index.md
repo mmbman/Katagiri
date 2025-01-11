@@ -31,6 +31,8 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 
 ## Latest Updates
 
+**January 11, 2025:** Added the [“Fundamentals of Zen”](fundamentals) category.
+
 **January 7, 2025:** Posted [“Dogen: Four Points”](1987-01-10-Dogen-Four-Points).
 
 **January 6, 2025:** Posted [“*The Awakening of Faith* – Talk 3”](1984-04-06-Awakening-of-Faith-Talk-3).
