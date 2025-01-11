@@ -7,7 +7,7 @@ title: "Dogen: Four Points"
 
 ### Summary
 
-Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*: zazen as *practice*.
+Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*, or *zazen* as *practice*.
 
 ### Transcript
 
