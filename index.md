@@ -9,7 +9,7 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 **Talk Series:**
 
-- [**Introduction to Zen**](introduction-to-zen)
+- [**Fundamentals of Zen**](fundamentals)
 - [***Awakening of Faith***](awakening-of-faith)
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
