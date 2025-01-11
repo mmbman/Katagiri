@@ -2,7 +2,7 @@
 title: "Tiantai Buddhism"
 ---
 
-The development of Tiantai or Tendai Buddhism in China and Japan had a strong influence on other schools of Buddhism, including Zen. In this short series of talks, Katagiri Roshi discusses the historical background and basic teachings of Tiantai Buddhism from the Zen perspective.
+The development of Tiantai or Tendai Buddhism in China and Japan had a strong influence on other schools of Buddhism, including Zen. In this short series of talks, Katagiri Roshi discusses the historical background and basic teachings of Tiantai Buddhism from a Zen perspective.
 
 This series of talks is in draft stage.
 
