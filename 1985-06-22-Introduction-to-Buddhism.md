@@ -15,7 +15,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk on mnzencenter.org</a>
 </p>
 
-(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism – so it seems likely that he is simply adding an extraneous “the” to “Buddhist faith.” I have omitted the “the” in most cases. However, “the Buddhist faith” might also work in some cases.)
+(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism, which is something else. It seems very likely that he is simply adding an extraneous “the” to “Buddhist faith,” so I have omitted the word “the” in most cases. However, “the Buddhist faith” might also work in some cases.)
 
 #### 0:00
 
