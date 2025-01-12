@@ -3,7 +3,7 @@ title: "Gatha of Closing the Sutra"
 ---
 ## July 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Zen Forms](zen-forms)
 
 ### Transcript
 
@@ -270,4 +270,4 @@ But we do the reverse, you know? Always analyzing, synthesizing, and then try to
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Lay Ordination](lay-ordination)
+#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: [Zen Forms](zen-forms)

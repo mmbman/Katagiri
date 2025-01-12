@@ -1,15 +1,15 @@
 ---
-title: "Lay Ordination Lectures"
+title: "Receiving the Precepts"
 ---
 
-Katagiri Roshi gave more than one series of lectures on lay ordination; this series is from 1986. The main series is followed by one or more talks where he continued discussing the Buddhist Precepts.
+Katagiri Roshi gave more than one series of lectures on *jukai*, “receiving the precepts,” otherwise known as lay ordination. This series is from 1986.
 
 --- 
 
 ##### [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 ###### February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi introduces a series of lectures on *Jukai*, lay ordination. In this first talk, he explains the goal of lay ordination as three points. The first point is realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration to live our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: knowledge in the ordinary sense, knowing something in the world of impermanence, and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize these three points. Even if we don’t understand them, we can still take action to enter this world of the Buddha.
+Katagiri Roshi introduces a series of lectures on receiving the precepts, otherwise known as lay ordination. In this first talk, he explains the goal of lay ordination as three points. The first point is realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration to live our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: knowledge in the ordinary sense, knowing something in the world of impermanence, and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize these three points. Even if we don’t understand them, we can still take action to enter this world of the Buddha.
 
 ---
 
