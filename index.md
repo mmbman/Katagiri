@@ -5,8 +5,6 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Soto Zen Buddhism. For more information, see the [**Introduction**](about).
 
-[**Talk List**](list)
-
 **Talk Series:**
 
 - [**Fundamentals of Zen**](fundamentals)
@@ -23,7 +21,7 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [**Zen Forms and Ceremonies**](zen-forms)
 - [**Miscellaneous Talks**](miscellaneous)
 
-Readers should be aware that the topics above come up in many places within Katagiri Roshi’s talks, not just within these series. 
+[**Talk List**](list)
 
 Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
 
