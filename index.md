@@ -3,9 +3,11 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Soto Zen Buddhism. For more information, see the [**Introduction**](about).
+This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Soto Zen Buddhism.
 
-**Talk Series:**
+ [**Introduction**](about)
+
+**Series of Talks:**
 
 - [**Fundamentals of Zen**](fundamentals)
 - [***Awakening of Faith***](awakening-of-faith)
