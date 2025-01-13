@@ -12,7 +12,7 @@ Why should we not be disappointed with this world, if there seems to be nothing 
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/archives/07-1979" target="_blank">Listen to this talk</a>
 </p>
 
 

@@ -11,7 +11,7 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1
 *Blue Cliff Record* Case 46 is also covered extensively in [“*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4).
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-46-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-46-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 ---

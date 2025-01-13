@@ -12,7 +12,7 @@ Katagiri Roshi examines the meaning of the line “from the first, dullness and 
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-3" target="_blank">Listen to this talk</a>
 </p>
 
 

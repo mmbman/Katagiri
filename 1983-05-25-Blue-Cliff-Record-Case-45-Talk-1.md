@@ -12,7 +12,7 @@ Where does *the one* come from? Who creates the first cause? The one comes from 
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-45-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-45-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

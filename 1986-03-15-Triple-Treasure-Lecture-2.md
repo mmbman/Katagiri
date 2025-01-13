@@ -12,7 +12,7 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">Listen to this talk</a>
 </p>
 
 

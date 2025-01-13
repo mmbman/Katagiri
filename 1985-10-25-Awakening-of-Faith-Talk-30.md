@@ -8,7 +8,7 @@ title: "The Awakening of Faith – Talk 30"
 <p align="center"><b>This talk is not available due to an error in the audio archive. The linked audio file is actually Talk 29.</b></p>
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith1517367" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith1517367" target="_blank">Listen to this talk</a>
 </p>
 
 ---

@@ -12,7 +12,7 @@ Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-39-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-39-lecture-2" target="_blank">Listen to this talk</a>
 </p>
 
 *(Archive Issue: The beginning of this talk is missing, and about six minutes in the middle is repeated.)*

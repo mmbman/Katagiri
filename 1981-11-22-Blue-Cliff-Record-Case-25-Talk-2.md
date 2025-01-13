@@ -12,7 +12,7 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-25-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-25-lecture-2" target="_blank">Listen to this talk</a>
 </p>
 
 

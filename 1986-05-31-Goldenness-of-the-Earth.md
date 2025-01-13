@@ -10,7 +10,7 @@ title: "The Goldenness of the Earth, the Sweet Milk of the Long River"
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-goldenness-of-the-earth-the-sweet-milk-of-the-long-river" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-goldenness-of-the-earth-the-sweet-milk-of-the-long-river" target="_blank">Listen to this talk</a>
 </p>
 
 ***This transcript is in rough draft stage.***

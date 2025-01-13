@@ -10,7 +10,7 @@ title: "Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Tal
 #### **This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-44-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-44-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

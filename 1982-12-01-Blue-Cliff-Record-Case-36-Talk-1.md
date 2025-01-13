@@ -12,7 +12,7 @@ Wandering in the mountains, life flowing freely: how very like the sense of spri
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-36-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-records-case-36-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

@@ -14,7 +14,7 @@ title: "Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 1"
 *Archive issue: The audio skips backward by a minute or two, more than once.*
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-53-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-53-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 

@@ -10,7 +10,7 @@ title: "Genjokoan: Talk 2 (Consciousness)"
 **This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-1-part-2" target="_blank">Listen to this talk</a>
 </p>
 
 

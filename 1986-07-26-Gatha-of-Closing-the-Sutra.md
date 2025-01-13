@@ -10,7 +10,7 @@ title: "Gatha of Closing the Sutra"
 **This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/gatha-of-closing-the-sutra" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/gatha-of-closing-the-sutra" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

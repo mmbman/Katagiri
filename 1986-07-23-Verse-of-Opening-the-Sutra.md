@@ -12,7 +12,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/gatha-of-opening-the-sutra" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/gatha-of-opening-the-sutra" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

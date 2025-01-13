@@ -8,7 +8,7 @@ title: "Book of Equanimity: Case 52"
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/book-of-equanimity-case-52" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/book-of-equanimity-case-52" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

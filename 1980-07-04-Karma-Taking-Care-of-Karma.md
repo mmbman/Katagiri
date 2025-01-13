@@ -12,7 +12,7 @@ Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-taking-care-of-karma" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-taking-care-of-karma" target="_blank">Listen to this talk</a>
 </p>
 
 

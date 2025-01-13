@@ -12,7 +12,7 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/walking-alone-with-open-heart" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/walking-alone-with-open-heart" target="_blank">Listen to this talk</a>
 </p>
 
 

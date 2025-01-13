@@ -10,7 +10,7 @@ title: "Obon Memorial"
 #### Part 1
 
 <p style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/obon-memorial-1-of-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/obon-memorial-1-of-2" target="_blank">Listen to this talk</a>
 </p>
 
 The topic tonight is about *Bon* celebration, which is one of the annual customs in Buddhism in Japan and China. 
@@ -110,7 +110,7 @@ I don't mean the experience of your enlightenment is bad. No. That's fine. But s
 #### Part 2
 
 <p style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/obon-memorial-part-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/obon-memorial-part-2" target="_blank">Listen to this talk</a>
 </p>
 
 ... the ten stages of Bodhisattva practice. Some are with all the assemblies as monks. Anyway, there are many monks there. 

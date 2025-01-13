@@ -11,7 +11,7 @@ title: "The Awakening of Faith: Two Kinds of Nowness"
 <p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/two-kinds-of-nowness" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/two-kinds-of-nowness" target="_blank">Listen to this talk</a>
 </p>
 
 

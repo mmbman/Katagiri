@@ -12,7 +12,7 @@ Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Pat
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 

@@ -12,7 +12,7 @@ title: "True Heart is Not Infatuation"
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/true-heart-is-not-infatuation" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/true-heart-is-not-infatuation" target="_blank">Listen to this talk</a>
 </p>
 
 

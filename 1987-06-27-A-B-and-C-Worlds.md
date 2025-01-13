@@ -12,7 +12,7 @@ title: "Genjokoan: A, B, and C Worlds"
 *(Archive issue: The conclusion of this talk seems to be missing.)*
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Listen to this talk</a>
 </p>
 
 

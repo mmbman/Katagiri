@@ -13,7 +13,7 @@ Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/buddhas-birthday" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/buddhas-birthday" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

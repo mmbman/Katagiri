@@ -12,7 +12,7 @@ Katagiri Roshi further explains *shikantaza*, or body and mind dropping off, fro
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-6" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-6" target="_blank">Listen to this talk</a>
 </p>
 
 

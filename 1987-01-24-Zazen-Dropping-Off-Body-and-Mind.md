@@ -9,7 +9,7 @@ title: "Zazen: Dropping Off Body and Mind"
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/zazen-dropping-off-body-and-mind" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/zazen-dropping-off-body-and-mind" target="_blank">Listen to this talk</a>
 </p>
 
 Nyojo Zenji (Tiantong Rujing), Dogen Zenji's teacher, mentioned that “sanzen is zazen.” Zazen is *shinjin datsuraku*, “body and mind casting off” or “casting off body and mind.” [...] This is the key point of our practice of meditation, the Zen meditation we do. So today I would like to say [something] about this.
@@ -74,7 +74,7 @@ So, that is the meaning of that koan. But here is the interesting sutra of Avalo
 
 So, *Avalokiteshvara* means to see the world and the world sees Avalokiteshvara. In other words, to see the world [and] to be seen by the world. This is the meaning of Avalokiteshvara. So, true reality, communication there, between the world and the human beings. And then, at that time, there is nothing to separate or analyze, like a paper and fire. There is a oneness, which is called compassion. 
 
-So true reality, which is going on between the world and Avalokiteshvara, is pretty compassionate. It is very compassionate: to support, to help, to sustain, to uphold. According to general Buddhism, it is called *dharma*. So the meaning of dharma is to support; [it is] something supporting, upholding. This is called dharma, or the truth. 
+So true reality, which is going on between the world and Avalokiteshvara, is [...] compassionate. It is very compassionate: to support, to help, to sustain, to uphold. According to general Buddhism, it is called *dharma*. So the meaning of dharma is to support; [it is] something supporting, upholding. This is called dharma, or the truth. 
 
 So, in the first paragraph, the *Lotus Sutra* mentions the reason why Avalokiteshvara is named as Avalokiteshvara. 
 

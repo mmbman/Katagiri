@@ -12,7 +12,7 @@ Katagiri Roshi further addresses the seeming contradiction that karma is both ou
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-conclusion" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/karma-conclusion" target="_blank">Listen to this talk</a>
 </p>
 
 

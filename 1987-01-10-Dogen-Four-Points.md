@@ -14,7 +14,7 @@ Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *
 #### Part 1
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-28006617" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-28006617" target="_blank">Listen to this talk</a>
 </p>
 
 Dogen Zenji's teaching may be explained in terms of four points. 
@@ -152,7 +152,7 @@ Today’s [talk is short], so maybe next time I will continue to [talk about thi
 #### Part 2
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-27448608" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-2-of-27448608" target="_blank">Listen to this talk</a>
 </p>
 
 ... *Shikan* means wholeheartedness, means manifestation of your life in simplicity. That is *shikan*. *One-pointedness*, we say. 

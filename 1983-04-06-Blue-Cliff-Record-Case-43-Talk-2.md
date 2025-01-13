@@ -16,7 +16,7 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 **Archive Issue:** The audio ends abruptly at 1:18:54.
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-2" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-43-lecture-2" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00

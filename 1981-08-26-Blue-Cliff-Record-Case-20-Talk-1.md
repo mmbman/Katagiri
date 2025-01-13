@@ -10,7 +10,7 @@ title: "Blue Cliff Record Case 20: Lung Ya’s Meaning of the Coming from the We
 **This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-20-lecture-1" target="_blank">Listen to this talk</a>
 </p>
 
 

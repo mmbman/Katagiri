@@ -12,7 +12,7 @@ Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This 
 ### Transcript
 
 <p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/platform-sutra-1-of-7" target="_blank">Listen to this talk on mnzencenter.org</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/platform-sutra-1-of-7" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00
