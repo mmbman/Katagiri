@@ -22,6 +22,14 @@ Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *
 
 ---
 
+##### Zazen: Entry to the Buddha Dharma
+
+*Coming soon.*
+
+(This talk is also part of the *Bendowa* series.)
+
+---
+
 ##### [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
 
 An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
