@@ -25,9 +25,9 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 [**Talk List**](list)
 
-Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
-
 Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+
+Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
 
 ## Latest Updates
 
