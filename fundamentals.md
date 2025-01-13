@@ -6,13 +6,13 @@ This is a collection of talks in which Katagiri Roshi discusses the fundamentals
 
 Topics covered include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (often translated as “practice”), *shikantaza* (“wholehearted sitting”),  *śūnyatā* or *kū* (“*emptiness*”), *shinjin datsuraku* (“dropping off body and mind”), *zenki* (“the whole works”), *compassion*, and *faith*.
 
-The talk “Introduction to Buddhism” actually concerns the meaning of the term *faith* in Buddhism. The word might be problematic for some, but *faith* is also fundamental in both Dogen and Katagiri’s teaching, so it’s important to understand what it means in the context of Zen.
+The talk “Introduction to Buddhism” actually concerns the meaning of the term *faith* in Buddhism. The word may be problematic for some, but *faith* is fundamental in both Dogen and Katagiri’s teaching, so it’s important to understand what it means in the context of Zen.
 
 ---
 
 ##### [Dogen: Four Points](1987-01-10-Dogen-Four-Points)
 
-Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*, or *zazen* as *practice*.
+Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This short talk focuses on *realization of impermanence* and the meaning of *shikantaza*, or *zazen* as practice.
 
 ---
 
