@@ -1,5 +1,5 @@
 ---
-title: "What is Buddhist Faith? (Introduction to Buddhism)"
+title: "What Is Buddhist Faith? (Introduction to Buddhism)"
 ---
 ## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 

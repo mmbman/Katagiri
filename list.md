@@ -236,7 +236,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 67
 1. *Blue Cliff Record* Case 68 Talk 1
 
-1. [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
+1. [What Is Buddhist Faith? (Introduction to Buddhism)](1985-06-22-Introduction-to-Buddhism)
 
 1. *Blue Cliff Record* Case 68 Talk 2
 1. *Blue Cliff Record* Case 69 Talk 1
