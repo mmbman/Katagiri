@@ -7,7 +7,7 @@ title: "Introduction to Buddhism"
 
 ### Summary
 
-An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
+An alternative title for this talk might have been, “What Is Buddhist Faith?” The word may be problematic for many, but what does *faith* actually mean in Zen Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
 
 ### Transcript
 
