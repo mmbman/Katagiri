@@ -12,11 +12,9 @@ Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *
 
 ---
 
-##### Zazen: Dropping Off Body and Mind
+##### [Zazen: Dropping Off Body and Mind](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
 
-Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dogen’s teaching. This is related to the meaning of *Avalokiteshvara* as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
-
-*Coming soon.*
+Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dogen’s teaching. This is related to the meaning of Avalokiteshvara as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
 
 ---
 

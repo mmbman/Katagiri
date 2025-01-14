@@ -380,7 +380,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 80 Talk 1
 1. *Blue Cliff Record* Case 80 Talk 2
 
-1. Zazen: Dropping off Body and Mind
+1. [Zazen: Dropping off Body and Mind](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
+
 1. Inconceivable, Universal, Cosmic Life
 
 1. *Blue Cliff Record* Case 81 Talk 1

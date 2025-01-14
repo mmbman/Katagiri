@@ -33,6 +33,8 @@ Please note that these transcripts are a continuing work in progress. Correction
 
 ## Latest Updates
 
+**January 14, 2025:** Posted [“Zazen: Dropping Off Body and Mind""](1987-01-24-Zazen-Dropping-Off-Body-and-Mind).
+
 **January 11, 2025:** Added the [“Fundamentals of Zen”](fundamentals) category.
 
 **January 7, 2025:** Posted [“Dogen: Four Points”](1987-01-10-Dogen-Four-Points).

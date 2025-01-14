@@ -3,11 +3,11 @@ title: "Zazen: Dropping Off Body and Mind"
 ---
 ## January 24, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Fundamentals](fundamentals)
+#### [List](list#1987) | [Previous](1987-01-10-Dogen-Four-Points) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Fundamentals](fundamentals)
 
 ### Summary
 
-Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dogen’s teaching. This is related to the meaning of *Avalokiteshvara* as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
+Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dogen’s teaching. This is related to the meaning of Avalokiteshvara as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
 
 ### Transcript
 
@@ -153,13 +153,13 @@ But if you penetrate gradually, again and again, it goes very slowly in your lif
 
 That’s why I mentioned, in the beginning, if you start to do zazen, you feel wonderful, because lots of excitement there. Because you can see the lightning and thunder, which you have never experienced. It’s wonderful! Then, when you go gradually, deeply into Zen practice – finally you are very confused. Because something is sneaking in, *invading* you, very slowly. Very slowly. Kind of, you know, [...] squeezing your neck like a jellyfish. *[Laughter.]* You don’t notice it, but actually it’s really something, you know, [suffocating you]. So you say, finally, “Please!” *[He laughs.]* Okay? So that is very difficult. But you have to go through. 
 
-And if you go through, in the middle of Zen Buddhism, then you can see many things. And also, something sneaking in, invading your life, that’s pretty hard to stay with. But if you go through it, that something sneaking into your life turns into [...] effort, great energies. Okay? Believe me. If you don’t believe me, please believe Buddha. *[He laughs.]* It’s exactly great energies. Because energy is just like that. Energy is coming up. That’s why energy or human effort is just like spring water coming from the ground. Okay? 
+And if you go through, in the middle of Zen Buddhism, then you can see many things. And also, something sneaking in, invading your life, that’s pretty hard to stay with. But if you go through it, that something sneaking into your life turns into [...] effort, great energies. Okay? Believe me. If you don’t believe me, please believe Buddha. *[He laughs.]* It’s *exactly* great energies. Because energy is just like that; energy is coming up. That’s why energy or human effort is just like spring water coming from the ground.
 
-Because true reality is structured by the emptiness. Structure of the world is kind of, you know, the blueprint. You have to live in the structure of the world. Okay? At that time, that is called true reality. At that time you don’t know what’s going on there. But you have to be there. 
+Because true reality is structured by emptiness. [The] structure of the world is kind of [like] the blueprint: you have to live in the structure of the world. At that time, that is called true reality. At that time, you don’t know what’s going on there. But you have to be there. 
 
-And also, you have to be there because you are looking for that point. That’s why you sit down. Okay? 
+And also, you have to be there because you are looking for that point. That’s why you sit down.
 
-Usually we are always involved in intellectual understanding. That is important as a blueprint. It is important, but it’s very difficult to taste true reality, which is going on as a flow activity, flow process of life. So, that’s why practice is very important. Zazen is really [the] essence of our practice, [the] basic essence, basic practice for us. That’s why zazen is very important for us. 
+Usually we are always involved in intellectual understanding. That is important, as a blueprint. It is important, but it’s very difficult to taste true reality, which is going on as a flow activity, flow process of life. So, that’s why practice is very important. Zazen is really [the] essence of our practice, [the] basic essence, basic practice for us. That’s why zazen is very important for us. 
 
 Alright. That is called “zazen is casting off or dropping off the body and mind.” Body and mind is [zazen], and the dropping off body and mind is zazen.
 
@@ -167,25 +167,29 @@ Is there a question?
 
 #### 51:02
 
-**Question:** Roshi? In the beginning, you talked about *sanzen* and *zazen*. Linguistically, is *san* a different etymological meaning than *za*? *Za* is “sit,” a Chinese word, right? And *san* is what? 
+**Question:** Roshi? In the beginning, you talked about *sanzen* and *zazen*. Linguistically, is *san* a different etymological meaning than *za*? *Za* is “sit,” a Chinese word, right? 
+
+**Katagiri Roshi:** Yes.
+
+**Questioner:** And *san* is what? 
 
 **Katagiri Roshi:** *San* is to surrender. 
 
-**Same person:** [The] first meaning.
+**Questioner:** [The] first meaning.
 
-**Katagiri Roshi:** Yes. Or, *san* of *san zen* is “to surrender” or “submit.”
+**Katagiri Roshi:** Yes. The *san* of *san zen* is “to surrender” or “submit.”
 
-**Same person:** Thank you.
+**Questioner:** Thank you.
 
-**Katagiri Roshi:** ... or “to visit,” actually. To visit, okay? *[They laugh.]* 
+**Katagiri Roshi:** ... or “to visit,” actually. To visit. Okay? *[They laugh.]* You cannot visit objectively. If you want to visit, your body and mind must be there. That is called *surrender*. You have to surrender yourself to, otherwise you cannot visit. Okay? 
 
-You cannot visit objectively. If you want to visit, your body and mind must be there. That is called *surrender*. You have to surrender yourself to, otherwise you cannot visit. Okay? 
+So, that is the *san*. *Zen*, linguistically, that is “to manifest simplicity.” So that’s why “to submit yourself to the simplicity or tranquility,” that is *sanzen*. What *is* it? This is *zazen*. 
 
-So, that is the *san*. *Zen*, linguistically, that is to manifest simplicity. So that’s why “to submit yourself to the simplicity or tranquility,” that is *sanzen*. What is it? This is *zazen*. 
+To submit yourself to simplicity is simultaneously casting off, dropping off your body and mind. In other words, *free from*, you know, many, many sufferings. We don’t believe it! But this is true. 
 
-To submit yourself to simplicity is simultaneously [...] casting off, dropping off your body and mind. In other words, free from, you know, many, many sufferings. We don’t believe it! But this is true. 
+If you don’t understand, remember the example [of] flow energy between the paper and fire. Okay? Flow energy, flow activities, between. Right in the middle of flow activity of the paper and fire, is there something you can separate, you can analyze? No. 
 
-If you don’t understand, remember the example [of] flow energy between the paper and fire. Okay? Flow energy, flow activities, between. Right in the middle of flow activity of the paper and fire, is there something you can separate you can analyze? No. This is [the] zazen we do. So-called *shikan*, whole-heartedness. 
+This *is* [the] zazen we do. So-called *shikan*: whole-heartedness. 
 
 Any other questions? 
 
@@ -193,21 +197,23 @@ Any other questions?
 
 **Question:** If we drop off body and mind, where do they go? 
 
-**Katagiri Roshi:** Nowhere. Just be there. 
+**Katagiri Roshi:** Nowhere. 
+
+Nowhere. Just be there. 
 
 Do you understand? 
 
-**Same person:** *[A little.]*
+**Questioner:** [A little.]
 
-**Katagiri Roshi:** After dropping... *[He laughs.]* After dropping off body and mind is... where is the dropping off the body and mind? Is it somewhere separate from you? Outside from you, or inside of you? Or between? Where is it? 
+**Katagiri Roshi:** After dropping... *[He laughs.]* After dropping off body and mind [...], where is the dropping off the body and mind? Is it somewhere separate from you? Outside from you, or inside of you? Or between? Where is it? 
 
-There is no particular thing objectively you can see, or there is no particular thing seen objectively as subject, subjective. While you can see the something subjective or objective, that is the world of conceptualization you can see. But you don’t believe actually, but if you really devote yourself as a practice, you do it. 
+There is no particular thing objectively you can see, or there is no particular thing seen objectively as subject (or subjective). While you can see the something subjective or objective, that is the world of conceptualization you can see. You don’t believe [it] actually, but if you really devote yourself as a practice, you do it!
 
-If you don’t believe, I always mention that book, *[he laughs,]* “Flow Experience”? (The book is *Beyond Boredom and Anxiety*; the updated version is titled *Flow*.) You know, the mountain climbers, football players... look at those people who are exactly participating in the practice, action itself. Where is dropping off the body and the mind? Your body and mind is really flexible. There is no frame of your body and the mind right in the middle of flow practice of playing football. No! If you see [it] even slightly, you will be hurt. You cannot play football [that way].
+If you don’t believe, I always mention that book, *[he laughs,]* “Flow Experience,” you know? (The book is *Beyond Boredom and Anxiety*; the current updated version is titled *Flow: The Psychology of Optimal Experience*.) You know, the mountain climbers, football players... look at those people who are exactly participating in the practice, action itself. Where is dropping off the body and the mind? Your body and mind is really flexible. There is no frame of your body and the mind right in the middle of flow practice of playing football. No! If you see [it] even slightly, you will be *hurt*. You cannot play football [that way].
 
 So you don’t see yourself particularly as a subject, you don’t see something objective, so-called ball. No, you cannot see. But there is something: ball and you communicate totally, right in the middle of flow practice of playing football.
 
-Without this, you cannot see *any* development, any progress. If you see the progress, and then, where are we heading for? Nowhere. All you have to do is just, you have to be right in the middle of flow process, flow progress. That’s it. Every moment you have to do it. No other place. 
+Without this, you cannot see *any* development, any progress. If you see the progress, and then, where are you heading for? Nowhere. All you have to do is just, you have to be right in the middle of flow progress. That’s it. Every moment you have to do it. No other place. 
 
 Any other questions? 
 
@@ -217,31 +223,31 @@ Any other questions?
 
 **Katagiri Roshi:** Because you have a consciousness. 
 
-Because your consciousness is vibrated. Okay? 
+Because your consciousness is “vibrated.” Okay? *[He laughs a little.]*
 
-**Same person:** Okay.
+**Questioner:** Okay...
 
 **Katagiri Roshi:** Vibration of your consciousness means to separate. Vibration of consciousness means to know something. To know something is to dichotomize. Okay? 
 
-**Same person:** Okay. Is there something about the process of conceptualization that is necessary? 
+**Questioner:** Uh-huh. Is there something about the process of conceptualization that is necessary? 
 
-**Katagiri Roshi:** Yeah, a process there. [...] Procedure, how to conceptualize. You can practice, you can study psychology and philosophies. They always give you how your consciousness conceptualize the world. 
+**Katagiri Roshi:** Yeah, a process there. [...] Procedure, how to conceptualize. You can practice, you can study psychology and philosophy; they always give you how your consciousness conceptualizes the world. 
 
-**Same person:** Yeah, that wasn’t really my question though. I was wondering if there was something about the process of conceptualization that was *necessary* or important to being able to be in the flow process. 
+**Questioner:** Yeah, that wasn’t really my question though. I was wondering if there was something about the process of conceptualization that was *necessary* or important to being able to be in the flow process. 
 
 **Katagiri Roshi:** Mm-hmm. Yes. 
 
 So that’s why you have to see the depth of conceptualization, what is the root of conceptualization you built up. We have to see. That’s why Avalokiteshvara has to see deeply the world. Okay? 
 
-**Same person:** ... Deeply the *word*? 
+**Questioner:** ... “Deeply the *word*”? 
 
 **Katagiri Roshi:** The *world*. And then you can hear the sound. That is the root of the conceptualization. 
 
-**Same person:** Okay.
+**Questioner:** Okay.
 
-**Katagiri Roshi:** [...] In other words... Experientially, I think, through the conceptualization of the world, people are suffocated to death and choked. It’s not pain. It’s not pleasure. But it is not unpleasure. [...] Something. But we are choked. *[He laughs.]* Then finally, we say, “Please.” 
+**Katagiri Roshi:** In other words... Experientially, I think, through the conceptualization of the world, people are suffocated to death and choked. It’s not “pain.” It’s not “pleasure.” But it is not *unpleasure*. [...] Something. But we are choked. *[He laughs.]* Then finally, we say, “Please.” 
 
-**Same person:** Too much of a good thing?
+**Questioner:** Too much of a good thing?
 
 **Katagiri Roshi:** Mm-hmm! So that’s why we want to get it. 
 
@@ -251,45 +257,45 @@ So that’s why you have to see the depth of conceptualization, what is the root
 
 **Katagiri Roshi:** Huh? I beg your pardon? 
 
-**Same person:** You described *sanzen*, *zazen*, or practice as calling on Avalokiteshvara. 
+**Questioner:** You described *sanzen*, *zazen*, or practice as calling on Avalokiteshvara. 
 
-**Katagiri Roshi:** No. That is if you see [...] the meaning of *zazen*, the meaning of the *quality* of zazen, very naturally there is Avalokiteshvara coming up. You know? 
+**Katagiri Roshi:** No. That is if you see [...] the meaning of *zazen*, [...] the *quality* of zazen, very naturally there is Avalokiteshvara coming up. You know? 
 
-So *quality* of zazen is pretty rich. There is compassion, and also looking at yourself very deeply, looking at the world very deeply; many things there. That’s why I mentioned Avalokiteshvara. It’s not something different. 
+So the *quality* of zazen is pretty rich. There is compassion, and also looking at yourself very deeply, looking at the world very deeply. Many things there. That’s why I mentioned Avalokiteshvara. It’s not something different. 
 
-**Same person:** So my question is, in other schools they have a practice of calling on Avalokiteshvara, or *nembutsu*. 
+**Questioner:** So my question is, in other schools they have a practice of calling on Avalokiteshvara, or *nembutsu*. 
 
 **Katagiri Roshi:** Mm-hmm.
 
-**Same person:** But (in this tradition) we say that’s not necessary. That’s what Dogen says, [that] it’s not necessary, isn’t it?
+**Questioner:** But (in this tradition) we say that’s not necessary. That’s what Dogen says, [that] it’s not necessary, isn’t it?
 
-**Katagiri Roshi:** Well, we cannot say it’s *not* necessary. *[He laughs.]* We cannot say it’s not necessary, but we cannot say it’s *necessary*. 
+**Katagiri Roshi:** Well, we cannot say it’s *not* necessary. *[He laughs.]* We cannot say it’s *not* necessary... but we cannot say it’s *necessary*. 
 
-**Same person:** Why don’t we do it? 
+**Questioner:** Why don’t we do it? 
 
-**Katagiri Roshi:** That’s why we sit! Sitting is a front gate. Okay? There is always a front gate. But around the house, there are many gates to get in: from the side, from the back door. Just like Zen Center: you have to go in from the back side, you know? *[Laughter.]* But still front gate there, and also side gate there. Outside porch, you know? You can get in. Or you can get in from the window... *[Laughter.]* Or you can get in from the upstairs, climbing [in from that] porch, you know? So there are many ways to get in. But there is a front gate, anyway. So the front gate is very simple practice. Simple. That’s it. 
+**Katagiri Roshi:** That’s why we sit! Sitting is a front gate. Okay? 
 
-So, then, if you see, simple means, I think, the *nembutsu*. You say that that is a side gate. I’m not criticizing the side gate, okay? Back gate, or the side, it doesn’t matter. But if you see [...] the side gate, so-called *nembutsu*: what is the point, the real point of *nembutsu*? What you should do? Should you always see the beautiful face of Amitabha, you know, with the light giving forth, and painted with gold? Or, [saying] “Amitabha is always helping me,” or imagining Amitabha’s world, paradise? Whatever you can imagine, it is a blueprint of Amitabha. What do you have to do? Anyway, build the Amitabha, okay? So you can be the carpenter, so-called building up Amitabha’s world. That is *Gokuraku*, paradise. But finally, what you have to do is *to live there*. What do I mean? Just, *nembutsu*. So, right in the middle of real reality, between the *nembutsu* and you, there is nothing to [put a] name on it, so-called name of *Amitabha*, so-called *prayer*, so-called *person who prays*. No. So what is it? Exactly simple. Manifesting simplicity in life, this is called *shikan*. So finally you can go back to the source. *Zazen*. That’s it.
+There is always a front gate. But around the house, there are many gates to get in: from the side, from the back door... Just like Zen Center: you have to go in from the back side, you know? *[Laughter.]* But still front gate there, and also side gate there. Outside porch, you know? You can get in. Or you can get in from the window... *[Laughter.]* Or you can get in from the upstairs, climbing [up to that] porch, you know? So there are many ways to get in. But there is a front gate, anyway. So the front gate is a very simple practice, simple. That’s it. 
+
+Then [...] \[if] you say *nembutsu*, that is a side gate. I’m not criticizing the side gate, okay? Back gate, or the side, it doesn’t matter. But if you [look at] the side gate, so-called *nembutsu*: what is the point, the real point of *nembutsu*? What should you do? Should you always see the beautiful face of Amitabha, you know, with the light giving forth, and painted with gold? Or, [saying] “Amitabha is always helping me,” or imagining Amitabha’s world, paradise? Whatever you can imagine, it is a blueprint of Amitabha. What do you have to do? Anyway, build the Amitabha. Okay? So you can be the carpenter, so-called building up Amitabha’s world: that is *Gokuraku*, paradise. But finally, what you have to do is *to live there*. What do I mean? Just, *nembutsu*. So, right in the middle of *real* reality, between the *nembutsu* and you there is nothing to [put a] name on, so-called name of *Amitabha*, so-called *prayer*, so-called *person who prays*. No. So what is it? Exactly simple. Manifesting simplicity in life. This is called *shikan*. So finally, you can go back to the source: *zazen*. That’s it.
 
 Is that okay? 
 
-**Same person:** No.
+**Questioner:** No.
 
 **Katagiri Roshi:** No?
 
-**Same person:** Why only offer the front gate? If there is nothing wrong with other gates, then why only offer the front gate? 
+**Questioner:** Why only offer the front gate? If there is nothing wrong with the other gates, then why only offer the front gate? 
 
-**Katagiri Roshi:** No, nothing wrong... nothing *right*. Nothing wrong, nothing right. But all things come back to that source. That’s it. That source is temporarily called *front gate*, because people don’t understand it. That source is really vast. 
+**Katagiri Roshi:** No, nothing wrong, nothing *right*. Nothing wrong, nothing right. But all things come back to that source. That’s it. That source is temporarily called *front gate*, because people don’t understand it. That source is really vast. 
 
-Just like [...] children’s play. Scissor and rock and paper. But actually children’s play is whatever: it’s no name of *scissor*, no name of *paper*, no name of *rock*. That is the true reality of the world. Nothing to name. But if there is nothing, it’s very difficult for children to play! So temporarily let’s [put a] name on it, so-called paper, so-called scissor, so-called rock. And then we enjoy. 
+Just like [...] children’s play. Scissor and rock and paper. But actually children’s play is whatever: it’s no name of *scissor*, no name of *paper*, no name of *rock*. That is the true reality of the world. Nothing to name. But if there is nothing, it’s very difficult for children to play! So temporarily let’s [put a] name on it, so-called *paper*, so-called *scissor*, so-called *rock*. And then we enjoy. 
 
-So we [put a] name on it: front gate, side gate, back gate. And then we play, we enjoy very much. And then finally, we forget [the] front gate, *[he laughs,]* if you play with back gate. 
+So we [put a] name on it: front gate, side gate, back gate. And then we play, we enjoy very much. And then finally, we forget [the] front gate, *[he laughs,]* if you play with the back gate. Okay? 
 
-Okay? 
+**Questioner:** I don’t understand [the last thing you said].
 
-**Same person:** I don’t understand *[unintelligible]*.
-
-**Katagiri Roshi:** Well, if we [are] always enjoying with the back door, we completely forget the front gate. 
+**Katagiri Roshi:** Well, if we are always enjoying with the back door, we completely forget the front gate. 
 
 But, never mind. *[A couple people laugh.]*
 
@@ -299,7 +305,7 @@ Any other question?
 
 **Question:** Is it a problem to forget the front gate? 
 
-**Katagiri Roshi:** Well, actually you cannot forget it, because you are already standing in the front gate, so regardless of whether you forget or not, sooner or later you go back to the front gate. But I don’t think you should take a *long, long time* to go back to the front gate! *[Laughter.]* As soon as possible, the sooner the better. *[He laughs.]* Because life is not so long. Do you understand? 
+**Katagiri Roshi:** Well, actually you cannot forget it, because you are already standing in the front gate, so regardless of whether you forget or not, sooner or later you go back to the front gate. But, I don’t think you should take a *long, long time* to go back to the front gate! *[Laughter.]* As soon as possible, the sooner the better. *[He laughs.]* Because life is not so long. Do you understand? 
 
 On the other hand, life is *so long*. *[Laughter.]*
 
@@ -313,19 +319,25 @@ On the other hand, life is *so long*. *[Laughter.]*
 
 **Someone:** The squid. *[Laughter.]*
 
-**Katagiri Roshi:** Oh. *Squeeze.*
+**Someone:** Jellyfish.
 
-Well, that is... How can I say? Well, *[he chuckles]*, if you see the world very deeply, I think you can see the something more than the world usual people have understood. Okay? And then, whatever it is, we don’t understand *yet* what it is. But if you see something deeply, it is a kind of a beautiful peak of the mountains. Far from us. But spiritually, we don’t see the particular peak. But if you see the mountain, you can see the beautiful peak. And then everyone looks at that. If you see that beautiful peak, you really want to climb and reach it. But spiritually, if you see it, we don’t know what it is, but it is something like a beautiful peak. and then, we try to climb. Okay? So that climb, the more you climb, the more you feel the peak is far from us. But practically speaking, the peak is *very close* to you. That’s why you see the peak and try to climb, to reach. Do you understand? But the more you climb, the more you try to reach that peak, the more the peak seems to be far from you. But [it’s] actually not far from you, it’s very close to you. That’s why you want to climb. 
+**Katagiri Roshi:** Oh. The *squeeze.*
 
-So, [it’s a] little bit complicated situation, contradictory. You feel very close, practically, you *taste* it. What is the depth of human world? What is the sound of the world? There is a beautiful peak. It’s very close with you, that’s why you want to get it. The more you try to get it, the more that peak is far from us. And then, finally we don’t know what to do. Then we completely lose our sight. Then people are confused. 
+Well, that is... How can I say? Well, *[he chuckles]*, if you see the world very deeply, I think you can see something more than the world usual people have understood. Okay? And then, whatever it is, we don’t understand *yet* what it is, but if you see something *deeply*, it is a kind of a beautiful peak of the mountains, far from us. But spiritually, we don’t see the particular peak. But if you see the mountain, you can see the beautiful peak, and then everyone looks at that. If you see that beautiful peak, you really want to climb and reach it. Spiritually, if you see it, we don’t know what it is, but it is something like a beautiful peak, and then, we try to climb. Okay? The more you climb, the more you feel “the peak is far from us.” But practically speaking, the peak is *very close* to you. That’s why you see the peak and try to climb, to reach. Do you understand? The more you climb, the more you try to reach that peak, the more the peak seems to be far from you. But [it’s] actually not far from you, it’s very close to you. That’s why you want to climb. 
 
-At that time, I say, more or less, it is called very basic human suffering. “I want to get it,” because it’s very close to me. But the more you try to do it, practically, it seems to be far from us. That’s why there is always some very basic human suffering. That suffering is called “to squeeze your neck with a jellyfish,” kind of like that. It’s not comfortable, but it’s not uncomfortable. Something there. 
+So, [it’s a] little bit complicated situation, contradictory. You feel very close, practically, you *taste* it. What is the depth of the human world? What is the sound of the world? That is a beautiful peak. It’s very close with you, that’s why you want to get it. The more you try to get it, the more that that peak is far from us. And then, finally, we don’t know what to do. Then we completely lose our sight. Then people are confused. 
 
-**Someone:** Hojo-san, when you go through that, you reach the energy? 
+At that time, I say, more or less, it is called very basic human suffering. “I want to get it, because it’s very close to me.” But the more you try to do it, practically, it seems to be far from us. That’s why there is always some very basic human suffering. That suffering is called “to squeeze your neck with a jellyfish,” kind of like that. It’s not comfortable, but it’s not uncomfortable. [There’s] something there. 
 
-**Katagiri Roshi:** Yes. If you go through that, you can become great laughter. That’s why, if you read the Zen stories, you know, Yakusan Zen Master laughed one night, and then the world of 40 square miles, you know, the whole world is shaking. *[Laughter.]* It seems to be ridiculous, but this is trying to explain how great laughter is. Laughter means you can really taste that point. 
+**Someone:** Hojo-san, when you go through that, do you reach the energy? 
 
-So, that’s why human suffering, basic human suffering, suffering means *unsatisfactoriness*. Always there [is] unsatisfactoriness. That is not something wrong, but not something comfortable. But it is totally true. That’s why we say “Noble Truth”. Okay.
+**Katagiri Roshi:** Yes. If you go through that, you can become great laughter. 
+
+That’s why, if you read the Zen stories, you know, Yakusan Zen Master laughed one night, and then the world of 40 square miles, you know, the whole world is shaking. *[Laughter.]* It seems to be ridiculous, but this is trying to explain how great laughter is. Laughter means you can really taste that point. 
+
+So, that’s why human suffering, basic human suffering, “suffering” means *unsatisfactoriness*. Always there [is] unsatisfactoriness. That is not something wrong, but not something comfortable. But it is totally true. That’s why we say “Noble Truth”.
+
+Okay.
 
 #### 1:13:53 end of recording
 
@@ -333,4 +345,4 @@ So, that’s why human suffering, basic human suffering, suffering means *unsati
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Fundamentals](fundamentals)
+#### [List](list#1987) | [Previous](1987-01-10-Dogen-Four-Points) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Fundamentals](fundamentals)
