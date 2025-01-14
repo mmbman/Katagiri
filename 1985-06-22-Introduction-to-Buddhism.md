@@ -33,9 +33,7 @@ From this point, Buddhist faith is to know there is nothing to believe in. Nothi
 
 So what is Buddhist faith? If you want to know the definition of Buddhist faith, Buddhist faith is to believe there is nothing to know, to believe in the human situation where you are standing in completely nothing to know. This is Buddhist faith: nothing to know. 
 
-#### 4:50
-
-But it is very difficult for human beings to believe in nothing to know. That’s why the many religions try to give you some ideas: so-called ‘god’, divinity, or angels, and ghosts, and many things. Do you understand? [Telepathy], and many things. So whatever kind of term you use – divinity, and God, Buddhas, Avalokiteshvara, or ghosts, and spirituality – whatever you say, whatever kind of words you use, you should consider them once again. What do you mean? What is a ‘god’? What is a ‘divinity’? What is a ‘buddha’? What is the truth? What *is* it? Can’t you know it? 
+But it is very difficult for human beings to believe in *nothing to know*. That’s why the many religions try to give you some ideas: so-called ‘God’, divinity, or angels, and ghosts, and many things. Do you understand? [Telepathy], and many things. So whatever kind of term you use – divinity, and God, Buddhas, Avalokiteshvara, or ghosts, and spirituality – whatever you say, whatever kind of words you use, you should consider them once again. What do you mean? What is a ‘god’? What is a ‘divinity’? What is a ‘buddha’? What is the truth? What *is* it? Can you know it? 
 
 If you don’t believe me, please go to a church and ask about God. Even the ministers, priests – no priest will try to explain what God is. Nothing. What is God? Or truth? What is the truth? 
 
