@@ -16,7 +16,7 @@ These transcripts are in early rough draft state. This page is not meant to be p
 ### 1987
 
 - [Zazen: Dropping Off Body and Mind](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
-- [Zazen: Entry to the Buddha Dharma](1987-03-07-Bendowa-Zazen-Entry-to-the-Buddha-Dharma)
+- [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 - [Prajna Paramita and Emptiness](1987-05-02-Prajna-Paramita-and-Emptiness)
 - [Obon Memorial](1987-07-15-Obon-Memorial)
 
