@@ -16,7 +16,7 @@ title: "Zazen: Entry to the Buddha Dharma"
 
 #### 0:00
 
-**Katagiri Roshi:** During the training session starting this week we study question and answer which occurs toward the end of Bendowa written by Dogen. 
+**Katagiri Roshi:** During the training session starting this week we [will] study the questions and answers which occur toward the end of *Bendowa*, written by Dogen. 
 
 The first question, second question, Dogen Zenji mentions how important zazen or Zen meditation is. First question is,
 
@@ -44,7 +44,7 @@ The answer is,
 
 > the great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the way. Also, the totalities of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That is not all. Patriots from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore, I now point it out to men and devas as the right entrance. 
 
-So this answer is very interesting. The question number two is, why is it alone, why is zazen alone the right entrance? The answer is the great, tender Shakyamuni Buddha beyond doubt...  beyond doubt Shakyamuni Buddha and ancestors, many Buddhas, transmitted the wonderful means for attaining the way. Also, the totalities of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt. Anyway, Buddha Shakyamuni and many Buddhas ancestors just accept this practice of Zazen and learn what the Buddha's teaching is, what the universe is, what the peaceful life is. That’s why it is called right entrance. Right entrance to the Buddha Dharma, to the universe. Right entrance to get into the peaceful world. 
+So this answer is very interesting. The question number two is, why is zazen alone the right entrance? The answer is the great, tender Shakyamuni Buddha beyond doubt...  beyond doubt Shakyamuni Buddha and ancestors, many Buddhas, transmitted the wonderful means for attaining the way. Also, the totalities of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt. Anyway, Buddha Shakyamuni and many Buddhas ancestors just accept this practice of Zazen and learn what the Buddha's teaching is, what the universe is, what the peaceful life is. That’s why it is called right entrance. Right entrance to the Buddha Dharma, to the universe. Right entrance to get into the peaceful world. 
 
 So in this case, I think the most important point is, in Zen Buddhism particularly, Dogen Zenji mentioned about right entrance. *Right* means that you have to learn something straightforward without, how can I say, artifice or design, without intention or purposes. 
 
@@ -236,7 +236,7 @@ Finally. But usually through this spiritual life, you don't believe this. But cl
 
 **Questioner:** The one that costs $25? *[Laughter.]*
 
-**Katagiri Roshi:** [*Beyond Boredom and Anxiety*.] (The replacement is *Flow*, by Mihaly Csikszentmihalyi.) You can read that book, pretty interesting book. It's pretty close to Zen teaching – not exactly, but it doesn't matter, you know? It's very interesting. Twenty-five dollars. *[Laughter.]*
+**Katagiri Roshi:** [*Beyond Boredom and Anxiety*.] (The updated version is *Flow: The Psychology of Optimal Experience*, by Mihaly Csikszentmihalyi.) You can read that book, pretty interesting book. It's pretty close to Zen teaching – not exactly, but it doesn't matter, you know? It's very interesting. Twenty-five dollars. *[Laughter.]*
 
 **Someone:** You can get it in the library.
 
@@ -264,9 +264,9 @@ Any other?
 
 #### 58:29
 
-**Question:** I have one. When you say “zazen is the way,” by *zazen*, do you mean sitting in a zendo regularly, or something ... in general, by that? (*Transcriber’s Note:* Unfortunately, it seems that Katagiri Roshi didn’t hear the second part of the question.)
+**Question:** I have one. When you say “zazen is the way,” by *zazen*, do you mean sitting in a zendo regularly, or something ... in general, by that? 
 
-**Katagiri Roshi:** Well, regularly, that is the best way. Regularly on the daily basis, that is kind of making fire by rubbing the two trees or two branches. If you stop it, you miss the chance to make fire. So on the daily basis, this is pretty nice. But still, it is difficult according to the individual circumstances. 
+**Katagiri Roshi:** Well, regularly, that is the best way. Regularly on the daily basis, that is kind of making fire by rubbing the two trees or two branches. If you stop it, you miss the chance to make fire. So on the daily basis, this is pretty nice. But still, it is difficult according to the individual circumstances. (*Transcriber’s Note:* It seems that Katagiri Roshi didn’t hear the second part of the question.)
 
 **Questioner:** But essentially, you see that it should be with the group and with the teacher, as opposed to in some... less structured way. 
 
