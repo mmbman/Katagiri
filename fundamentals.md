@@ -2,7 +2,7 @@
 title: "Fundamentals of Zen"
 ---
 
-This is a collection of talks in which Katagiri Roshi discusses the fundamentals of Buddhist practice, particularly those of Eihei Dogen, the 13th century founder of Soto Zen in Japan. Topics include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (often translated as “practice”), *shikantaza* (“wholehearted sitting”),  *śūnyatā* or *kū* (“emptiness”), *suffering*, *compassion*, and *faith*. The talks listed here might serve as an entry point into the study of Dogen and the practice of Zen. 
+This is a collection of talks in which Katagiri Roshi discusses the fundamentals of Buddhist practice, particularly those of Eihei Dogen, the 13th century founder of Soto Zen in Japan. Topics include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (often translated as “practice”), *shikantaza* (“wholehearted sitting”),  *śūnyatā* or *kū* (“emptiness”), *suffering*, *compassion*, and *faith*. The talks listed here serve well as an entry point into Katagiri Roshi’s teaching and the practice of Zen. 
 
 ---
 
@@ -34,7 +34,7 @@ Katagiri Roshi discusses the meaning of the phrases “*sanzen* is *zazen*” an
 
 ---
 
-##### [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
+##### [What is Buddhist Faith?](1985-06-22-Introduction-to-Buddhism)
 
-An alternative title for this talk might have been, “What Is Buddhist Faith?” The word may be problematic for many, but what does *faith* actually mean in Zen Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
+The word may be problematic for some, but what does *faith* actually mean in Zen Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
 

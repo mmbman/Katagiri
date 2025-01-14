@@ -1,5 +1,5 @@
 ---
-title: "Introduction to Buddhism"
+title: "What is Buddhist Faith? (Introduction to Buddhism)"
 ---
 ## June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
 
@@ -7,7 +7,7 @@ title: "Introduction to Buddhism"
 
 ### Summary
 
-An alternative title for this talk might have been, “What Is Buddhist Faith?” The word may be problematic for many, but what does *faith* actually mean in Zen Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles.
+The word may be problematic for some, but what does *faith* actually mean in Zen Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
 
 ### Transcript
 
@@ -15,7 +15,7 @@ An alternative title for this talk might have been, “What Is Buddhist Faith?�
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk</a>
 </p>
 
-(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is actually talking about is the meaning of faith within Buddhism, which is something else. It seems very likely that he is simply adding an extraneous “the” to “Buddhist faith,” so I have omitted the word “the” in most cases. However, “the Buddhist faith” might also work in some cases.)
+(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might assume he is discussing “faith” in the sense of “a system of religious belief.” But what he is talking about is the meaning of faith within Buddhism, which is something else. It seems likely that he is simply adding an extraneous “the” to “Buddhist faith,” so I have omitted the word “the” in most cases. However, “the Buddhist faith” might also work in some cases.)
 
 #### 0:00
 

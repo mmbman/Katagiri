@@ -8,6 +8,8 @@ title: "Zazen: Entry to the Buddha Dharma"
 
 ### Transcript
 
+<p align="center"><b>This transcript is in draft stage.</b></p>
+
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/zazen-entry-to-the-buddha-dharma" target="_blank">Listen to this talk</a>
 </p>

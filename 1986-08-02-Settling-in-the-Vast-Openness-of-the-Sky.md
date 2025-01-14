@@ -7,7 +7,7 @@ title: "Settling in the Vast Openness of the Sky"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/settling-in-the-vast-openness-of-the-sky" target="_blank">Listen to this talk</a>
