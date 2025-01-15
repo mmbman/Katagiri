@@ -2,7 +2,7 @@
 title: "Fundamentals of Zen"
 ---
 
-This is a collection of talks in which Katagiri Roshi discusses the fundamentals of Buddhist practice, particularly those of Eihei Dogen, the 13th century founder of Soto Zen in Japan. Topics include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (often translated as “practice”), *shikantaza* (“wholehearted sitting”),  *śūnyatā* or *kū* (“emptiness”), *suffering*, *compassion*, and *faith*. The talks listed here would serve well as an entry point into Katagiri Roshi’s teaching. 
+This is a collection of talks in which Katagiri Roshi discusses the fundamentals of Buddhist practice, particularly those of Eihei Dogen, the 13th century founder of Soto Zen in Japan. Topics include the deeper meanings of the terms *zazen* (“sitting meditation”), *sanzen* (often translated as “practice”), *shikantaza* (“wholehearted sitting”),  *śūnyatā* or *kū* (“emptiness”), and also *suffering*, *compassion*, and *faith*. The talks listed here would serve well as an entry point into Katagiri Roshi’s teaching. 
 
 ---
 
