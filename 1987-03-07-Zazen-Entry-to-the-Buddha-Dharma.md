@@ -16,103 +16,117 @@ title: "Zazen: Entry to the Buddha Dharma"
 
 #### 0:00
 
-**Katagiri Roshi:** During the training session starting this week we [will] study the questions and answers which occur toward the end of *Bendowa*, written by Dogen. 
+**Katagiri Roshi:** During this training session starting this week we [will] study the questions and answers which occur toward the end of *Bendowa*, written by Dogen. In the first question and second question, Dogen Zenji mentions how important zazen or Zen meditation is. First question is:
 
-The first question, second question, Dogen Zenji mentions how important zazen or Zen meditation is. First question is,
+> Now I have heard and understand the sublime merits of Zazen...
 
-> Now I have heard and understand the sublime merits of Zazen... 
+Before this question and answer Dogen Zenji [talks about] the sublimity of the practice of Zazen. So that's why he says, “Now I have heard and understand the sublime merits of Zazen...”
 
-Before this question and answer Dogen Zenji mentions the sublimity of the practice of Zazen. So that's why he says now I have heard and understand the sublime merits of Zazen. 
+> However, an unthinking person might have doubts and say, “There are many entrances to the Buddha Dharma, ...”
 
-> However, an unthinking person might have doubts and say, there are many entrances to the Buddha Dharma...
-
- many entrances to the Buddha's world or spiritual world or universal world whatever you say. There are many ways. 
+Many entrances to the Buddha's world, or spiritual world, or universal world, whatever you say. There are many ways. 
  
-> ... What is the reason for your advocacy of zazen alone? 
+> “... what is the reason for your advocacy of zazen alone?”
 
-So the answer is:
+So the answer is,
 
-> Because it is right entrance to the Buddha Dharma. 
+> Because it is [the] right entrance to the Buddha Dharma. 
 
-Here it says, the reason is why we have to practice Zazen first as sublimity of practicing and studying Buddha's teaching. It is because it is right entrance to the Buddha Dharma, right entrance. 
+Here it says the reason [...] why we have to practice zazen first, as sublimity of practicing and studying Buddha's teaching, it is because it is [the] right entrance to the buddha-dharma. Right entrance. 
 
 And the second question is,
 
-> why is it alone the right entrance? 
+> Why is it alone the right entrance? 
 
 The answer is,
 
 > The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore, I now point it out to men and devas as the right entrance. 
 
-So this answer is very interesting. The question number two is, why is zazen alone the right entrance? The answer is the great teacher Shakyamuni Buddha beyond doubt...  beyond doubt Shakyamuni Buddha and ancestors, many Buddhas, transmitted the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt, Buddha Shakyamuni and many Buddhas and ancestors just accept this practice of Zazen and learn what the Buddha's teaching is, what the universe is, what the peaceful life is. That’s why it is called right entrance. Right entrance to the Buddha Dharma, to the universe. Right entrance to get into the peaceful world. 
+So this answer is very interesting. 
 
-So in this case, I think the most important point is, in Zen Buddhism particularly, Dogen Zenji [talks] about right entrance. *Right* means that you have to learn something straightforward without, how can I say, artifice or design, without intention or purposes. 
+Question number two is, why is zazen alone the right entrance? The answer is, [...] beyond doubt, Shakyamuni Buddha and ancestors, many buddhas, transmitted the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt, Buddha Shakyamuni and many buddhas and ancestors just accept this practice of zazen, and learn what the Buddha's teaching is, what the universe is, what the peaceful life is. That’s why it is called *right entrance*. Right entrance to the buddha-dharma, to the universe. Right entrance to get into the peaceful world. 
 
-Let me say [it] like this. When you devote yourself to do something using your intention and will, consciousness or with a purpose, and then if you continue to devote yourself to accomplish one thing you want to do, finally you discover that there is no sign of intention and purpose, because your whole body and mind becomes one and they work together. 
+In this case, I think the most important point is, in Zen Buddhism particularly, Dogen Zenji [talks] about right entrance. *Right* means that you have to learn something straightforward[ly], without artifice or design, without intention or purposes. 
 
-For instance, if you look at the football game and the tea ceremony and archery, or whatever you do, climb the [rock faces of the] mountains, first of all you have to use your consciousness and intention, instead of being enslaved by consciousness or your intentions. You really have to use intention and consciousness and be one with the rock mountains and the football. And then you will discover that there is no sign of intention or purpose, because purpose and intentions are completely melted away right in the middle of dynamic activity of climbing the mountain and playing the football, between the ball and you, between a rock mountain and you. That is called, what would you say, straightforward, to learn something straightforward without intention or artifice or design or purposes. It doesn't mean you should ignore or destroy your consciousness, et cetera. Is that clear? And that is one point. 
+Let me say [it] like this. When you devote yourself to do something using your intention and will, consciousness, with a purpose, and then, if you continue to devote yourself to accomplish one thing you want to do, finally, you discover that there is no sign of intention and purpose, because your whole body and mind becomes one and they work together. 
 
-The second point is, what is learning? To learn is not to know something or to put the knowledge into your head. To learn is what is called *manebi* in Japanese. *Manebi* [is the] root of *learn* in Japanese. *Manebi* means to imitate or emulate. This is called to learn in Japanese. But if you say to learn or to study something, you have immediate preconception that you should get some knowledge from object, from teacher or from your activity, et cetera. But this is not real learning, because from this you never experience totally ripeness; it's pretty difficult to deepen your life. In order to deepen your life or in order to make your life ripe, I think you should learn human life in the universal perspective. In other words, you should put yourself in the total picture of your life interconnected, interpenetrated with all beings. *Then* you can learn something. That is called *to learn*. So to learn is to emulate, to imitate something. 
+For instance, if you look at the football game and the tea ceremony and archery, or whatever you do, climb the rock [faces of the] mountains, first of all you have to use your consciousness and intention, instead of being enslaved by consciousness or your intentions. You really have to use intention and consciousness and be one with the rock mountains and the football. And then you will discover that there is no sign of intention or purpose, because purpose and intentions are completely melted away right in the middle of dynamic activity of climbing the mountain and playing the football, between the ball and you, between the rock mountain and you. That is called to learn something straightforward without intention or artifice or design or purposes. It doesn't mean you should ignore or destroy your consciousness, et cetera. Is that clear? That is one point. 
 
-That's why here it says, "Shakyamuni Buddha and ancestors, all teachers, anyway, without any doubt, beyond doubt, transmit this sublime practice of meditation from generation to generation up to now, whatever ages change." So that is most important. How can you learn the sublimity of human life from your parents, your superior, your grandparents, your grand-grandparents? How do you learn? It's pretty difficult to learn the sublimity of your grandparents' life and your grandparents' life and your American ancestors' life. It's pretty hard. Of course you can learn, you can have lots of knowledge of American ancestors from books, from teachers, but that is pretty shaky because that knowledge disappears sooner or later. And also, that knowledge doesn't penetrate your body and skin. So I think knowledge is important, but the most important point is you have to learn the sublimity of human life from your grandparents, from the teachers, from your friends, from the superior. How? Just, you have to imitate, emulate.
+The second point is, what is *learning*? *To learn* is not to know something or to put the knowledge into your head. To learn is what is called *mane be* in Japanese, “*ma*-*ne*-*be*”. *Mane be* \[is the] root of *learn* in Japanese. *Mane be* means to imitate or emulate, this is called to learn in Japanese. 
 
-But maybe you have a question, why do we have to emulate or imitate somebody's life? You know? That's why Zen Buddhists always complain, you know. Teacher says you should do this or you shouldn't do that, immediately Zen students start to complain, because I don't want to, I don't want to be blind, you know. I don't want to lose myself. Of course, I understand. *[Laughter.]* Because pretty self-centeredness, you know? Not only Americans - everyone. But particularly I am very surprised to see American students emphasizing always, "I come first." *[He laughs, and the group laughs.]* I don't know how to deal with it. *[Laughter.]* But I must be always patient, and right in the middle of that self-centeredness, you always present, and also I always demonstrate who I am, [...] I always demonstrate what I am and that which I have learned from the teachers, anyway, Buddha’s teaching, et cetera. 
+But if you say to learn or to study something, you have immediate preconception that you should get some knowledge from the object, from the teacher or from your activity, et cetera. But this is not real learning, because from this you never experience totally ripeness; it's pretty difficult to deepen your life. In order to deepen your life or in order to make your life ripe, I think you should learn human life in the universal perspective. In other words, you should put yourself in the total picture of your life interconnected, interpenetrated with all beings, and *then* you can learn something. That is called *to learn*. So to learn is to emulate, to imitate something. 
 
-So I think this is the most important practice for us. Imitating is not to be a parrot. Okay? Do you understand? Parrot? “Good morning,” you say, “good morning.” *[Laughter.]* [That] is not imitate or emulate. In human history, we found the fact that the two trees, you know, rubbed each other and make a fire. Finally it makes a fire. And then, human being discovered the way how to make a fire through this fact. And then human being just imitate. Do you know how to make a fire in the ancient time? Human beings exactly imitate what the tree did in order to make a fire. So, I think the imitation or emulation, emulate doesn't mean just to imitate, but you have to have a creative life. From imitation, from emulating somebody's life, and then you can create your life. Otherwise, how can you deepen your life? 
+That's why here it says [that] Shakyamuni Buddha and ancestors, all teachers, beyond doubt, transmit this sublime practice of meditation from generation to generation, up to now, whatever ages change. So that is most important. How can you learn the sublimity of human life from your parents, your superior, your grandparents, your grand-grandparents? How do you learn? It's pretty difficult to learn the sublimity of your grandparents' life and your grand-grandparents' life and your American ancestors' life. It's pretty hard. Of course you can learn, you can have lots of knowledge of American ancestors from books, from teachers, but that is pretty shaky, because that knowledge disappears sooner or later. And also, that knowledge doesn't penetrate your body and skin. So I think knowledge is important, but the most important point is you have to learn the sublimity of human life from your grandparents, from the teachers, from your friends, from the superiors. How? Just, you have to imitate. Emulate.
 
-So, this is most important point, alright? 
+But maybe you have a question, why do we have to emulate or imitate somebody's life? You don’t like it, that's why Zen Buddhists always complain, you know? The teacher says you should do this or you shouldn't do that – immediately Zen students start to complain, because “I don't want to.” I don't want to be blind, you know? I don't want to lose myself. Of course, I understand. *[Laughter.]* Because pretty self-centered, you know? Not only Americans – everyone. But particularly, I am very surprised to see American students emphasizing always, "*I* come first." *[He laughs, and the group laughs.]* I don't know how to deal with it. *[Laughter.]* But I must be always patient, and right in the middle of that self-centeredness you always present. And also I always demonstrate who I am, [...] I always demonstrate what I am and that which I have learned from the teachers, [...] Buddha’s teaching, et cetera. 
 
-So, that is entrance, right entrance to Buddha Dharma. If you want to get into what the peaceful world or what the peaceful spiritual life is, you don't get any knowledge from that, you know. So, you have to put yourself right in the middle of peaceful spiritual life. Mentions or suggested by teachers and the Buddha's teaching anyway, we have to imitate, emulate. 
+I think this is the most important practice for us. “Imitating” is not to be a parrot. Okay? Do you understand? Parrot? “Good morning.” You say, “good morning.” *[Laughter.]* [That] is not imitate or emulate.
 
-That is zazen, anyway. Okay? 
+In human history, we found the fact that the two trees, you know, rubbed each other and made a fire. Finally it makes a fire. And then, human beings discovered the way how to make a fire through this fact. And then human beings just imitate. Do you know how to make a fire in the ancient time? Human beings exactly imitate what the tree did in order to make a fire. 
 
-So, the next question is, how can you put yourself right in the middle of ... zazen, and then what you can learn?
+So, I think the imitation or [emulation] doesn't mean just to imitate, but you have to have a creative life. From imitation, from emulating somebody's life, *then* you can create your life. Otherwise, how can you deepen your life? 
 
-Then Dogen Zen says, "Sanzen is Zazen." Sanzen means surrendering, to surrender to simplicity, simplicity in life. This is *sanzen*, which is translated usually as "the practice." The practice is to surrender to simplicity in life. Simplicity means that which is pretty neat and tidy, [unsophisticated], pretty simple, and also within the simple manifestation of life, there is a rich quality of life there. It's simple, but it's not simple you usually understand, but within the simplicity of your life, there are lots of rich, abundant qualities of human life. That is called ripeness. 
+This is [a] most important point, alright? 
+
+So that is *right entrance to buddha-dharma*. If you want to get into what the peaceful world or what the peaceful spiritual life is – you cannot get any knowledge from that, you know? So, you have to put yourself right in the middle of peaceful, spiritual life. Mentioned or suggested by teachers and the Buddha's teaching. Anyway, we have to imitate, emulate. 
+
+That is zazen, anyway. Okay? Zazen.
+
+#### 18:32
+
+So, the next question is, how can you put yourself right in the middle of zazen, and then what can you learn?
+
+Then Dogen Zen says, "*Sanzen* is *zazen*." *Sanzen* means to surrender to simplicity in life. This is *sanzen*, which is translated usually as "the practice." So *practice* is to surrender to simplicity in life. Simplicity means that which is pretty neat and tidy, [unsophisticated]. Pretty simple, and also within the simple manifestation of life, there is a rich quality of life there. It's simple, but it's not the simple you usually understand, but within the simplicity of your life, there are lots of rich, abundant qualities of human life. That is called *ripeness*. 
  
-So *sanzen*, if you, *sanzen* is, how can you surrender to simplicity in life? So, Dogen Zenji mentions, that is zazen. And then he says zazen is *shinjin dotsuraku*, that means casting off body and mind, in other words, dropping off body and mind. Or, he says, "Dullness and distraction are struck aside from the beginning." Dullness and distraction are not something you try to remove. If you try to remove, you create more distraction and dullness. Because dullness and distractions are something that they're created, produced by your attitude, by your actions, activities. So according to conditioned circumstances, conditional element, conditional circumstances. So you don't know how to be free from. 
+So [...] how can you surrender to simplicity in life? Dogen Zenji [says], that is zazen. 
 
-No matter how long you use the technique, psychologically, philosophically, or scientifically, you never get, you know, freedom from dullness and distraction. The moment when you feel freedom from dullness and distraction, immediately you are confused. Right in the middle of freedom of dullness and distraction. That's why human beings constantly seek for the psychologist to let you be free from dullness and distractions. You know? You always feed the psychologist. *[He laughs.]* 
+And then he says, zazen is *shinjin dotsuraku*, that means “casting off body and mind,” in other words “dropping off body and mind.” Or, he says, "Dullness and distraction are struck aside from the beginning."
 
-So at the dropping off body and mind, if you do zazen, simultaneously the dullness and distractions are struck aside from the beginning. This is a key point of zazen. That's why Dogen Zenji mentions, “this is the essential art of zazen.”
+Dullness and distraction are not something you try to remove. If you try to remove [them], you create more distraction and dullness. Because dullness and distractions are something that [is] created, produced by your attitude, by your actions, activities – so according to [...] conditional elements, conditional circumstances. So you don't know how to be free from [them]. No matter how long you use techniques, psychologically, philosophically, or scientifically, you never get freedom from dullness and distraction. The moment when you feel freedom from dullness and distraction, immediately you are confused, right in the middle of freedom of dullness and distraction. That's why human beings constantly seek for the psychologist to let you be free from dullness and distractions. You know? You always feed the psychologist. *[He laughs.]* 
 
-Okay, let me say this one. What do you mean by dropping off body and mind, the moment when you do zazen, the moment when you devote yourself in zazen. Let me say it like this. That means, let's imagine that you would be in the bathtub in the cold weather, in the rigors of Minnesota winter. And then your body becomes very cold. After that, you put your body right in the middle of bathtub, hot bath, okay? The moment when you put your body and mind in the hot bathtub, what do you say? What do you say? 
+So at the dropping of body and mind if you do zazen, simultaneously the dullness and distractions are struck aside from the beginning. This is a key point of zazen. That's why Dogen Zenji [says], “This is the essential art of zazen.”
 
-“Ah.”
+Let me say [more about] this one. What do [we] mean by dropping off body and mind, the moment when you do zazen, the moment when you devote yourself in zazen. Let me say it like this. 
 
-“Ah!” *[Laughter.]* 
+[...] Let's imagine that you [are getting into] a bathtub in the cold weather. In the rigors of Minnesota winter, your body becomes very cold. After that, you put your body right in the middle of a hot bath, okay? The moment when you put your body and mind in the hot bathtub, what do you say?
 
-That's pretty simple. That's it. It's no particular word, that's a simple word. Simple word means ground word, coming from the bottom of your heart. When your body and mind becomes one with the hot water and hot bathtub and all circumstances including your memories, and distractions, dullness, all stuff. And then when you become completely one with bathtub, then you can demonstrate simplicity in life, so-called, “Ah.” That's it. 
+**Several people:** “Ah.”
 
-Within the “Ah,” who are they? Who are they? 
+**Katagiri Roshi:** “Ah!” *[Laughter.]* 
 
-Can you pick up something particular? Pay attention to the just moment, at the very moment when you say “Ah.” Who are they? What is it? What is there? Can you say it? 
+That's pretty simple! “Ah” – that's it. It's no particular word, it's a simple word. Simple word means a ground word, coming from the bottom of your heart. When your body and mind becomes one with the hot water and hot bathtub and all circumstances, including your memories, and distractions, dullness, all stuff. And then when you become completely one with bathtub, then you can demonstrate simplicity in life, so-called, “Ah!” That's it. 
 
-After “Ah,” you pick up you, who says “Ah.” But I am talking about *before* you say “Ah.” Okay? 
+Within the “Ah” – who are they? Who are they? 
 
-Here is a partition, very thin partition just like cotton. Cotton, cotton is a very thin cotton. Silk, very thin silk. Not silk... Silk is still touchable, but that partition is not touchable but it's still something there. Do you understand? Just like a mist. But a mist is pretty hard to grasp it, but it's there. And then if you touch it, it disappears and you can get it next door. This is a [...] door. 
+Can you pick up something particular? Pay attention to just the moment, at the very moment when you say “Ah.” *Who* are they? What is it? What is there? Can you say it? 
 
-So this partition, when you are coming back to your home, and you put your body and mind in the bath tub. And then immediately within this partition you create your own life. So-called “Ah”: simple life. 
+*After* “Ah,” you pick up *you*, who says “Ah.” But I am talking about *before* you say “Ah.” Okay? 
 
-And then right before this partition, right before you touch, this is the very moment, beginning of the moment. Very moment, before you think of it, before something runs through your consciousness. In that area, I think your body and your consciousness and waters becomes exactly one. That area, that situation is never described, but your body and the waters [are] functioning simultaneously, together.
+Here is a partition, a very thin partition just like a curtain, a very thin curtain. Silk... very thin silk. Not silk... Silk is still touchable, but that partition is not touchable, but it's still something there. Just like a mist. A mist is pretty hard to grasp, but it's there. And then if you touch it, it disappears, and you can get next door. [I say] this is a [...] door. 
 
-And then next moment you say “Ah.” That is the next moment. And then when you say “Ah,” people are very interested in “Ah” which you have demonstrated. And then, you are involved in so much what Ah means. *[Laughter.]* Or what are they? Hot water and your body and mind, who makes me saying “Ah”? Something like that. This is a scientific, you know, civilization, modern civilization. And then finally you don't know where are you going. 
+So this partition, when you are coming back to your home, and you put your body and mind in the bath tub. And then immediately within this partition you create your own life, so-called “Ah.” Simple life. 
 
-And also you completely forget the first stage, the very first stage of your life. Completely you forget. First stage of your life, there are many beings which are functioning interpenetratedly, interconnectedly, together. This is oneness. You look at this sunny, wonderful day, you know? Well, how many beings exist? When you feel that wonderful sunny day. You say “Ah, wonderful.” And before you say wonderful, how many beings are working together interpenetratedly, without any hindrances? This is called the universe, we say, this is called oneness. In the oneness, that is a place where all beings come together and are working together and walking hand in hand, without hindrances, creating a peaceful world. 
+And then right before this partition, right before you touch – this is the very moment, beginning of the moment, okay? The very moment, before you think of it, before something runs through your consciousness. In that area, I think your body and your consciousness and waters becomes exactly one. That area, that situation, is never described, but your body and the water [are] functioning simultaneously, together.
 
-Even not only in Minnesota. Minnesota, the rigors of Minnesota winter shakes a hand with the winter of Hawaii, in peace. You don't believe it, but this is the truth. The Japanese monkey talks peacefully with the elephant in India. Can you believe it? You don't believe it. But this is the place where all sentient beings come together and talk together, which is called oneness. We say *universe*, we say the *truth*. 
+And then, the next moment, you say, “Ah.” That is the next moment. And then when you say “Ah,” people are very interested in the “Ah” which you have demonstrated. Then, you are involved so much in what “Ah” means. *[Laughter.]* Well, what are they? Hot water, and your body and mind... who makes me saying “Ah”? Something like that. This is scientific, you know? Modern civilization. And then finally you don't know where are you going. And also you completely forget the first stage, the very first stage of your life. Completely you forget. 
 
-But if you are involved so much in the dualistic world, after creating a “wow,” you completely forget that first stage of your life. That's why spiritual life is constantly to let you get back to the first stage. The first stage of a “wow.” That's it. That's why you don't understand it. But when you are there, completely the dullness and distraction, the form of five skandhas, are struck aside from the beginning. And then, what do you mean? Your body and hot water becomes one. This is called *intimacy*. Perfect intimacy. Secret intimacy we say. Secret, very secret, secret intimacy. No gap between. This is called *right*, meaning of the *right*. 
+First stage of your life, there are many beings which are functioning interpenetratedly, interconnectedly, together. This is oneness. You look at this sunny, wonderful day, you know? Well, how many beings exist? When you feel that wonderful sunny day. You say “Ah, wonderful!” And before you say “wonderful,” how many beings are working together, interpenetratedly, without any hindrances? This is called *the universe*, we say, this is called *oneness*. In the oneness, that is a place where all beings come together and are working together and walking hand in hand, without hindrances, creating a peaceful world. 
 
-And also that is a gate entrance to communicate with the universe. *Universe* means total picture of your life working together with all sentient beings. Okay?
+Even not only in Minnesota. The rigors of Minnesota winter shake hands with the winter of Hawaii, in peace. You don't believe it, but this is the truth. The Japanese monkey talks peacefully with the elephant in India. Can you believe it? You don't believe it. But this is the place where all sentient beings come together and talk together, which is called *oneness*. We say *universe*, we say the *truth*. 
 
-So that is called *dropping off body and mind*. When you do zazen, immediately you say "Ah!" That's it. But you don't say "Ah!" because zazen has no particular object, so-called bathtub, you know? So that's why you don't know. You are always using your mind and body and that's it. That is your subjectivity and also objective. And then whole world comes into you. And then, that is called, when you say "Wow!" this is called *samadhi* we say. *Concentration*, okay? Total concentration, total devotion. And also this is called *jijiyu samadhi*, self-joyousness. *Self-joyous samadhi*, we call it. In other words, this is called "Ah!" That's it. 
+But if you are involved so much in the dualistic world, *after* creating a “wow,” you completely forget that first stage of your life. That's why spiritual life is constantly to let you [get] back to the first stage. The first stage of a “wow.” That's it. That's why you don't understand it. But when you are there, completely the dullness and distraction, the form of the five *skandhas*, are struck aside from the beginning. And then, what do you mean? Your body and hot water becomes one. This is called *intimacy*, perfect intimacy. *Secret* intimacy we say: very secret, secret intimacy. No gap between. 
 
-But in zazen, you cannot say "Ah," because everyone becomes quiet. *[Chuckles.]* So, you have to enjoy the self-joyous samadhi concentration right in the middle of zazen. Okay? 
+This is called *right*, the meaning of the *right*. And also that is a gate, entrance, to communicate with the universe. *Universe* means the total picture of your life working together with all sentient beings. Okay?
 
-This is dropping off body and mind. 
+So that is called *dropping off body and mind*. When you do zazen, immediately you say "Ah!" That's it. But you don't say "Ah," because zazen has no particular object, so-called bathtub, you know? So that's why you don't know. You are always using your mind and body and that's it. That is subjectivity, and also objective. And then the whole world comes into you. And then, when you say "Wow!" this is called *samadhi*, we say. *Concentration*, okay? Total concentration, total devotion. And also this is called *jijiyu samadhi*, self-joyousness. *Self-joyous samadhi*, we call it. In other words, this is called "Ah!" That's it. 
 
-And then this is what makes it possible for this, dropping off body and mind? It is idea? It is concept or perception? No. Just activity there. Total activity, which is neat and tidy, so-called simplicity. Simple activity. Simple activity means using your consciousness and using your whole body with wholeheartedness and then jump into the zazen, and then this is called simplicity. 
+But in zazen, you cannot say "Ah," because everyone [stays] quiet. *[Chuckles.]* So, you have to enjoy the self-joyous samadhi concentration right in the middle of zazen.
+
+This is “dropping off body and mind.” 
+
+#### 33:48
+
+And then, [...] what makes it possible for this, dropping off body and mind? It is idea? It is concept or perception? No. Just activity there. Total activity, which is neat and tidy, so-called simplicity. Simple activity. Simple activity means using your consciousness and using your whole body with wholeheartedness and then jump into the zazen, and then this is called simplicity. 
 
 That is called activity. Our activity is usually very complicated, but in zazen activity is very simple, which means very tidy and neat and sophisticated. Very pure, simple. So, this is why that simple activity is important. In order to experience intimacy. Intimacy. Okay? So let me explain this one once more again. 
 
