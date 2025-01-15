@@ -22,7 +22,6 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [***Shobogenzo: Genjokoan***](genjokoan)
 - [**Tiantai Buddhism**](tiantai-buddhism)
 - [**Zen Forms and Ceremonies**](zen-forms)
-
 - [**Miscellaneous Talks**](miscellaneous)
 
 [**Talk List**](list)
