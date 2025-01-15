@@ -3,8 +3,7 @@ title: "Zazen: Entry to the Buddha Dharma"
 ---
 ## March 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-01-10-Dogen-Four-Points) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Platform Sutra*](platform-sutra)
-
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [Fundamentals](fundamentals)
 
 ### Transcript
 
@@ -126,15 +125,17 @@ This is “dropping off body and mind.”
 
 #### 33:48
 
-And then, [...] what makes it possible for this, dropping off body and mind? It is idea? It is concept or perception? No. Just activity there. Total activity, which is neat and tidy, so-called simplicity. Simple activity. Simple activity means using your consciousness and using your whole body with wholeheartedness and then jump into the zazen, and then this is called simplicity. 
+And then, [...] what makes it possible for this, dropping off body and mind? Is it an idea? Is it a concept or perception? No. Just activity there. Total activity, which is neat and tidy, so-called simplicity. Simple activity. Simple activity means using your consciousness and using your whole body with wholeheartedness and jump into the zazen, and then this is called simplicity. 
 
-That is called activity. Our activity is usually very complicated, but in zazen activity is very simple, which means very tidy and neat and sophisticated. Very pure, simple. So, this is why that simple activity is important. In order to experience intimacy. Intimacy. Okay? So let me explain this one once more again. 
+That is called *activity*. Our activity is usually very complicated, but in zazen, activity is very simple, which means very tidy and neat and unsophisticated. Very pure, simple. 
 
-Dogen Zenji explains about washing the robe. How can you wash the robe, in *Shobogenzo*? Using the water of ashes. In ancient time we didn't have soap, so using the water of ashes. I don't want to explain this one, so I want to explain [using] your washing machine. 
+So, this is why that simple activity is important: in order to experience intimacy. Let me explain this once again. 
 
-So, look at the washing machine. If you want to wash your dirty clothes, you have to put the dirty clothes in the washing machine, and also, next, pure, clean water there. That is called dualistic world: dullness, distractions. And good or bad, right and wrong, phenomenal world. 
+Dogen Zenji explains about washing the robe. How can you wash the robe, in *Shobogenzo*? Using [water with ashes]. In ancient time we didn't have soap, so using [water with ashes]. I don't want to explain this one, so I want to explain [using] your washing machine. 
 
-And then, when you put the water in the dirty clothes, and then next, what do you do? 
+So, look at the washing machine. If you want to wash your dirty clothes, you have to put the dirty clothes in the washing machine, and also, next, pure, clean water there. That is called the dualistic world: dullness, distractions, and good or bad, right and wrong;  the phenomenal world. 
+
+And then, when you put the water in [with] the dirty clothes, then next, what do you do? 
 
 **People:** Soap.
 
@@ -146,7 +147,7 @@ And then, when you put the water in the dirty clothes, and then next, what do yo
 
 **Someone:** It agitates. [...] *[Laughter.]*
 
-**Katagiri Roshi:** If you turn it on, what happens? 
+**Katagiri Roshi:** If you turn it on, what happens [with the machine]? 
 
 **People:** It mixes it all together.
 
@@ -154,75 +155,77 @@ And then, when you put the water in the dirty clothes, and then next, what do yo
 
 **Someone:** It goes around. 
 
-**Katagiri Roshi:** Turn around. Yes. Moving. Machine moving.
+**Katagiri Roshi:** It turns around! Yes. Moving. Machine is moving.
 
 **Someone from before:** Agitating!
 
-**Katagiri Roshi:** Oh, that’s what I mean. So I’m sorry. *[Laughter.]*
+**Katagiri Roshi:** Oh, that’s what I mean. [...] I am sorry. *[Laughter.]*
 
-Anyway, moving. Machine [is] moving: that is our practice, so-called simple activities, constantly. Alright?
+Anyway, machine [is] moving: that is our practice, so-called simple activities, constantly. Alright?
 
-And then, simple activity, by the standing on the simple activity, then you can create the world, so-called, dullness and distraction, pure and impure, good or bad, right and wrong, funny guys and beautiful men, sunny days and winters, and many things can happen. Alright? That is called “dirty clothes in clean water.” Purity or impurity. 
+And then, [...] by the standing on the simple activity, then you can create the world, so-called dullness and distraction, pure and impure, good or bad, right or wrong, funny guys and beautiful men, sunny days and winter, and many things can happen. Alright? That is called “dirty clothes in clean water.” Purity or impurity. 
 
 And then the people are very interested in impurity or purity. And then finally they don't know what to do. Do you understand? 
 
-But actually, under the dirty clothes and under the clean water, what's there? 
+But actually, under the dirty clothes and the clean water, what's there? 
 
-Under all circumstances, always there is movement there. Alright? And *then*, you can create... Pay attention to this one, alright? Don't forget this one. Whatever happens, you like or you don't like, there is a wonderful world there. That is called *whole universe*, you say. Sometimes you say, "Universe takes care of me." What do you mean, *the universe*? Universe is not a concept. Universe is not something you can get by your head trip. Universe is something *active*. If you believe there is a universe, universe must be manifested or realized in your everyday life. Otherwise, no sense of universe. 
+Under all circumstances, always there is movement there. Alright? And *then*, you can create... Pay attention to this one, alright? Don't forget this one. Whatever happens, [whether] you like or you don't like, there is a wonderful world there. That is called *whole universe*, you say. Sometimes you say, "Universe takes care of me." What do you mean, *the universe*? Universe is not a concept. Universe is not something you can get by your “head trip.” Universe is something *active*. If you believe there is a universe, universe must be manifested or realized in your everyday life. Otherwise, no sense of universe. 
 
-So, there is a universe which is beyond your consciousness, but that universe must be manifested, realized by *you*, in your everyday life. At that time, universe becomes, anyway, *phenomenal world*. Okay? Universe blooms its flower, so-called phenomenal world, pure [and] impure. Like this. What is a pure sense of the universe? Pure sense of universe is constantly moving. Under dirty clothes and clean water, which you cannot see. So, movement is invisible. 
+So, there is a universe which is beyond your consciousness, but that universe must be manifested, realized by *you*, in your everyday life. At that time, universe becomes *phenomenal world*. Okay? Universe blooms its flower, so-called phenomenal world, pure [and] impure. Like this. What is a pure sense of the universe? Pure sense of universe is constantly moving, under dirty clothes and clean water. Which you cannot see. So, movement is invisible. 
 
-So, under all circumstances, whatever you feel from your life, whatever you feel from the world, there is always universe which is working, active, very much... to support all sentient beings, to create the human world. And then, what happens? Then, there is nothing to attach to so-called dirty clothes, because dirty clothes turn into clean clothes. Clean water becomes dirty water. But usually, people don't believe this, because if you have a concept, so-called clean water, you believe that it must be always clean, *always*! But that is idealistically it's true, but it doesn't work in your everyday life. Is that clear? 
+So, under all circumstances, whatever you feel from your life, whatever you feel from the world, there is always [a] universe which is working, active, very much... to support all sentient beings, to create the human world. 
 
-So, clean water must be dirty water in order to make the dirty clothes clean! That is a phenomenal world, that is called *intimacy*, that is called *interdependent co-origination*. Helping each other. Alright? 
+And then, what happens? Then, there is nothing to attach to, so-called dirty clothes, because dirty clothes turn into clean clothes. Clean water becomes dirty water. But usually people don't believe this, because if you have a concept, so-called clean water, you believe that it must be always clean, *always*! [...] Idealistically it's true, but it doesn't work in your everyday life. Is that clear? 
 
-So, all we have to do is, all we have to do is to practice zazen with total activity, which is simple, tidy, and neat. And sophisticated. Okay? 
+So, clean water must be dirty water, in order to make the dirty clothes clean! That is a phenomenal world, that is called *intimacy*, that is called *interdependent co-origination*. Helping each other. Alright? 
 
-And then, you can see the nightmare and the fears and many things. But if you always concentrate on these activities, distraction [is] coming up, but it turns into a not-distractions, because always that moving makes it something different. Just like a washing machine. 
+So, all we have to do is to practice zazen with total activity, which is simple, tidy, and neat. Unsophisticated. 
+
+And then, you can see the nightmares, and fears, and many things. But if you always concentrate on these activities, distraction [is] coming up, but it turns into not-distractions, because always that moving makes it something different. Just like a washing machine. 
 
 So, you don't believe that if you sit down exactly, dullness and distraction are struck aside from the beginning, [as Dogen Zenji says]. But that is called the unique way to participate in peaceful, harmonious, spiritual life. Otherwise, no way. No way. 
 
-How do you do this? You have to just emulate this practice. Imitate. As exactly what the ancestors and Buddhists have done. You have to do it. And then, you can really deepen your life, and that practice makes your life ripe. 
+How do you do this? You have to just emulate this practice. Imitate, as exactly what the ancestors and Buddhists have done. You have to do it. And then, you can really deepen your life, and that practice makes your life ripe. 
 
-And then from this ripeness, from this deepening your life, then you can create philosophy, psychology from this, depth of well. Psychology and philosophy and religious teaching coming up. But people who completely understand the religious teaching are reversed, in the opposite way. First, there is a teaching, and then we try to mold our life into the teaching. *[He laughs.]* Or try to get the knowledge from the teaching, and then try to be free from something. You cannot do it, because your body and mind are always supported by the movement in dynamism, so-called universe. 
+And then from this ripeness, from this deepening your life, then you can create philosophy, psychology from this. [From the depth of] the well, psychology and philosophy and religious teaching coming up. But people completely understand the religious teaching reversed, *[he laughs,]* in the opposite way. First, there is a teaching, and then we try to mold our life into the teaching. Or try to get the knowledge from the teaching, and then try to be free from something. *You cannot do it*, because your body and mind are always supported by the movement in dynamism, so-called universe. 
 
-So, who is Katagiri? Katagiri is Katagiri. Finally, what do you mean? Katagiri creates his own phenomenal world, but on the other hand, Katagiri has to stand up constantly in this total dynamic activities, as best as he can. And then, he can deepen his life. Same applies to your life, whatever you do. This is called ...
+So, who is Katagiri? Katagiri is Katagiri. Finally, what do you mean? Katagiri creates his own phenomenal world, but on the other hand, Katagiri has to stand up constantly in this total dynamic activity, as best as he can. And then, he can deepen his life. The same applies to your life, whatever you do. This is called ...
 
 *[Tape change.]*
 
-... and then Dogen Zenji, here it says, “This is called right entrance to the Buddha Dharma.” Right entrance to get into, to participate in peaceful and harmonious human life.
+... and then Dogen Zenji [says here], “This is called right entrance to the Buddha Dharma.” Right entrance to get into, to participate in peaceful and harmonious human life.
 
 Do you have a question? 
 
 #### 45:50
 
-**Question:** I have two. The first one has to do, way at the beginning of your lecture, you talked about will and activity. 
+**Question:** I have two. The first one has to do, way at the beginning of your lecture, you talked about *will* and *activity*. 
 
 **Katagiri Roshi:** Will. 
 
-**Questioner:** Will, purpose, design. And you said that... I wasn't quite sure what you said. It sounded to me like you said that, she would start out with will and purpose, and then it would disappear as you became more one with the activity. 
+**Questioner:** Will, or purpose, design... And you said that... I wasn't quite sure what you said. It sounded to me like you said that, you would start out with will and purpose, and then it would disappear as you became more one with the activity. 
 
-**Katagiri Roshi:** If you use it, if you use the will, intention, and volition, instead of being enslaved by, slave.
+**Katagiri Roshi:** If you use it. If you use the will, intention, and volition, instead of being enslaved by it, [a] slave.
 
 **Questioner:** Can you talk about what the difference is? 
 
-**Katagiri Roshi:** “Slave” means your intention, your will, is not manifested in a simple way, because it is connected with the heredity, and karma, and the past life, and also memories, et cetera, and also your five skandhas, your body. So it's pretty complicated. So if you try to manifest your will, intention, it doesn't manifest itself in a simple way. It's a little bit complicated. 
+**Katagiri Roshi:** “Slave” means your intention, your will, is not manifested in a simple way, because it is connected with the heredity, and karma, and the past life, and also memories, et cetera, and also your five skandhas, your body. It's pretty complicated. So if you try to manifest your will, intention, it doesn't manifest itself in a simple way. It's a little bit complicated. 
 
 **Questioner:** Uh-huh.
 
-**Katagiri Roshi:** That's why I said, instead of being enslaved by intention or purpose, and your will, we have to use them. That means, you must be master of yourself in whatever situation you may be. In other words, not to lose [sight] of yourself. Do you understand? No? 
+**Katagiri Roshi:** That's why I said, instead of being *enslaved by* intention or purpose, and your will, we have to *use* them. That means, you must be master of yourself, in whatever situation you may be. In other words, not to lose [sight] of yourself. Do you understand? No? 
  
 **Questioner:** Not really. I'm not sure what it means, not to lose sight of yourself. 
 
-**Katagiri Roshi:** For instance, intention. I want to do zazen. Okay? So that intention originally must be very simple. So that intention lets you do something very simply, and totally simply, directly, straightforwardness. Okay? 
+**Katagiri Roshi:** For instance, intention. “I want to do zazen.” Okay? That intention originally must be very simple. So that intention lets you do something very simply, totally simply, directly. Straightforwardness. Okay? 
 
 **Questioner:** Okay.
 
-**Katagiri Roshi:** But if you start to do it, *[he laughs,]* intention gradually will be vague. You know? 
+**Katagiri Roshi:** But if you start to do it, *[he laughs,]* intention gradually [will be] very vague. You know? 
 
 **Questioner:** Kind of like, if I want to do zazen because I'd like to be a great master, because I'd like to...
 
-**Katagiri Roshi:** Right. Very complicated. In the beginning, first beginning of intention is a little bit clear and very nice. But the second stage, second moment, intention becomes a little bit mixed up by something else, you know? Because immediately in the first moment, you have experienced something which seems to be good, and then you say, "Wonderful!" *[He laughs.]* And then the intention becomes a little bit, you know, a little bigger. And the next moment, you don't experience something nice, so intention becomes pretty dejected... Dejected? Degenerated? No. A little bit confused.
+**Katagiri Roshi:** Right. Very complicated. In the beginning, first beginning of intention is a little bit clear and very nice. But the second stage, second moment, intention becomes a little bit mixed up by something else, you know? Because immediately in the first moment, you have experienced something which seems to be good, and then you say, "Wonderful!" *[He laughs.]* And then the intention becomes a little bit, you know, a little bigger. And the next moment, you don't experience something nice, so intention becomes pretty... dejected? Degenerated? No. A little bit confused.
 
 So, intention originally is very simple, but it's not, so finally, you are enslaved by intention. 
 
@@ -230,39 +233,43 @@ So, intention originally is very simple, but it's not, so finally, you are ensla
 
 **Katagiri Roshi:** Okay. Next question? 
 
-**Questioner:** Can I ask another question? [...] Towards the end of the lecture, you were talking about the dualistic world, good and bad, or destruction, destruction was the word that you used. And you said that from this activity, the dualistic world, destruction and creation, maybe, I don't know, from the other side, would arise. But then, as it arose, the destruction, because of the activity, would become something else. So, what should be our attitude then, toward that destruction? (*Transcriber’s Note:* This is a mishearing; the word used was ‘distraction’, as in “dullness and distraction.”)
+**Questioner:** Can I ask another question? [...] Towards the end of the lecture, you were talking about the dualistic world, good and bad, or destruction, destruction was the word that you used. (*Transcriber’s Note:* This is a mishearing; the word used was “distraction,” as in “dullness and distraction.”) And you said that from this activity, the dualistic world, destruction and... creation, maybe, I don't know if the other side would arise. But then, as it arose, the destruction, because of the activity, would become something else. So, what should be our attitude then, toward that destruction? 
 
-**Katagiri Roshi:** So, that's toward, you should stand up constantly in the place of total activity. Just like a machine, okay? Which is tidy and neat, so simple activities. Alright? As best as you can. This is the attitude toward distractions, and dullness, and suffering and [lots of] stuff. So, your basic activity must be simple and neat, as best as you can. When you get the opportunity, even one moment, you try. Okay? 
+**Katagiri Roshi:** [...] You should stand up constantly in the place of total activity. Just like a machine, okay? Which is tidy and neat. So, simple activities. Alright? As best as you can. This is the attitude toward distractions, and dullness, and suffering, and [lots of] stuff. Your basic activity must be simple and neat, as best as you can. When you get the opportunity, even one moment, you try. Okay? 
 
 That's why we do zazen. Zazen is simple. 
 
 **Questioner:** And it will change. 
 
-**Katagiri Roshi:** I *hope*. *[Laughter.]* But don't *expect* [it]. Because it's not your business. [It’s] universal business. 
+**Katagiri Roshi:** I *hope*! *[Laughter.]* But don't *expect* [it]. Because it's not your business. [It’s] universal business. 
 
 That's why Dogen Zenji says, “You throw away yourself into the Buddha's world, then you are drawn in by Buddha's world, without using your effort.” 
 
-Because, climbing the mountain, in the beginning you use intention and purpose, and through experiencing the lots of complicated procedure, but the more you devote yourself into the rock mountains, and then finally you forget yourself, you go beyond time, and finally between the rock mountains and you, very nice communication between, kind of energies. And then finally, even though you don't use any effort, you just climb the mountains. So finally, you can stop it. 
+Because, climbing the mountain, in the beginning you use intention and purpose, and through experiencing lots of complicated procedure, but the more you devote yourself into the rock mountains, and then finally you forget yourself, you go beyond time, and finally between the rock mountain and you, very nice communication between, kind of energies. And then finally, even though you don't use any effort, you just climb the mountains. So finally, you can stop it. 
 
-So *who* climbs the mountains? Mountain climbs the mountains. That's it. 
+So *who* climbs the mountains? Mountain climbs the mountains. That's it, finally. 
 
-Finally. But usually through this spiritual life, you don't believe this. But climb the mountains, and the dancers, and the writers, and many people experience this. That's why I suggest reading the book...
+But usually through this spiritual life, you don't believe this. But the [mountain climbers], and the dancers, and the writers, and many people experience this. That's why I suggest reading the book...
 
 **Questioner:** The one that costs $25? *[Laughter.]*
 
-**Katagiri Roshi:** [*Beyond Boredom and Anxiety*.] (The updated version is *Flow: The Psychology of Optimal Experience*, by Mihaly Csikszentmihalyi.) You can read that book, pretty interesting book. It's pretty close to Zen teaching – not exactly, but it doesn't matter, you know? It's very interesting. Twenty-five dollars. *[Laughter.]*
+**Katagiri Roshi:** *Beyond Boredom and Anxiety*. You can read that book, pretty interesting book. It's pretty close to Zen teaching – not exactly, but it doesn't matter, you know? It's very interesting. Twenty-five dollars. *[Laughter.]*
 
 **Someone:** You can get it in the library.
 
 **Someone:** Oh, good. [...]
 
+(*Transcriber’s Note:* The mainstream, updated version is *Flow: The Psychology of Optimal Experience* by Mihaly Csikszentmihalyi, and the price has come down.)
+
 **Questioner:** So we shouldn't... Secretly, we may have a feeling that we want that destruction to go away, right? [...]
 
-**Katagiri Roshi:** First point, I think if you say distraction, and the confusions, and the human world, I think first of all, well I mentioned the stand up in the total activity which is neat, and simple, and tidy. Okay? 
+**Katagiri Roshi:** First point, I think if you say distraction, and confusions, and the human world, I think first of all, I mentioned to stand up in the total activity which is neat, and simple, and tidy. Okay? 
 
 **Questioner:** Mm-hmm.
 
-**Katagiri Roshi:** That is *how*. You must be a little bit... not a little bit. You must be magnanimous. Magnanimous means generous. Your mind first, generous. You know, generosity means not let you be mean, nasty. If you see confusions and angers, et cetera, you shouldn't be nasty. It's pretty easy for us to be nasty, because if you act on angers, and distraction, and suffering, et cetera, according to your emotion, immediately you become nasty pretty easily. So, you shouldn't be nasty because, you know, dirty clothes turn into the clean waters, naturally. Because behind the dirty clothes and clean waters, so, always [there is] the total activity, which is invisible. What makes dirty clothes to clean? That is the activity behind. Okay?
+**Katagiri Roshi:** That is *how*. You must be a little bit... not a little bit! You must be *magnanimous*. 
+
+Magnanimous means generous. Your mind, first, [must be] generous. You know, generosity means [to] not let you be mean, nasty. If you see confusions and angers, et cetera, you shouldn't be nasty. It's pretty easy for us to be nasty, because if you act on angers, and distraction, and suffering, et cetera, according to your emotion, immediately you become nasty, pretty easily. So, you shouldn't be nasty, because dirty clothes turn into the clean waters naturally, because behind the dirty clothes and clean waters, always [there is] the total activity, which is invisible. What makes dirty clothes clean? That is the activity behind. Okay?
 
 **Questioner:** Okay. Yeah, I guess that's what I was asking you, whether you meant that what arose as destruction, okay, initially... [through the form]
 
@@ -270,23 +277,23 @@ Finally. But usually through this spiritual life, you don't believe this. But cl
 
 **Questioner:** Okay.
 
-**Katagiri Roshi:** And then, second is, you should learn the broad scale of the human life through distraction and suffering, et cetera. Sickness, old age... Okay? It's not bad. I hope! *[Laughter.]* But in the sense inside, burning. Okay? Inside burning. Your insides, screaming. Do you understand? 
+**Katagiri Roshi:** And then, second is, you should learn the broad scale of the human life through distraction and suffering, et cetera. Sickness, old age... Okay? It's not bad. ... I hope! *[Laughter.]* 
 
-In other words, you don't accept, your mind doesn't accept. But that's alright. Through the suffering and the pains, you can learn a lot. Alright?
+But in a sense, inside [is] burning. Okay? Inside [is] burning. Your insides, screaming. Do you understand? In other words, you don't accept. Your mind doesn't accept. But that's alright. Through the suffering and the pains, you can learn a lot. Alright?
 
 Any other? 
 
 #### 58:29
 
-**Question:** I have one. When you say “zazen is the way,” by *zazen*, do you mean sitting in a zendo regularly, or something ... in general, by that? 
+**Question:** I have one. When you say “zazen is the way,” by *zazen*, do you mean sitting in a zendo regularly, or something ... more general, by that? 
 
-**Katagiri Roshi:** Well, regularly, that is the best way. Regularly on the daily basis, that is kind of making fire by rubbing the two trees or two branches. If you stop it, you miss the chance to make fire. So on the daily basis, this is pretty nice. But still, it is difficult according to the individual circumstances. (*Transcriber’s Note:* It seems that Katagiri Roshi didn’t hear the second part of the question.)
+**Katagiri Roshi:** Well, regularly, that is the best way. Regularly on the daily basis, that is kind of making fire by rubbing the two trees or two branches. If you stop it, you miss the chance to make fire. So on a daily basis: this is pretty nice. But still, it is difficult according to the individual circumstances.
 
 **Questioner:** But essentially, you see that it should be with the group and with the teacher, as opposed to in some... less structured way. 
 
-**Katagiri Roshi:** Not [necessarily], you can practice by yourself. But I think practice by yourself, sitting at your home is nice, but sometimes your practice is going in a different way which you have never seen before. Unconsciously, you are going in a different way, which you have never expected. So you need a lot of help. *[Laughter.]* 
+**Katagiri Roshi:** Not [necessarily]. You can practice by yourself. But I think practice by yourself, sitting at your home, is nice, but sometimes your practice is going in a different way which you have never seen before. Unconsciously, you are going in a different way, which you have never expected. So you need lots of help. *[Some laughter.]* 
 
-Because if you sit down, how many consciousnesses you can see? You know? And what kind of experience you have had? It’s very difficult for us to “solve,” and to know how to deal with those experiences. So finally you need guidance, you need help, in many ways. 
+Because if you sit down, how many consciousnesses you can see? And what kind of experiences have you had? It’s very difficult for us to “solve,” and to know how to deal with those experiences. So finally you need guidance, you need help, in many ways. 
 
 As your circumstances allow, we try to practice together. But if you cannot, well, you can practice at your home. That’s fine. 
 
@@ -294,11 +301,13 @@ As your circumstances allow, we try to practice together. But if you cannot, wel
 
 **Question:** I have a question. You were talking about in the washing machine, the dirty water, and the clean water and the clothes. And I can understand the action of the universe underneath it that’s invisible. But I don't understand what the action of the universe underneath sitting zazen would be. Because it is still. 
 
-**Katagiri Roshi:** It’s not still. It’s still, but active, both. You can see both. 
+**Katagiri Roshi:** It’s not still. It’s still, but active. Both. You can see both. 
 
-Because if you sit in the stillness perfectly, you can see the lots of activity of your body and mind, you can get lots of energy. So totally your whole body is working smoothly. So it’s not still. And also you can see the universe in equality, and your mind becomes peace, because your mind penetrates to every inch of beings, trees, birds, and pebbles, and you can share your life. 
+Because if you sit in the stillness perfectly, you can see the lots of activity of your body and mind, you can get lots of energy. So totally your whole body is working smoothly. So it’s not still. 
 
-Most people say that sitting is pretty *inactive*, so they want to help people. Instead of sitting zazen, always, “I want to help human beings,” and caring [for the poor], et cetera. That movement is more attractive to us. But that is a misunderstanding. I don't mean you *shouldn't* do it. If you want to do it, that's fine. But if you want to seek the peaceful spiritual life, I think you have to learn what it is. 
+And also you can see the universe in equality, and your mind becomes peace, because your mind penetrates to every inch of beings, trees, birds, and pebbles, and you can share your life. 
+
+Most people say that sitting is pretty *inactive*, so they want to help people. Instead of sitting zazen, always, “I want to help human beings,” and *[unintelligible]*, et cetera; that movement is more attractive to us. But that is a misunderstanding. I don't mean you *shouldn't* do it. If you want to do it, that's fine. But if you want to seek the peaceful spiritual life, I think [you have to learn what it is]. 
 
 And also, if you have such a movement, peace work movement [or] whatever, I think in the total activity there must be always peace. Otherwise you cannot deal with your activity in dynamism, sharing your life with all sentient beings. 
 
@@ -306,19 +315,17 @@ And also, if you have such a movement, peace work movement [or] whatever, I thin
 
 **Question:** Hojo-san? A few weeks ago, somebody asked you about joy, and you said that joy is ego too? And that feelings, emotions, including joy, are all coming from the ego? 
 
-**Katagiri Roshi:** Yeah, joy is connected with self-consciousness, self-centeredness, pretty much. Because it is something which you have experienced. Okay?
+**Katagiri Roshi:** Yeah, joy is connected with self-consciousness, self-centeredness, pretty much. Because it is something which you *have* experienced. Okay?
 
-**Same person:** Mm-hmm. But Hojo-san, what about the story of the monk who gets up and dances for joy, for year after year, before he hits the meal han or whatever, before he announces the meal? Do you remember that story? *[Laughter.]*
+**Same person:** Mm-hmm. But Hojo-san, what about the story of the monk who gets up and dances for joy, for year after year, before he hits the meal *han* or whatever, before he announces the meal? Do you remember that story? *[Laughter.]*
 
-**Katagiri Roshi:** Zenko? Hitting the han? In his whole life?
+**Katagiri Roshi:** That’s [a Zen koan]? Hitting the han? In his whole life?
 
-Yeah, I can understand. I don't know. But that is ... well if you explain it, you can use the term *joyousness*. But that joyousness which is manifested in his life is something still, and quiet, invisible. Because it is very personal. Okay? Real peaceful joyousness is very personal. Is that okay? 
+Yeah, I can understand. I don't know. But that is ... well if you explain it, you can use the term *joyousness*. But that joyousness which is manifested in his life is something still, and quiet, invisible. Because it is very personal. Okay? Real peaceful joyousness is very personal. Is that okay? It’s very difficult to *tell* you, or it’s very difficult to *give it to you*, to understand it. No. 
 
-It’s very difficult to tell you, or it’s very difficult to give it to you to understand it. No. 
+**Same person:** So you’re saying there are two kinds of joy, one which is ego, and one which is very quiet, that we don't understand yet, that isn't ego.
 
-**Same person:** So you are saying there are two kinds of joy, one which is ego and one which is very quiet, that we don't understand yet, that isn't ego.
-
-**Katagiri Roshi:** Mm-hmm. So, joyousness is based on self-centeredness and also not self-centeredness, both. So that’s why self-centeredness turned into the not self-centeredness, by quiet dynamic movement. So-called washing machine, anyway. 
+**Katagiri Roshi:** Mm-hmm. So, joyousness is based on self-centeredness *and* also not self-centeredness. Both. So that’s why self-centeredness turns into the not self-centeredness, by quiet dynamic movement. So-called washing machine, anyway. 
 
 Do you understand? No? 
 
@@ -332,4 +339,4 @@ Do you understand? No?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-01-10-Dogen-Four-Points) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Platform Sutra*](platform-sutra)
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [Fundamentals](fundamentals)

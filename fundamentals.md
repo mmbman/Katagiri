@@ -18,9 +18,9 @@ Katagiri Roshi discusses the meaning of the phrases “dropping off body and min
 
 ---
 
-##### Zazen: Entry to the Buddha Dharma
+##### [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 
-*Coming soon.*
+*Summary not yet available.*
 
 (This talk is also part of the *Bendowa* series.)
 
