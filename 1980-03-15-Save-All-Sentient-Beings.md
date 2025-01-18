@@ -272,7 +272,7 @@ So, it must be something we should experience. That is the truth. But real truth
 
 #### 1:04:30
 
-**Question:** Roshi? Would you please explain the statement by the Sixth Patriarch when he said that distinguishing mind is permanent, and [enlightenment] is impermanent?
+**Question:** Roshi? Would you please explain the statement by the Sixth Patriarch when he said that distinguishing mind is permanent, and [enlightenment] is impermanent? (*Transcriber’s Note:* This is a statement that Dogen discusses in the chapter “*Bussho*” in *Shobogenzo*.)
 
 **Katagiri Roshi:** Distinguishing mind is impermanent?
 
