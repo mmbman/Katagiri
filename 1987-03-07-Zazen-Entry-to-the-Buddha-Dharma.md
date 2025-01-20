@@ -15,7 +15,7 @@ title: "Zazen: Entry to the Buddha Dharma"
 
 #### 0:00
 
-**Katagiri Roshi:** During this training session starting this week we [will] study the questions and answers which occur toward the end of *Bendowa*, written by Dogen. In the first question and second question, Dogen Zenji mentions how important zazen or Zen meditation is. First question is:
+**Katagiri Roshi:** During this training *sesshin* starting this week, we [will] study the questions and answers which occur toward the end of *Bendowa*, written by Dogen. In the first question and second question, Dogen Zenji [talks about] how important zazen or Zen meditation is. The first question is:
 
 > Now I have heard and understand the sublime merits of Zazen...
 
@@ -27,11 +27,11 @@ Many entrances to the Buddha's world, or spiritual world, or universal world, wh
  
 > “... what is the reason for your advocacy of zazen alone?”
 
-So the answer is,
+So the answer is:
 
 > Because it is [the] right entrance to the Buddha Dharma. 
 
-Here it says the reason [...] why we have to practice zazen first, as sublimity of practicing and studying Buddha's teaching, it is because it is [the] right entrance to the buddha-dharma. Right entrance. 
+Here it says the reason [...] why we have to practice zazen first, as sublimity of practicing and studying Buddha's teaching, it is because it is [the] right entrance to the buddha-dharma. *Right entrance*. 
 
 And the second question is,
 
@@ -39,7 +39,7 @@ And the second question is,
 
 The answer is,
 
-> The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore, I now point it out to men and devas as the right entrance. 
+> The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That is not all: patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore, I now point it out to men and devas as the right entrance. 
 
 So this answer is very interesting. 
 
