@@ -26,6 +26,14 @@ Katagiri Roshi discusses the meaning of the phrases “dropping off body and min
 
 ---
 
+##### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
+
+*Summary not yet available.*
+
+(This talk is also part of the [Receiving the Precepts](precepts) series.)
+
+---
+
 ##### [What Is Buddhist Faith?](1985-06-22-Introduction-to-Buddhism)
 
 The word may be problematic for some, but what does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
