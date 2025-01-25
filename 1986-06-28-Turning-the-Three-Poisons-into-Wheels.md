@@ -9,8 +9,7 @@ title: "Turning the Three Poisons into Wheels"
 
 <p align="center"><b>This transcript is in draft stage.</b></p>
 
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/turning-the-three-poisons-into-wheels" target="_blank">Listen to this talk</a>
-</p>
+<p align="center" style="font-style: italic"><a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/turning-the-three-poisons-into-wheels" target="_blank">Listen to this talk</a></p>
 
 
 #### 0:00
