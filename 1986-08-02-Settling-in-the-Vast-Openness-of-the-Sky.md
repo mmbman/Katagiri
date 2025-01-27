@@ -15,7 +15,7 @@ title: "Settling in the Vast Openness of the Sky"
 
 #### 0:00
 
-**Katagiri Roshi:** I think most of you have lots of questions, or big doubt, to practice the *shikantaza* we do, “just sitting,” if you attend various workshops, various seminars of yoga and Christianity, many other things. Because the practice we do is *too simple* to touch the heart. It’s very difficult. On the other hand, if you attend workshops, seminars of other things, you can see very clearly lots of benefits, instructions. So immediately you think, why do you do *this*? It's wasting time. 
+**Katagiri Roshi:** I think most of you have lots of questions, or big doubt, to practice the *shikantaza* we do, “just sitting,” if you attend various workshops, various seminars of yoga and Christianity, many other things. Because the practice we do is *too simple* to touch the heart. It’s very difficult. On the other hand, if you attend workshops, seminars of other things, you can see very clearly lots of benefits, instructions. So immediately you think, why do you do *this* (*shikantaza*)? It's wasting time. 
 
 This is natural. Most of people have these questions. 
 
