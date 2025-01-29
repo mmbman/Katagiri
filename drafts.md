@@ -16,6 +16,11 @@ These transcripts are in early rough draft state. This page is not meant to be p
 ### 1987
 
 - [*Bendowa* – Talk 1](1987-03-11-Bendowa-Talk-1)
+- [*Bendowa* – Talk 2](1987-03-12-Bendowa-Talk-2)
+- [*Bendowa* – Talk 3](1987-03-13-Bendowa-Talk-3)
+- [*Bendowa* – Talk 4](1987-03-14-Bendowa-Talk-4)
+- [*Bendowa* – Talk 5](1987-03-15-Bendowa-Talk-5)
+
 - [Prajna Paramita and Emptiness](1987-05-02-Prajna-Paramita-and-Emptiness)
 - [Obon Memorial](1987-07-15-Obon-Memorial)
 
