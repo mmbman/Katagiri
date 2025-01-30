@@ -6,6 +6,9 @@ These transcripts are in early rough draft state. This page is not meant to be p
 
 ### 1983
 
+- [*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
+- [*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
+
 - [*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 1](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1)
 
 ### 1986
