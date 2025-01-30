@@ -37,6 +37,8 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 > 
 > Feng said, “My affairs as abbot are many and complicated.”
+>
+> ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
 #### 01:25
 
