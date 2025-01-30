@@ -1,7 +1,7 @@
 ---
-title: "The Awakening of Faith – Talk 30"
+title: "The Awakening of Faith – Talk 31"
 ---
-## October 25, 1985 Dharma Talk by Dainin Katagiri Roshi
+## November 1, 1985 Dharma Talk by Dainin Katagiri Roshi
 
 #### [List](list#1985) \| [Previous](1985-10-25-Awakening-of-Faith-Talk-30) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Awakening of Faith](awakening-of-faith)
 
