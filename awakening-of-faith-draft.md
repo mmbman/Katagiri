@@ -11,7 +11,9 @@ This series of transcripts is in rough draft stage.
 ###### Series 1
 
 - [Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
+- *Talk 2 is missing*
 - [Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
+- *Talk 4 is missing*
 - [Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 - [Talk 6](1984-04-27-Awakening-of-Faith-Talk-6)
 - [Talk 7](1984-05-04-Awakening-of-Faith-Talk-7)
@@ -21,8 +23,7 @@ This series of transcripts is in rough draft stage.
 - [Talk 11: Alayavijnana and Tathagatagarbha](1984-05-18-Awakening-of-Faith-Talk-11)
 - [Talk 12: Tathagatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
 - [Talk 13: Tathagatagarbha, Alayavijnana](1984-05-24-Awakening-of-Faith-Talk-13)
-
-*Talks 2, 4, and 14 are missing.*
+- *Talk 14 is missing*
 
 ###### Series 2
 
@@ -40,7 +41,7 @@ This series of transcripts is in rough draft stage.
 - [Talk 29](1985-10-18-Awakening-of-Faith-Talk-29)
 - Talk 30
 - [Talk 31](1985-11-01-Awakening-of-Faith-Talk-31)
-- Talk 32
+- [Talk 32](1985-11-15-Awakening-of-Faith-Talk-32)
 
 ###### Series 5
 
