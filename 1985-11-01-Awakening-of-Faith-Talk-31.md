@@ -22,6 +22,8 @@ So in the previous life, if you used mind, there are two kinds of mind, *citta* 
 Well, let's read “b. Consciousness”:
 
 > What is called “consciousness (vijñana)” is the “continuing mind.” Because of their deep-rooted attachment, ordinary people imagine that “I” and “mine” are real and cling to them in their illusions. As soon as objects are presented, this consciousness rests on them and discriminates the objects of the five senses and of the mind. This is called “vijñana”(i.e., the differentiating consciousness) or the “separating consciousness.” Or, again, it is called the “object-discriminating consciousness.” [The propensity for discrimination of] this consciousness will be intensified by both [the intellectual] defilement of holding fast to perverse views and [the affectional] defilement of indulgence in passion.
+>
+> (From *The Awakening of Faith*, translated by Yoshito S. Hakeda, 1967.)
 
 Okay, first,
 
