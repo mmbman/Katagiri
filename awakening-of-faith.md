@@ -11,7 +11,9 @@ This series of transcripts is in draft stage.
 ###### Series 1
 
 - [Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
-- [Talk 3: One Mind and Its Two Aspects](1984-04-06-Awakening-of-Faith-Talk-3)
+- *Talk 2 is missing*
+- [Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
+- *Talk 4 is missing*
 - Talk 5
 - Talk 6
 - Talk 7
@@ -21,8 +23,7 @@ This series of transcripts is in draft stage.
 - Talk 11: Alayavijnana and Tathagatagarbha
 - Talk 12: Tathagatagarbha
 - Talk 13: Tathagatagarbha, Alayavijnana
-
-*Talks 2, 4, and 14 are missing.*
+- *Talk 14 is missing*
 
 ###### Series 2
 
