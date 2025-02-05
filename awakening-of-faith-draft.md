@@ -48,6 +48,6 @@ This series of transcripts is in rough draft stage.
 - [Talk 33](1986-03-07-Awakening-of-Faith-Talk-33)
 - [Talk 34](1986-03-14-Awakening-of-Faith-Talk-34)
 - [Talk 35](1986-03-28-Awakening-of-Faith-Talk-35)
-- Talk 36
+- [Talk 36](1986-04-11-Awakening-of-Faith-Talk-36)
 - Talk 37
 - Talk 38
