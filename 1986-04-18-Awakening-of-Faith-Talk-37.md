@@ -246,7 +246,7 @@ And also, you can see the explanation of *saddhā* in *The Eastern Buddhist*. I 
 
 **Question:** Hojo-san, what are *free acts*? 
 
-**Katagiri Roshi:** *Free acts*, I [said], [are action] based on the undiscriminating mind.
+**Katagiri Roshi:** *Free acts*, I [said], [are actions] based on the undiscriminating mind.
 
 #### 1:12:32 end of recording
 
