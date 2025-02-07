@@ -24,23 +24,23 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 
 > (Chapter 8)  
 > 
-> The Lord then asked: “What do you think, [Subhuti](glossary#subhuti), if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the [Tathāgatas](glossary#tathāgata), [Arhats](glossary#arhat), Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”
+> The Lord then asked: “What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds with the seven precious things, and then gave it as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”
 >
 > Subhuti replied: “Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the ‘heap of merit’ as a non-heap. That is how the Tathāgata speaks of ‘heap of merit’.”
 >
-> (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), pp. 34-35, immediately following the passage quoted in the previous talk.)
+> (From *Buddhist Wisdom: The Diamond Sutra and the Heart Sutra* by Edward Conze, pp. 34-35, immediately following the passage quoted in the previous talk.)
 
 The commentary by Conze here is very interesting. Let me read it first:
 
 > The merit to be derived from giving depends, among other things, on the preciousness of the gift, and the quality of the recipient. The gift consists of the seven precious things, mentioned also at chapter 11, 19, 28, 32a. They are gold, silver, lapis lazuli, coral, gems, diamonds, and pearls. When this most precious of all material gifts is given in abundance to the Tathāgatas, who are the most exalted persons of all, then this act of giving produces a quite exceptional amount of merit. This sounds strange to modern ears. The Tathāgatas have all they need, they certainly can make no use of all this gold, silver, etc., and so how could this gift benefit them? Would it not be very much more to the point to relieve the sufferings of those who are in want, and to give them what they need, and what they would use so gladly? Is there not a complete and callous disregard of the poor in the Buddhist statement that the best gift is that which is given by the dispassionate to the dispassionate? Common sense as we understand it must withhold its approval from this statement. Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.
 
-In [Mahayana Buddhism](glossary#mahayana), the practice of perfection of giving is one of the most important practices for us, because it is one of the six [paramitas](glossary#paramita). Giving is the first item of the six paramitas. But in [primitive Buddhism](glossary#primitive-buddhism ), the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice the perfection of giving. 
+In Mahayana Buddhism, the practice of perfection of giving is one of the most important practices for us, because it is one of the six *paramitas*. Giving is the first item of the six paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice the perfection of giving. 
 
-If you read Mahayana Buddhist scriptures, very often they say, “give offerings decorated with seven precious treasures to Tathāgatas, to Arhats, to noble enlightened men.” According to modern sense, it doesn’t make sense to give in that way. Why don’t you give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand the practice of giving in that way, it’s pretty difficult to understand the real spirit of Mahayana Buddhism. That’s why [Conze](glossary#edward-conze) says, “Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.” I would like to talk about this point of view tonight. 
+If you read Mahayana Buddhist scriptures, very often they say, “give offerings decorated with seven precious treasures to Tathāgatas, to Arhats, to noble enlightened men.” According to modern sense, it doesn’t make sense to give in that way. Why don’t you give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand the practice of giving in that way, it’s pretty difficult to understand the real spirit of Mahayana Buddhism. That’s why Conze says, “Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.” I would like to talk about this point of view tonight. 
 
 #### 7:44
 
-[Dogen](glossary#dogen) [Zen Master](glossary#zen-master) says, giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
+Dogen Zen Master says, giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
 
 This is very common, very common in the human world. That’s why we always fight each-other. Arguments, disputes, and finally, we fight. Finally we separate, and... what is the term I always use... *[he struggles for the term]* divorce. *[Laughter.]* It very often happens in this world. 
 
@@ -59,9 +59,9 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 > That’s what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
 >      
-> *(Transcriber’s Note: This seems to be mostly the same as a section of* The Eighth Duino Elegy *by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)*
+> (*Transcriber’s Note:* This seems to be mostly the same as a section of *The Eighth Duino Elegy* by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)
 >
->> *(Here are a couple different translations for reference. Skip these if you are not interested.)*
+>> (Here are a couple different translations for reference. Skip these if not interested.)
 >> 
 >> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
 >>  
@@ -116,7 +116,7 @@ Only human beings can see death. We can see death in many ways, from many angles
 
 So that’s why [it says] “God before it.” *God* means, in this case, the vastness of space. He never sees death in front of him; he is always going ahead toward the vastness of space, eternity; that means “God before it.” That’s why he said, “when it walks it goes toward eternity.” [It’s] completely eternity: he doesn’t know that in a moment there is some destiny he doesn’t see. So that’s just to go ahead, and then only when he sees something dangerous is he scared. But he doesn’t see death. So death is completely one with the beast, always. 
 
-That’s why he said, “When it walks it goes toward eternity, as springs flow.” Just as springs flow: springs flow from the ground, always coming up. No [suffering](glossary#suffering). So from this point, the beast never suffers from life or death. They have subjective feeling, according to their instinct, so they fear death or something dangerous only when they see something dangerous right in front of them. But they never think of death, they never think there is something dangerous in a second. So whatever happens, they always walk toward eternity; no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
+That’s why he said, “When it walks it goes toward eternity, as springs flow.” Just as springs flow: springs flow from the ground, always coming up. No suffering. So from this point, the beast never suffers from life or death. They have subjective feeling, according to their instinct, so they fear death or something dangerous only when they see something dangerous right in front of them. But they never think of death, they never think there is something dangerous in a second. So whatever happens, they always walk toward eternity; no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
 
 #### 18:16
 
@@ -154,11 +154,11 @@ That’s why next, Rilke said, “Never, not for a single day do we have pure sp
 
 Have you ever experienced the vastness of space in which the blooming flowers very smoothly enter into your heart, without “decoding” them? We are always *decoding* flowers. Do you understand decoding flowers? Without decoding the beautiful flowers, the beautiful blooming flowers smoothly enter into your heart. That is the vastness of space. 
 
-In Buddhism, that vastness of space is what is called [emptiness](glossary#śūnyatā). Emptiness is vast, unfathomable, boundless. [There is] no particular power, no particular force, [like] what you think. But it is there, which is unfathomable, and deep, and vast, and boundless. And then when you get into it, it’s very evasive for us to understand what it is, because it is vast, it is boundless. But when it is not there, when it doesn’t exist, it’s very difficult for *us* to exist. So that is space, that is what is called emptiness. 
+In Buddhism, that vastness of space is what is called emptiness. Emptiness is vast, unfathomable, boundless. [There is] no particular power, no particular force, [like] what you think. But it is there, which is unfathomable, and deep, and vast, and boundless. And then when you get into it, it’s very evasive for us to understand what it is, because it is vast, it is boundless. But when it is not there, when it doesn’t exist, it’s very difficult for *us* to exist. So that is space, that is what is called emptiness. 
 
 So, “Never do we have a pure space before us in which the flowers are always unfolded. It’s forever world and ... nowhere without not.” We always see the world created by us; “nowhere without not.” Always we see the world created by us, and believe that is important for us. But the most important thing is the vastness of space. The world created by us is a tiny world. We can see it from each individual telescope. This is also important for us, because that is the world in which we live. But in order to live in this small world, we have to know the bigger scale of the world. That is the vastness of space. According to Buddhism, it is called emptiness. Emptiness is not the [world]. I don’t know what it is. But *it is* emptiness – anywhere, anytime.
 
-*(Transcriber’s Note: For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness”. The poem – in German – actually says something like “*never  *nowhere without not,” or “never the nowhere minus the no”. In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)*
+(*Transcriber’s Note:* For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness.” The poem – in German – actually says something like “*never* nowhere without not,” or “never the nowhere minus the no.” In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)
 
 #### 32:17
 
@@ -180,7 +180,7 @@ So, if you’re always face to face, it’s pretty difficult to teach something,
 
 #### 40:56
 
-“Then give it” – the precious things – “as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones.” These are not a particular person, because all are [Buddha](glossary#buddha). We have to give these precious things to everybody – to the trees, to the birds, to all sentient beings – like this. 
+“Then give it” – the precious things – “as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones.” These are not a particular person, because all are Buddha. We have to give these precious things to everybody – to the trees, to the birds, to all sentient beings – like this. 
 
 “At that time, can we beget a great heap of merit?” And then Subhuti said: “Great, O Lord, great, O Well-Gone, would that heap of merit be!” *Of course* you can get merit. People beget a heap of merit. Even though you don’t try to give, people can get something from you. Your parents, your friends can get something of what Buddhism is, from each pore of your body. 
 
@@ -202,7 +202,7 @@ And finally the mother was very angry. She said, “I am the mother, I am your p
 
 Do you understand? There’s no one thing. That one thing she can give is not to try to give consciously, but to live in peace and harmony. Just be side-by-side, not face to face. Be present, and have breakfast and dinner with each other. That’s pretty nice. But the young couple didn’t say so; that’s why the mother finally was angry. 
 
-This is a very common type of human life, even though in the United States we create the same problem. So, that is why to give this precious gift to arhats, [bodhisattvas](glossary#bodhisattva), buddhas. Buddhas and bodhisattvas, all of us – we should give in that way. 
+This is a very common type of human life, even though in the United States we create the same problem. So, that is why to give this precious gift to arhats, bodhisattvas, buddhas. Buddhas and bodhisattvas, all of us – we should give in that way. 
 
 And then that’s why Subhuti replied, “Great would that heap of merit be! And why? Because the Tathāgata spoke of the ‘heap of merit’ as a non-heap.” There is nothing to be covetous of. [Not] “you should receive something I can give” – nothing [to] give and take. Just be present; just sit side by side. Just to have breakfast, just to get up in the morning, greeting “good morning” – that’s all we have to do. At that time there is very naturally something you can “beget,” that is a “heap of merit.” That heap of merit has nothing to be covetous of. That’s a no-heap of merit. No attachment. But if you try to give, and if you expect somebody to receive something *I* can give, at that time there is always something covetous.
 
@@ -218,7 +218,7 @@ But in order to enter into that vastness of space, I told you before, we need a 
 
 Buddhism, particularly the Mahayana scriptures, is always speaking about the vastness of space. We don’t know what it is. But it’s really *[unintelligible]*. Vast. Which makes you be free from. That is very important for us, because we are always looking at the small world created by us. But we shouldn’t forget. We have to have a big shock, because we have stubbornness of ego. In order to throw away stubbornness of ego, we have to have a big shock to our body and mind, unfortunately. That’s why we always try to have a Memorial Day for Hiroshima, and Pearl Harbor, et cetera, and the Second World War. We shouldn’t forget. But it doesn’t mean we should be *bogged down* in it. We have to walk toward the future. How? It shouldn’t be face to face. We should enter into the vastness of space. This is very important. 
 
-In our daily living, the vastness of space is something that basically we don’t understand, but practically, we can do. We can do it. That means, sit down, anyway. Sit down in the [zendo](glossary#zendo), even though you don’t know what problem you have, or you don’t know why you sit here. Let’s open wide and sit down with it, in peace and harmony. Why don’t you have breakfast, in peace and harmony? This is very important for us. 
+In our daily living, the vastness of space is something that basically we don’t understand, but practically, we can do. We can do it. That means, sit down, anyway. Sit down in the zendo, even though you don’t know what problem you have, or you don’t know why you sit here. Let’s open wide and sit down with it, in peace and harmony. Why don’t you have breakfast, in peace and harmony? This is very important for us. 
 
 #### 1:00:00
 
