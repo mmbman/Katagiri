@@ -15,7 +15,7 @@ The word may be problematic for some, but what does *faith* actually mean in Bud
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk</a>
 </p>
 
-(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might initially assume he is talking about “the faith” in the sense of “a system of religious belief.” But what he is actually discussing is *Buddhist faith* – that is, the meaning of *faith* within Buddhism. Based on this and other talks, it is likely that he is simply adding an extraneous “the,” so for clarity, I have used “Buddhist faith” instead of “the Buddhist faith.”)
+(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might initially think he is talking about “the faith” in the sense of “a system of religious belief.” But what he is actually discussing is *Buddhist faith* – that is, the meaning of *faith* within Buddhism. It seems clear in this case that he was only adding an extraneous “the,” so I have substituted “Buddhist faith” for “the Buddhist faith.”)
 
 #### 0:00
 
