@@ -34,7 +34,8 @@ This series of transcripts is in rough draft stage.
 - [Talk 23](1984-10-19-Awakening-of-Faith-Talk-23)
 - [Talk 24](1984-10-26-Awakening-of-Faith-Talk-24)
 
-*Talks 25-27 are not yet in the online archive. Talk 28 is missing.*
+*Talks 25-27 are not yet in the online archive.*  
+*Talk 28 is missing.*
 
 ###### Series 4
 
@@ -49,5 +50,5 @@ This series of transcripts is in rough draft stage.
 - [Talk 34](1986-03-14-Awakening-of-Faith-Talk-34)
 - [Talk 35](1986-03-28-Awakening-of-Faith-Talk-35)
 - [Talk 36](1986-04-11-Awakening-of-Faith-Talk-36)
-- Talk 37
-- Talk 38
+- [Talk 37](1986-04-18-Awakening-of-Faith-Talk-37)
+- [Talk 38](1986-05-02-Awakening-of-Faith-Talk-38)
