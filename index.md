@@ -31,6 +31,8 @@ Please note that these transcripts are a continuing work in progress. Correction
 
 ## Latest Updates
 
+**February 9, 2025:** Posted draft of [“*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1”](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1).
+
 **January 14, 2025:** Posted [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind).
 
 **January 11, 2025:** Added the [“Fundamentals of Zen”](fundamentals) category.
