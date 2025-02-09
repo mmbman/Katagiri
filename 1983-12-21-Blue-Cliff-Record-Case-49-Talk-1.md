@@ -16,7 +16,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 #### 0:00
 
-The 49th case [of the *Blue Cliff Record*]. Cliff, would you read the pointer and case.
+**Katagiri Roshi:** The 49th case [of the *Blue Cliff Record*]. Cliff, would you read the pointer and case.
  
 **Reader:** 
 
@@ -252,7 +252,7 @@ Is that okay?
 
 **Katagiri Roshi:** Um... kind of... Pretty close, but not *exactly*. Pretty close. 
 
-I know there are some people who attain enlightenment. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something, always. [Because “always” is everything is changing.]
+I know there are some people who attain enlightenment (that way). I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something, always. [Because “always” is everything is changing.]
 
 #### 56:05
 
@@ -272,7 +272,9 @@ For instance, going to the moon. *[He laughs.]* How can you go to the moon, now?
 
 *[Long pause.]*
 
-Some people misunderstand Zen, saying Zen is, *[unintelligible]*, [which] is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold, include, [the] whole thing. Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
+Some people misunderstand Zen, saying Zen is, *[unintelligible]*, [which] is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold – include – [the] whole thing. 
+
+Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
 
 *[Closing chant.]*
 
