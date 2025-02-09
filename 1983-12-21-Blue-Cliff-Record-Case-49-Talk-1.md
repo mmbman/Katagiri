@@ -80,7 +80,7 @@ So very naturally, you can accept yourself smoothly. And if you accept yourself,
 
 #### 14:12
 
-When I was a child, I had a very bad habit. Particularly in the winter, I went to school, but it was cold – not like in Minneapolis – it was pretty mild, but lots of snow. And on the way to school, [my feet felt cold], so I quit going to school, and cried and went back home. I was always scolded by my father. 
+When I was a child, I had a very bad habit. Particularly in the winter, I went to school, but it was cold – not like in Minneapolis, it was pretty mild, but lots of snow. And on the way to school [my feet felt cold], so I quit going to school, and cried and went back home. I was always scolded by my father. 
 
 That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed, loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
 
@@ -272,7 +272,7 @@ For instance, going to the moon. *[He laughs.]* How can you go to the moon, now?
 
 *[Long pause.]*
 
-Some people misunderstand Zen, saying Zen is, *[unintelligible]* is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold, include, [the] whole thing. Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
+Some people misunderstand Zen, saying Zen is, *[unintelligible]*, [which] is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold, include, [the] whole thing. Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
 
 *[Closing chant.]*
 
