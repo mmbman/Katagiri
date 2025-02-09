@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 1: Introduction and Invocation"
 ---
 ## March 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [List](list#1984) | [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) | [Next](1984-03-21-Mindfulness-Talk-1) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Summary
 
@@ -279,4 +279,4 @@ So that is, from day to day you have to practice, anyway. There is no... what wo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1983-10-29-Arts-and-Buddhism) \| [Next](1984-03-21-Mindfulness-Talk-1) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [List](list#1984) | [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) | [Next](1984-03-21-Mindfulness-Talk-1) | Series: [Awakening of Faith](awakening-of-faith)

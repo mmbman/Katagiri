@@ -69,7 +69,7 @@ Talk List \| [Talk Summaries](blue-cliff-record-summaries)
 - [Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2)
 - [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1)
 - [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
-- Case 49 Talk 1
+- [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
 - Case 49 Talk 2
 - Case 50
 - Case 51 Talk 1

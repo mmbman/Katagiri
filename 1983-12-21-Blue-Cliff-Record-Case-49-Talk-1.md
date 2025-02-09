@@ -4,7 +4,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ## December 21, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1983-10-29-Arts-and-Buddhism) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -70,15 +70,15 @@ But many people believe that you should experience *everything*. No, you cannot 
 
 So, if you know something very clearly [is] dangerous or something unwholesome, I don’t think it’s necessary to go there. If you go there, sometimes you become [like] the insect in the summer jumping into the fire – so, committing suicide. It’s very common. That’s why people are [...] suffering from their life very much. 
 
-So, “fortified, entrenched, one inspects the front and oversees the rear” – that is a bodhisattva life. To watch over many things in front and in the back of your life. 
+So, “fortified, entrenched, one inspects the front and oversees the rear” – that is a bodhisattva life. To watch over many things in front and in the back of your life. And then, nevertheless, there are lots of obstacles, dangerous situations there. 
 
-And then, nevertheless, there are lots of obstacles, dangerous situations there. 
-
-So, if you know pretty well human life – not only the many things you can see objectively or externally – you have to learn yourself, surrounded by the countless number of feelings, emotions going on inside of your life. That is a human being. And those feelings are acting very subtly, and also sometimes very [greatly], sometimes very wonderfully, or sometimes painfully. So, you should know the human feelings, human emotions. Many things going on inside. 
+So, if you know pretty well human life – not only the many things you can see objectively or externally – you have to learn yourself, surrounded by the countless number of feelings, emotions going on inside of your life. That is a human being. And those feelings are acting very subtly, and also sometimes very [greatly]; sometimes very wonderfully, or sometimes painfully. So, you should know the human feelings, human emotions. Many things going on inside. 
 
 That’s why, “fortified, entrenched, one inspects the front and oversees the rear.” And then, if you understand yourself, at that time you can accept yourself as a human being, looking at yourself for the long run. And then you understand others, too. 
 
 So very naturally, you can accept yourself smoothly. And if you accept yourself, which is called “defense of your fortress,” then very naturally you act initiatively, you can live [...] initiatively. That is “offense of the fortress” in your life. 
+
+#### 14:12
 
 When I was a child, I had a very bad habit. Particularly in the winter, I went to school, but it was cold – not like in Minneapolis – it was pretty mild, but lots of snow. And on the way to school, [my feet felt cold], so I quit going to school, and cried and went back home. I was always scolded by my father. 
 
@@ -90,13 +90,13 @@ So, that’s why my father scolded me very much, but I didn’t understand. So, 
 
 So, since then, I really understand myself, that I should do something positively. Positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
 
-Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly; as best as you can, you have to know, you have to understand something, well, as much as possible. But still you cannot see the clear answer, [whether] you can do or you cannot do. But you should start to do. And then, it’s pretty good for us. 
+Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly; as best as you can, you have to know; you have to understand something, well, as much as possible. But still you cannot see the clear answer, [whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
 
-But most of people don’t do this. [They] always criticize, because [they] always try to get some clear answer: “I can do,” “I cannot do.” Sometimes you can see [whether you can do it]; sometimes there is something you cannot know. 
+But most people don’t do this. [They] always criticize, because [they] always try to get some clear answer, “I can do” or “I cannot do.” Sometimes you can see [whether you can do it]; sometimes there is something you cannot know. 
 
-So, since then, [I always answered] loudly “yes,” very positively. But even the answer is very important. If you say [hesitantly] “yes” – that’s it, you know? Very naturally your life is something like that. But if you say “*yes*,” very positively and loudly, with confidence – you can do it, [or] you can do something. So that spirit is very important. 
+So, since then, [I always answered] loudly “yes,” very positively. Even the answer is very important. If you say [hesitantly] “yes” – that’s it, you know? Very naturally your life is something like that. But if you say “*yes*,” very positively and loudly, with confidence – you can do it, [or] you can do something. So that spirit is very important. 
 
-So, for this, you should accept totally yourself, who you are. Human beings are pretty weak, and human beings possess lots of karmic life you don’t know. Karmic life leads you to go in a completely different direction, which you have never thought before. That is karmic life. When you are born, immediately there is a karmic life with you. From this point, you cannot escape from your karmic life, which something set up, exactly. [For this,] you have to accept totally karmic life. At that time, you can defend yourself against attack, externally or internally. And then, simultaneously to defend yourself means to do something positively. 
+So, for this, you should accept totally yourself, who you are. Human beings are pretty weak, and human beings possess lots of karmic life you don’t know. Karmic life leads you to go in a completely different direction which you have never thought before. That is karmic life. When you are born, immediately there is a karmic life with you. From this point, you cannot escape from your karmic life, which something set up, exactly. [For this,] you have to totally accept karmic life. At that time, you can defend yourself against attack, externally or internally. And then, simultaneously to defend yourself means to do something positively. 
 
 So that is, it says here, “Piercing, penetrating, one takes the drum and captures the flag. Fortified, entrenched, one inspects the front and oversees the rear.” Defense and offense are not two; [they are] simultaneously there. If you defend yourself, it is simultaneously [that] you do something positively. But if you do something positively, well, that is simultaneously you defend yourself. In other words, you protect yourself, [...] looking at your life for long run [...]. 
 
@@ -104,7 +104,7 @@ So that is, it says here, “Piercing, penetrating, one takes the drum and captu
 
 > One who sits on the tiger’s head to take the tiger’s tail is not yet an adept. [...]
 
-“One who sits on the tiger’s head to take the tiger’s tail” is to do something perfectly – to act, to achieve something *perfectly*. That is to sit on the tiger’s head to take the tiger’s tail: when you teach somebody, your teachings, your actions, are perfect. 
+“One who sits on the tiger’s head to take the tiger’s tail” is to do something perfectly – to act, to achieve something *perfectly*. That is “to sit on the tiger’s head to take the tiger’s tail”: when you teach somebody, your teachings, your actions, are perfect. 
 
 But, even though it is perfect, it’s not good *enough*. 
 
@@ -118,7 +118,9 @@ So, that’s why here it says, “One who sits on the tiger’s head to take the
 
 The “ox’s head disappears and a horse’s head returns” means to do something very quickly, [...] very smartly. Very swiftly, rapidly. You can teach, you can give some impression to people with a word. 
 
-Well, you can [imagine] such a person. Baker Roshi in San Francisco: he is very smart, he uses words very [well], so people are very impressed by his words. So that is a teaching; pretty good. Very [quick]. If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. But here it says, nevertheless, it is not good enough. 
+Well, you can [imagine] such a person. Baker Roshi in San Francisco: he is very smart, he uses words very [well], so people are very impressed by his words. So that is a teaching; pretty good. Very [quick]. If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. 
+
+But here it says, nevertheless, it is not good enough. 
 
 > But say, how is it when a man who has passed beyond measurements comes? To test I am citing this old case: look!
 
@@ -138,11 +140,11 @@ So, what does the golden fish who has passed through the net use for food?
 
 > Feng said, “When you come out of the net I will tell you.”
 
-Well, San Sheng’s [...] saying like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But [that] he said like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
+Well, San Sheng’s [...] saying like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But that he said like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
 
-For instance, [a Zen Master] was asked by a monk, saying, “I have nothing to carry on my back, what should I drop off?” In other words, he attained enlightenment, so-called nothing. “I have carried nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] said, “I have already carried nothing on my back, what should I put down?” The Zen Master says, “Please go home with carrying that one.” Do you understand? “Go back home [...] with nothing.” It means he didn’t understand *nothing*. Nothing to carry – but he already carried [...] something, so-called “nothing.” Do you understand? 
+For instance, [a monk asked Zhaozhou Zen Master], “I [am carrying nothing on my back], what should I drop off?” In other words, he attained enlightenment, so-called nothing, “I [am carrying] nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] says, “I [am already carrying] nothing on my back, what should I put down?” The Zen Master says, “Please go home [carrying that].” Do you understand? “Go back home [...] with nothing.” It means [the monk] didn’t understand *nothing*. “Nothing to carry” – but he already carried something, so-called “nothing.” Do you understand? 
 
-For instance, I say, “Don’t think.” So, you try not to think – it means [you are] already thinking. The same applies to this question: “I have nothing to carry,” but the Zen Master says, “Put down the nothing.” But, he says, “I have nothing to put down, what should I put down?” So, the Zen Master says, “If you think so, well, you should carry it back to your home, if you think how important nothing is for you.” So, he always carried the nothing. But, not to carry the nothing means no more nothing. It’s already something. 
+For instance, I say, “Don’t think.” So, you try not to think – it means [you are] already thinking. The same applies to this [story]: “I have nothing to carry,” but the Zen Master says, “Put down the nothing.” But, he says, “I have nothing to put down, what should I put down?” So, the Zen Master says, “If you think so, well, you should carry it back to your home, if you think how important nothing is for you.” So, he always carried the nothing. But, not to carry the nothing means no more nothing. It’s already something. 
 
 So, the same applies to [this case] too. [San Sheng] experienced that wonderful [nirvana], freedom. So, he says, “What does the golden fish who passes through the net use for food?” That means already he [...] has carried the golden fish. So, that’s why Feng said, “When you come out of the net, I will tell you.” Once again you should come out of the net. 
 
@@ -152,51 +154,55 @@ And then,
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
-At that time it is said that [Feng] had twenty five hundred monks, and many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he says, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
+[...] It is said that [Feng] had [fifteen hundred] monks, many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he says, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
 
 But, 
 
 > Feng said, “My affairs as abbot are many and complicated.”
 
-It means, “My task as abbot makes me busy, so I don’t have enough time to discuss about it with you now.” So he said [that and] he left. 
+It means, “My task as abbot makes me busy, so I don’t have enough time to discuss it with you now.” So he said [that and] he left. 
 
-And that answer is [also] not a real answer, but he exactly had great skillful methods, so-called [“parry”]. Sometimes he had a skillful method so-called [thought]. But on the other hand, [parry]. Not escape. 
+And that is [also] not a real answer, but he exactly had great skillful methods, so-called [“parry”]. Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, [parry]. Not escape. 
   
 In the commentary, it says:
 
-> When these adepts met, there was one capture and one release – ...
+> When these adepts met, there was one capture and one release ...
 
-You have to capture, you have to take something; what you have to teach, you have to give. [...] In order to give, you have to take people; anyway, grasp him or her, and give. Simultaneously, you have to release. Let it go, anyway. 
+You have to capture, you have to take something, when you have to teach, you have to give. [...] You have to give; in order to give, you have to take people – anyway, grasp him or her, and give. Simultaneously, you have to release. Let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
 
-So, that [is the meaning of], “When these adepts met, there was one capture and one release.” 
+You can do it. For instance, a friend of mine, Yokoi Roshi, always taught me many things. One side of his life [toward] me was very, what would you say, strict; always he captured me. When he captured me, he never released me. He immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go. Because I can see his really deep compassion in his life toward me. 
 
-You can do it. For instance, a friend of mine, Yokoi Roshi, always taught me many things, but one side of his life taught me was very, what would you say, strict. Always he captured me. When he captured me, he never released me. He immediately captured me. But on the other hand, he released me. He let me free, always. That means compassion, always there is compassion. 
-
-So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go, because I can see his really deep compassion in his life toward me. So, that’s why, if you educate somebody, or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic. You have to release it, let it go. It means, [...] it requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there. And then you can teach. 
+So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic. You have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
 
 *[Tape change.]*
 
-> ... (each) acted weak when encountering strength and acted noble when encountering meanness. If you form your understanding in terms of victory and defeat, you haven’t seen Hsueh Feng even in dreams.
+> ... – (each) acted weak when encountering strength and acted noble when encountering meanness. If you form your understanding in terms of victory and defeat, you haven’t seen Hsueh Feng even in dreams.
 
-“Each acted weak when encountering strength.” When you see somebody always expressing his strength in front of you, you cannot fight; at that time, you should accept him very smoothly. In order to do this, you act weak. You cannot fight. If you fight with him or her, very naturally you express strength. Strength to strength, always fighting... no end of fighting. So if you see somebody expressing his strength, you act weak. That means, don’t fight with him or her. Very simply, softly, you can do. 
+“Each acted weak when encountering strength”: When you see somebody always expressing his strength in front of you, you cannot fight. At that time, you should accept him very smoothly. In order to do this, you act weak. You cannot fight; if you fight with him or her, very naturally you express strength. So strength to strength, always fighting... no end of fighting. 
 
-On the other hand, each “acted noble when encountering meanness.” You can experience such a situation always. There are some individuals who are always mean to you – [fooling] yourself, [fooling] others, using meanness, words. 
+So if you see somebody expressing his strength, you act weak. That means, don’t fight with him or her. Very softly, you can do. 
 
-I experienced that [...] seven years ago, when I was on Fifth Street Southeast. One of the Japanese college students at the University of Minnesota who studied science, he came with his friends visiting me, and said, immediately [one of his] first words was, “Are you a Zen Master? If you are a Zen Master, do you attain enlightenment? Are you an enlightened person?” This is his first words. That is so-called “meanness.” *[Laughter.]* It’s really mean. If you fight with this kind of words, you become mean. So, no end of fighting. 
+On the other hand, each “acted noble when encountering meanness.” You can experience such a situation always. There are always some individuals who are mean to you – [fooling] yourself, [fooling] others, using meanness, words. 
 
-So, I said, there are two things simultaneously exist in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is not to withdraw, not to lose. But, if some person is pretty weak, sometimes you should push. Push in or push out. Do something initiatively. If somebody really puts you down, well, you should be noble. Anyway, you should be very noble, gentle, compassionate, and patient. 
+I experienced that [...] seven years ago, when I was on Fifth Street Southeast. One of the Japanese college students at the University of Minnesota who studied science, he came with his friends, visiting me, and immediately [some of his] first words were, “Are you a Zen Master? If you are a Zen Master, [...] are you an enlightened person?” These were his first words. That is so-called “meanness.” It’s really mean. *[Laughter.]* 
 
-Around your life, there are many people who put you down always, don’t you think? With words, with action. At that time, you shouldn’t “bark” at him or her always. Don’t bark back. Even though people bark at you, don’t bark back [at them]. You should be always noble. 
+So if you fight with this kind of words, you become mean. So no end of fighting. 
+
+So, I said, there are two things simultaneously exist in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? 
+
+But, [if] some person is pretty weak, sometimes you should push; push him or push her. Do something initiatively. 
+
+If somebody really puts you down, well, you should be noble. Anyway, you should be really noble: gentle, compassionate, and patient. Around your life, there are many people who put you down always, don’t you think? With words, with actions. At that time, you shouldn’t “bark” at him or her always. Don’t bark back. Even though people bark at you, don’t bark back [at them]. You should be always noble. 
 
 So, that’s why Zen Master Feng said, “My affairs as the abbot are many and complicated.” And he left!
 
-So, both Zen Masters were pretty good in this koan. But, they are not discussing about victory or defeat. Both are great Zen teachers. The important point is, you cannot fight each other. You shouldn’t fight. But both Zen Masters accept very smoothly a certain situation, expressing his noble attitude toward a person who is expressing meanness. Just accept the situation, instead of fighting. This is very important. 
+Both Zen Masters were pretty good in this koan. But, they are not discussing about victory or defeat. Both are great Zen teachers. The important point is, you cannot fight each other. You shouldn’t fight. But both Zen Masters accept very smoothly a certain situation, expressing his noble attitude toward a person who is expressing meanness. Just accept the situation, instead of fighting. This is very important. 
 
-So, from this point, San Sheng accepts his experience, but instead of expressing his strength, anyway, he should express nobility. Gentle, because, he expressed his strength, because he really realized great nirvana, freedom, which is strength. So, he expresses strength when encountering strength. That is called sitting on the chair of nirvana, enlightenment. You cannot do that. 
+So, from this point, San Sheng accepts his experience, but instead of expressing his strength, he should express [nobility, gentleness]. He expressed his strength, because he really realized great nirvana, freedom, which is strength – so he expresses strength when encountering strength. That is called sitting on the chair of nirvana, enlightenment. You cannot do that. 
 
 That’s why in Buddhism, always you achieve a certain stage, and you should stand up from that seat and move. Then you reach a certain stage, and you should stand up from *that* seat and move. Instead of always staying there. You cannot do [that]. 
 
-So, constantly, you have to do it. If you do something, very naturally, you can get a result, but you cannot stay with the result always. Even the good, even the bad. Stand up quickly, as soon as possible, and move. Walking straightly. 
+So, constantly, you have to do it. If you do something, very naturally, you can get a result. But you cannot stay with the result always. Even the good, even the bad. Stand up quickly, as soon as possible, and move, walking straightly. 
 
 So, that is the meaning of this case. 
 
@@ -210,9 +216,9 @@ Do you have questions?
 
 **Questioner:** In several years of listening to talks about Zen, I have never heard talk about taking initiative before. I’m curious, why is it that this is the first time? 
 
-**Katagiri Roshi:** Zen is a kind of way of living, of taking initiative. For instance, the expression is different, [but] Zen says, “Be master of yourself in whatever situation you may be.” This is a way to live your life initiatively. Do you understand? 
+**Katagiri Roshi:** Oh. Zen is a kind of way of living, taking initiative. For instance, the expression is different, [but] Zen says, “Be master of yourself in whatever situation you may be.” This is a way to live your life initiatively. Do you understand? 
 
-But “taking initiative” doesn’t mean to rush into a certain destination blindly. People usually say, “You should do something positively”; that means people always do something positively. Pretty good, but they don’t understand human life in the broadest perspective, [but] with pretty narrow understanding. And then if you take initiative in your life, it’s trouble. Do you understand the difference? 
+But “taking initiative” doesn’t mean to rush into a certain destination blindly. People usually say, “You should do something positively.” That means people always do something positively – pretty good, but they don’t understand human life in the broadest perspective, [but] with pretty narrow understanding. And then if you take initiative in your life, it’s trouble. Do you understand the difference? 
 
 #### 50:50
 
@@ -222,37 +228,35 @@ But “taking initiative” doesn’t mean to rush into a certain destination bl
 
 **Questioner:** But I was thinking that just the knowledge and experiencing something is a totally different thing. 
 
-**Katagiri Roshi:**  Yes, totally different. But you should know also something which happens totally different, before you think, on the way to experience. On the way to experience, sometimes something happens totally different which you have never thought before. You should know this, too. 
+**Katagiri Roshi:**  Yes, totally different. But you should know also something which happens totally different, before you think, on the way to experience. On the way to experience, sometimes something happens totally different, which you have never thought before. You should know this, too. 
 
 **Questioner:** *[Unintelligible.]*
 
-**Katagiri Roshi:** Experience is important. I don’t mean you *shouldn’t* experience. Sometimes you *have to* experience, even though you know what it is before you do. Okay? Sometimes you have to do [something]. But sometimes, not everything. [...] So that’s why you have to consider carefully [...] whether you should do [something] or you shouldn’t do it, understanding yourself and also your object. 
+**Katagiri Roshi:** Experience is important. I don’t mean you *shouldn’t* experience. Sometimes you *have to* experience, even though you know what it is before you do. Okay? Sometimes you have to do [something]. But [...] not everything. [...] So that’s why you have to consider carefully [...] whether you should do [something] or you shouldn’t do it, understanding yourself and also your object. 
 
-For instance, taking marijuana and drugs. One of the Zen teachers was forced by the students to take marijuana, and then he became a sick. Because he was interested in tasting. But he was sick. But I don’t think it’s necessary to become sick, anyway. So, if you know what the marijuana is – oh fantastic, wonderful, in a sense, wonderful. But you should know who you are, physically or mentally. Okay? And also you should know what the marijuana is. 
+For instance, [...] marijuana and drugs. One of the Zen teachers was forced by the students to take marijuana, and then he became sick. Because he was interested in the tasting, *[he laughs,]* but he [became] sick. But I don’t think it’s necessary to become sick. So if you know what the marijuana is – fantastic, in a sense, wonderful. But you should know who you are, physically or mentally. Okay? And also you should know what the marijuana is. 
 
 Sometimes people attain [a] kind of enlightenment by taking marijuana, of course. But it’s not universal, anyway. *[Laughter.]* It doesn’t fit to your life sometimes. 
 
 Is that okay?
 
-**Questioner:** ... Maybe this is a kind of stupid question, but about marijuana and, well, maybe there are some drugs. Assuming if you take that drug, you can attain enlightenment. And if you have enough of that drug through your whole life, so you can keep up your enlightenment, that’s your life. 
+**Questioner:** ... Maybe this is a kind of stupid question, but about marijuana and, well, maybe there are some drugs. Assuming if you take that drug, you can attain enlightenment. And if you have enough of that drug through your whole life, so you can keep up your enlightenment the rest of your life...
 
-**Katagiri Roshi:** Mm-mm. (No.) *[Laughter.]*
+**Katagiri Roshi:** Mm-mm. (No.) *[Laughter.]* There is no guarantee. *[He laughs.]* 
 
-There is no guarantee. *[He laughs.]* 
-
-**Questioner:** Yeah, but I just wonder, that enlightenment and the enlightenment by yourself could be different? 
+**Questioner:** Yeah, but I was just wondering, is that enlightenment and the enlightenment by yourself, could it be different? 
 
 **Katagiri Roshi:** Different from what? Enlightenment through Zen?
 
 **Questioner:** Mm-hmm.
 
-**Katagiri Roshi:** Oh... kind of. Pretty close, but not *exactly*. Pretty close. 
+**Katagiri Roshi:** Um... kind of... Pretty close, but not *exactly*. Pretty close. 
 
-I know there are some people who attain enlightenment. I don’t know whether we should call it enlightenment or not. [...] Maybe there is some appropriate term, but I don’t know exactly. So [...] let me say [...] enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that I mention always, whatever it is, you cannot sit on the chair of something [...] always. Because “always” is everything is changing. 
+I know there are some people who attain enlightenment. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something, always. [Because “always” is everything is changing.]
 
 #### 56:05
 
-**Questioner:** Hojo-san, I’m still confused by the question that... well, not necessarily marijuana or drugs, but just the thing of... how can you know about something before you’re dealing with it or have experience with it?
+**Questioner:** Hojo-san, I’m still confused by the question... well, not necessarily marijuana or drugs, but just the thing of... how can you know about something before you’re dealing with it or have experience with it?
 
 **Katagiri Roshi:** Through a book...
 
@@ -262,13 +266,13 @@ I know there are some people who attain enlightenment. I don’t know whether we
 
 **Questioner:** Sure. But then you can say, many people read about Zen before they come to Zen center or get involved. But when they’re reading, it’s not exactly it, when you’re coming and are practicing. 
 
-**Katagiri Roshi:** Yes, spiritual experience is something important to you, because you have to experience it. But religion is not always to taste water, always. Not to make experiments, always. Religion is to experience something, you should make experiment or you shouldn’t make experiment, both. Because you cannot make experiment of everything. Don’t you think? 
+**Katagiri Roshi:** Yes, spiritual experience is something important to you, because you have to experience. But religion is not always to “taste the water,” always. Not to make an experiment, always. Religion is to experience something, you should make experiment or you shouldn’t make experiment, both. Because you cannot make experiment of everything. Don’t you think? 
 
-For instance, going to the moon. *[He laughs.]* How can you go to the moon? Maybe next century, you will be able to go, if you [are alive]. But now, no chance. But, you cannot ignore that situation. So in order to understand the human world, human beings very deeply, you have to know that human world, the human beings, which you can make experiment of them, and which you can make experiment, like going to the moon. Okay? 
+For instance, going to the moon. *[He laughs.]* How can you go to the moon, now? Maybe next century, you will be able to go, if you [are alive]. But now, no chance. But, you cannot ignore that situation. So in order to understand the human world, human beings very deeply, you have to know that human world, the human beings, which you can make an experiment of them, and which you cannot make an experiment, like going to the moon. Okay? 
 
 *[Long pause.]*
 
-Some people misunderstand Zen, saying Zen teaching is to know by themselves, to know that the water [...] is cold, by drinking. Do you understand? It’s not Zen, anyway. Because to know something by your experience is something [parallel] to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold, include, [the] whole thing. Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
+Some people misunderstand Zen, saying Zen is, *[unintelligible]* is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold, include, [the] whole thing. Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
 
 *[Closing chant.]*
 
@@ -278,4 +282,4 @@ Some people misunderstand Zen, saying Zen teaching is to know by themselves, to 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1983-10-29-Arts-and-Buddhism) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | Series: [*Blue Cliff Record*](blue-cliff-record)
