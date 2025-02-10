@@ -50,7 +50,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 The first one, “piercing, penetrating, one takes the drum and captures the flag,” means offense of the fortress, as an example. The second one, “fortified, entrenched, one inspects the front and oversees the rear,” means defense of the fortress. 
 
-“Piercing, penetrating, one takes the drum and captures the flag”: [...] defense and offense, both exist simultaneously in our lives. 
+[...] Defense and offense, both exist simultaneously in our lives. 
 
 “Piercing, penetrating”: when you try to educate, when you try to teach somebody, you have to “pierce.” “You have to pierce” means you have to hit the drum, and take away the flag of [the] egoistic sense. The word “piercing” means, even if you use [only] one word, [that] one word must be piercing into the human heart. And also, that education must be “penetrating” others. That means your education – with words, with mind, with attitude – must be based on *compassion*. Otherwise, you cannot penetrate. 
 
@@ -64,7 +64,7 @@ If you read the *Diamond Sutra*, it always [talks about] bodhisattvas’ life, [
 
 Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left... nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them, you fall into the pitfalls. In other words, multiple obstacles. 
 
-I was pretty often asked by people to try [or to taste] a new drug, particularly in the 1970s. People tried to let me experience drugs and marijuana, et cetera. *[He chuckles.]* But fortunately, I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
+I was pretty often asked by people to try [or to taste] a new drug, particularly in the 1970s. People tried to let me experience drugs and marijuana, et cetera. But fortunately, I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
 
 But many people believe that you should experience *everything*. No, you cannot experience *everything*, okay? If you try to experience everything, it makes you confused. Because if you act, the result of your action becomes a ghost... something more than you have expected. That is actions. 
 
@@ -162,7 +162,7 @@ But,
 
 It means, “My task as abbot makes me busy, so I don’t have enough time to discuss it with you now.” So he said [that and] he left. 
 
-And that is [also] not a real answer, but he exactly had great skillful methods, so-called [“parry”]. Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, [parry]. Not escape. 
+And that is [also] not a real answer, but he exactly had great skillful methods, so-called “parry.”. Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. Not escape. 
   
 In the commentary, it says:
 
