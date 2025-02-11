@@ -260,7 +260,7 @@ I know there are some people who attain enlightenment (that way). I don’t know
 
 **Questioner:** Sure. But then you can say, many people read about Zen before they come to Zen center or get involved. But when they’re reading, it’s not exactly it, when you’re coming and are practicing. 
 
-**Katagiri Roshi:** Yes, spiritual experience is something important to you, because you have to experience. But religion is not always to “taste the water,” always. Not to make an experiment, always. Religion is to experience something, you should make experiment or you shouldn’t make experiment, both. Because you cannot make experiment of everything. Don’t you think? 
+**Katagiri Roshi:** Yes, spiritual experience is something important to you, because you have to experience. But religion is not always to “taste the water” always, not to make an experiment always. Religion is, to experience something you should make experiment or you shouldn’t make experiment, both. Because you cannot make experiment of everything. Don’t you think? 
 
 For instance, going to the moon. *[He laughs.]* How can you go to the moon, now? Maybe next century, you will be able to go, if you [are alive]. But now, no chance. But, you cannot ignore that situation. So in order to understand the human world, human beings very deeply, you have to know that human world, the human beings, which you can make an experiment of them, and which you cannot make an experiment, like going to the moon. Okay? 
 
