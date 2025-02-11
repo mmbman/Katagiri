@@ -250,8 +250,18 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 
 ---
 
-- Case 49 Talk 1
-- Case 49 Talk 2
+##### [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
+
+Never rest on your so-called enlightenment. Katagiri Roshi discusses the relationship between communication and boundaries. It’s all food for the fish.
+
+---
+
+##### [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
+
+Katagiri Roshi explains that there are two facets of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must practice both, constantly – rolling like a ball, in the eight worldly winds. Also, the meaning of *not killing*.
+
+---
+
 - Case 50
 - Case 51 Talk 1
 - Case 51 Talk 2

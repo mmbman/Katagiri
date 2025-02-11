@@ -6,6 +6,10 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 #### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
+### Summary
+
+Never rest on your so-called enlightenment. Katagiri Roshi discusses the relationship between communication and boundaries. It’s all food for the fish.
+
 ### Transcript
 
 <p align="center" style="font-style: italic">

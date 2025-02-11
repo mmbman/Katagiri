@@ -6,6 +6,10 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 #### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
+### Summary
+
+Katagiri Roshi explains that there are two facets of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must practice both, constantly – rolling like a ball, in the eight worldly winds. Also, the meaning of *not killing*.
+
 ### Transcript
 
 <p align="center" style="font-style: italic">
