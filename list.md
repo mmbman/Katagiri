@@ -138,7 +138,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Westerners' Reluctance Toward Bowing – Part 2
 
 1. [*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
-1. [“*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2”](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
+1. [*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
 
 ### 1984
 
