@@ -4,7 +4,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ## December 21, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -278,4 +278,4 @@ Nevertheless, you cannot be tossed away, you cannot [panic], even though you can
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) | [Previous](1983-10-29-Arts-and-Buddhism) | [Next](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2) | Series: [*Blue Cliff Record*](blue-cliff-record)

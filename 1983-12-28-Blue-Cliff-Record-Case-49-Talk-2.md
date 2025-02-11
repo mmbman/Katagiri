@@ -4,7 +4,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ## December 28, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1983-10-29-Arts-and-Buddhism) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -51,7 +51,7 @@ So that [is the meaning of] “stop saying he tarries in the water.” It doesn�
 
 So he has a great power. For instance, if your view [...] of the human world is changing in many ways – in other words, if you can see the human world in a universal perspective – very naturally you can get vitality, power of living. 
 
-But nevertheless, he is always flapping in the wind, from the east, from the north, from the south – he is just like a flag flapping, always. But nevertheless, the center of his life is very heavy. He doesn't move, he just stands alone, unmoved. [...] He is completely standing alone: *alone* means he himself exists in this world, with nothing to compare with him. That is called *aloneness*, alone. 
+Nevertheless, he is always flapping in the wind, from the east, from the north, from the south – he is just like a flag flapping, always. But nevertheless, the center of his life is very heavy. He doesn't move, he just stands alone, unmoved. [...] He is completely standing alone: *alone* means he himself exists in this world, with nothing to compare with him. That is called *aloneness*, alone. 
 
 That attitude [or] spirit of life has very strong power, that's why he shakes the heavens and sweeps the earth. So wherever he may go, he is always standing alone, unmoved; but he is always flapping in the wind, accommodating to a certain situation. Handling [the situation], but he is always stable, not completely carried away. 
 
@@ -65,7 +65,7 @@ So that is “he shakes the heavens and sweeps the earth.”
 
 ... So that is just like a thousand foot whale [spouting]. Very vital. Very powerful. Very stable, unmovable. That is just like spring water coming up from the ground. So that is, here it says, the “thousand foot whale spouts.”
 
-And finally “vast waves fly.” It's coming up. That means always he is moving, wherever he may go – small waves, big waves. And also he is really educating, teaching somebody, [...] giving something constantly. Small waves, big waves... sometimes very calm. But always, he is giving. 
+And finally “vast waves fly.” It's coming up. That means always he is moving, wherever he may go – small waves, big waves. And also he is really educating, teaching somebody, [...] giving something constantly. Small waves, big waves... sometimes very calm. But always he is giving. 
 
 So when “a thousand foot whale spouts,” he educates the whole world. He educates, he gives something wonderful to human beings. So that is, here it says, “vast waves fly.” 
 
@@ -88,13 +88,13 @@ The point that I want to tell you is that there are two practices in Buddhism. O
 
 Those two practices must be done [by] everyone, in your whole life. Even though you reach a certain stage, still you practice those two. 
 
-In other words, *the way-seeking mind constantly seeking for the truth* means that you educate yourself as a pianist if you want to be a pianist. In the world of music, you have to educate yourself constantly in the world of music. So, if you really devote yourself to study and practice the piano, very naturally you can be a pianist. That is the way-seeking mind toward the truth, constantly. It means, very naturally, you have to study how to become a pianist intellectually, or in many ways, you have to learn. Under the guidance of a teacher, you have to learn theoretically, and also practically, you have to do. 
+In other words, *the way-seeking mind constantly seeking for the truth* means that you educate yourself as a pianist if you want to be a pianist. In the world of music, you have to educate yourself constantly in the world of music. So, if you really devote yourself to study and practice the piano, very naturally you can be a pianist. That is the way-seeking mind toward the truth, constantly. It means, very naturally, you have to study how to become a pianist intellectually, or in many ways you have to learn. Under the guidance of a teacher, you have to learn theoretically, and also practically, you have to do. 
 
 Very naturally, you can reach a certain stage. But it's not good enough. Next, you have to practice how to descend to the human world. *The way-seeking mind to descend to the human world* means ... you as a human being must be fascinating. [...] Your personality, your life, your presence of your personality must be captivating, fascinating, or charming, which is indescribable. That fascinating personality and human life hits people's heart directly, simultaneously, the moment when you see him or her. So that is the depth of human life. 
 
 So you have to seek for the truth in order to be a pianist, and then you can be a pianist pretty easily in the world of music. But it's not good enough, because you have to deepen your life – something more than a pianist, but [rather], as a human. That means you have to go beyond pianist, you have to educate yourself [as] something more than pianist. 
 
-It is pretty easy for us to educate somebody in a certain realm – the so-called music world, or art world. If you try to educate somebody, it's pretty easy. But it's not so easy to educate a person who is going beyond artist or musician. But this is very important, otherwise you cannot have a depth of human life which is very charming and fascinating, appealing to everyone, simultaneously, beyond human speculation. 
+It is pretty easy for us to educate somebody in a certain realm – the so-called music world, or art world. If you try to educate somebody [in that], it's pretty easy. But it's not so easy to educate a person who is going beyond artist or musician. But this is very important, otherwise you cannot have a depth of human life which is very charming and fascinating, appealing to everyone, simultaneously, beyond human speculation. 
 
 I told you before, that person who has charming and fascinating personality of his life, his attitude toward human life is pretty flexible and soft, but very stable. I always tell you, you must be always like a ball. A ball has a center; the center never changes, wherever the ball rolls. The center of the ball is always the center of the ball, wherever it may go. That is important, but on the other hand, you have to move, wherever you may go. You have to become master of yourself in whatever situation you may be. That means, you have to go. You have to make a choice of direction, and you have to go. 
 
@@ -114,9 +114,9 @@ So, eulogy and praise, very naturally after doing something, there are lots of p
 
 But anyway, even though this person stands right in the middle of eight winds, he keeps standing alone, unmoved. This is this old man, Seppo Zen Master. 
 
-[...] The monk Sheng says, “The teacher of 1500 people, and you don’t even know what to say!” So, finally [Seppo Zen Master] says, “I am pretty busy.” Because Seppo Zen Master was a pretty famous teacher at that time. So the monk Sheng gives a kind of meanness; he deals with Seppo Zen Master very meanly. But Seppo Zen Master didn’t say anything [about that]; he says, “My temple affairs are pretty busy.” So he left. He didn’t fight with him. Very naturally, very smoothly, he “parried,” [...] saying, “I am pretty busy with taking care of my temple affairs.” It’s pretty difficult to say so, because if people bark at you, very naturally, immediately, you want to bark back! That’s very common. But he didn’t! He just said so and left. 
+So, finally [Seppo Zen Master] says, “I am pretty busy.” [Because] the monk Sheng says, “The teacher of 1500 people, and you don’t even know what to say!” [...] Seppo Zen Master was a pretty famous teacher at that time. So the monk Sheng gives a kind of meanness; he deals with Seppo Zen Master very meanly. But Seppo Zen Master didn’t say anything [about that]; he says, “My temple affairs are pretty busy.” So he left. He didn’t fight with him. Very naturally, very smoothly, he “parried,” [...] saying, “I am pretty busy with taking care of my temple affairs.” It’s pretty difficult to say so, because if people bark at you, very naturally, immediately, you want to bark back! That’s very common. But he didn’t. He just said so and left. 
 
-So, the two practices. If you [only] practice one, so-called *seeking for the truth* – always developing your life, going up, always trying to go up – you can get certain stage, and you can be successful in doing something. But there is no depth of human life. There is nothing fascinating. No spirit, no personality which people are impressed by. So, very naturally, we are seeking for the truth, but simultaneously we have to practice it in everyday life. How you [think it], how you put it into everyday practice. 
+So, the two practices: if you [only] practice one, so-called *seeking for the truth* – always developing your life, going up, always trying to go up – you can get certain stage, and you can be successful in doing something. But there is no depth of human life. There is nothing fascinating. No spirit, no personality which people are impressed by. So, very naturally, we are seeking for the truth, but simultaneously we have to practice it in everyday life. How you [think it], how you put it into everyday practice. 
 
 For instance, *not killing*. Trying not to kill is a kind of “going up.” So, very naturally, if you have this strong spirit, if you see somebody who killed, even by chance, even if not on purpose, you really criticize him or her, because you have a strong spirit of not killing. You want to go up, but people don’t. If you see the people who don’t have that strong spirit of going up, very naturally, you put them down. 
 
@@ -144,4 +144,4 @@ So, if you want to be a writer, generally, you can be a writer, pretty well, pre
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| [Next](1983-10-29-Arts-and-Buddhism) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
