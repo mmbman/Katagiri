@@ -62,7 +62,7 @@ In order to teach others, simultaneously you have to “defend” yourself, agai
 
 If you read the *Diamond Sutra*, it always [talks about] a bodhisattva’s life, [in] which they always are careful to take care of their life, watching over the many things externally and internally, so they don’t fall into a pitfall on purpose or consciously. 
 
-Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left, nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them, you fall into the pitfalls. In other words, multiple obstacles. 
+Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left, nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them you fall into the pitfalls, in other words, multiple obstacles. 
 
 I was pretty often asked by people to try [or to taste] a new drug, particularly in the 1970s. People tried to let me experience drugs and marijuana, et cetera. But fortunately I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
 
@@ -84,13 +84,11 @@ When I was a child, I had a very bad habit. Particularly in the winter, I went t
 
 That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed, loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
 
-And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively – instead of waiting for something to do, or always accepting myself not initiatively, always withdrawing, looking at myself objectively. That’s why consciously or unconsciously I criticized myself; so [that] criticism made me tired. Even a child does in that way. 
-
-So, that’s why my father scolded me very much, but I didn’t understand. So, when I went to high school, we had to practice *judo*, with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. That was pretty good for me. I realized I can do something positively, I can do something pretty good. So since then, I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
+And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively. Instead of waiting for something to do, or always accepting myself not initiatively, always withdrawing, looking at myself objectively – that’s why consciously or unconsciously I criticized myself, so [that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much, but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. That was pretty good for me. I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
 
 So, since then, I really understand myself, that I should do something positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
 
-Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly. As best as you can, you have to know, you have to understand something, well, as much as possible. But still you cannot see the clear answer [of whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
+Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly – as best as you can, you have to know, you have to understand something, as much as possible. But still you cannot see the clear answer [of whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
 
 But most people don’t do this. [They] always criticize, because [they] always try to get some clear answer, “I can do” or “I cannot do.” Sometimes you can see [whether you can do it]; sometimes there is something you cannot know. 
 
@@ -120,7 +118,9 @@ The “ox’s head disappears and a horse’s head returns” means to do someth
 
 Well, you can see such a person. Baker Roshi in San Francisco: he is very smart, he uses words very [well], so people are very impressed by his words. So that is a teaching; pretty good. Very [quick]. 
 
-If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. But here it says, nevertheless, it is not good enough. 
+If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. 
+
+But here it says, nevertheless, it is not good enough. 
 
 > But say, how is it when a man who has passed beyond measurements comes? To test I am citing this old case: look!
 
@@ -142,9 +142,9 @@ So, what does the golden fish who has passed through the net use for food?
 
 Well, San Sheng’s [...] saying like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But that he said [something] like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
 
-For instance, [a monk asked Zhaozhou Zen Master], “I [am carrying nothing on my back], what should I drop off?” In other words, he attained enlightenment, so-called nothing: “I [am carrying] nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] says, “I [am already carrying] nothing, what should I put down?” The Zen Master says, “Please go home [carrying that].” Do you understand? “Go back home [...] with nothing.” It means [the monk] didn’t understand *nothing*. “Nothing to carry” – but he already carried something, so-called “nothing.” Do you understand? 
+For instance, [a monk asked Zhaozhou Zen Master], “I [am carrying nothing on my back], what should I drop off?” In other words, he attained enlightenment, so-called nothing: “I [am carrying] nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] says, “I [am already carrying] nothing, what should I put down?” The Zen Master says, “Please go home [carrying that].” Do you understand? “Go back home [...] with nothing.” It means [the monk] didn’t understand *nothing*. “Nothing to carry” – but he already carried something, so-called “nothing.”
 
-For instance, I say, “Don’t think.” So you try not to think – it means [you are] already thinking. The same applies to this [story]: “I have nothing to carry,” but the Zen Master says, “Put down the nothing.” “But,” he says, “I have nothing to put down, what should I put down?” So, the Zen Master says, “If you think so, well, you should carry it back to your home, if you think how important nothing is for you.” So, he always carried the nothing. But, not to carry the nothing means no more nothing; it’s already something. 
+For instance, I say, “Don’t think.” So you try not to think – it means [you are] already thinking. The same applies to this [story]: “I have nothing to carry,” but the Zen Master says, “Put down the nothing.” “But,” [the monk] says, “I have nothing to put down, what should I put down?” So, the Zen Master says, “If you think so, you should carry it back to your home, if you think how important nothing is for you.” So, he always carried the nothing. But to carry the nothing is no more nothing; it’s already something. 
 
 So, the same applies to [this case] too. [San Sheng] experienced that wonderful [nirvana], freedom. So, he says, “What does the golden fish who passes through the net use for food?” That means already he [...] has carried the golden fish. So, that’s why Feng said, “When you come out of the net, I will tell you.” Once again you should come out of the net. 
 
@@ -154,7 +154,7 @@ And then,
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
-[...] It is said that [Feng] had many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he says, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
+[...] It is said that [Feng] had [...] many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
 
 But, 
 
@@ -162,9 +162,9 @@ But,
 
 It means, “My task as abbot makes me busy, so I don’t have enough time to discuss it with you now.” So he said [that and] he left. 
 
-And that is [also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. Not escape. 
+And that is [also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. [It’s] not escape. 
   
-In the commentary, it says:
+So, in the commentary, it says:
 
 > When these adepts met, there was one capture and one release ...
 
