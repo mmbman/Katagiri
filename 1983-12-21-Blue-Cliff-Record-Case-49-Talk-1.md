@@ -56,15 +56,15 @@ The first one, “piercing, penetrating, one takes the drum and captures the fla
 
 So, here it says, “one takes the drum.” That means using the expedient ways, expedient methods – words, physical actions, and also thinking. Anyway, we can approach to the people and teach, and educate; simultaneously that expedient method must penetrate the other’s life. So that is “offense,” offense of the fortress. 
 
-When you teach, positively you have to teach, you have to educate. Initiatively, you have to move toward. For this, that education or teaching requires kindness, compassion. In other words, true heart: looking [at] human life for the long run, and *then* you have to teach. Even though you use one word which is very piercing into other people’s hearts, it is not something “piercing,” because it is based on compassion. Compassion lets you see human life, your life and others’ life, for the long run. Otherwise, your education, your teaching, and your presence doesn’t penetrate others. So that’s why positively you have to take care of your life, and also you have to teach others’ lives. 
+When you teach, positively you have to teach, you have to educate. Initiatively, you have to move toward. For this, that education or teaching requires kindness, compassion. In other words, true heart: looking [at] human life for the long run, and *then* you have to teach. Even though you use one word which is very piercing into other people’s hearts, it is not something “piercing,” because it is based on compassion. Compassion lets you see human life, your life and others’ life, for the long run; otherwise, your education, your teaching, and your presence doesn’t penetrate others. So that’s why positively you have to take care of your life, and also you have to teach others’ lives. 
 
 In order to teach others, simultaneously you have to “defend” yourself, against external [and] internal attacks. That means, externally, internally, there are *many* things. So you have to know the many things externally, you have to know many things internally. That means you have to know yourself, your past life, and present life, future life, and also front and back, and to the right, to the left – you have to know many things. And then you can defend yourself against external and internal attack.
 
-If you read the *Diamond Sutra*, it always [talks about] bodhisattvas’ life, [in] which they always are careful to take care of their life, watching over the many things externally and internally, so they don’t fall into a pitfall on purpose or consciously. 
+If you read the *Diamond Sutra*, it always [talks about] a bodhisattva’s life, [in] which they always are careful to take care of their life, watching over the many things externally and internally, so they don’t fall into a pitfall on purpose or consciously. 
 
-Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left... nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them, you fall into the pitfalls. In other words, multiple obstacles. 
+Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left, nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them, you fall into the pitfalls. In other words, multiple obstacles. 
 
-I was pretty often asked by people to try [or to taste] a new drug, particularly in the 1970s. People tried to let me experience drugs and marijuana, et cetera. But fortunately, I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
+I was pretty often asked by people to try [or to taste] a new drug, particularly in the 1970s. People tried to let me experience drugs and marijuana, et cetera. But fortunately I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
 
 But many people believe that you should experience *everything*. No, you cannot experience *everything*, okay? If you try to experience everything, it makes you confused. Because if you act, the result of your action becomes a ghost... something more than you have expected. That is actions. 
 
@@ -84,13 +84,13 @@ When I was a child, I had a very bad habit. Particularly in the winter, I went t
 
 That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed, loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
 
-And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively – instead of waiting for something to do, or always accepting myself, you know, not initiatively, always withdrawing, looking at myself objectively. That’s why consciously or unconsciously I criticized myself, so [that] criticism made me tired. Even a child does in that way. 
+And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively – instead of waiting for something to do, or always accepting myself not initiatively, always withdrawing, looking at myself objectively. That’s why consciously or unconsciously I criticized myself; so [that] criticism made me tired. Even a child does in that way. 
 
 So, that’s why my father scolded me very much, but I didn’t understand. So, when I went to high school, we had to practice *judo*, with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. That was pretty good for me. I realized I can do something positively, I can do something pretty good. So since then, I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
 
-So, since then, I really understand myself, that I should do something positively. Positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
+So, since then, I really understand myself, that I should do something positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
 
-Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly; as best as you can, you have to know; you have to understand something, well, as much as possible. But still you cannot see the clear answer, [whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
+Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly. As best as you can, you have to know, you have to understand something, well, as much as possible. But still you cannot see the clear answer [of whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
 
 But most people don’t do this. [They] always criticize, because [they] always try to get some clear answer, “I can do” or “I cannot do.” Sometimes you can see [whether you can do it]; sometimes there is something you cannot know. 
 
@@ -118,9 +118,9 @@ So, that’s why here it says, “One who sits on the tiger’s head to take the
 
 The “ox’s head disappears and a horse’s head returns” means to do something very quickly, [...] very smartly. Very swiftly, rapidly. You can teach, you can give some impression to people with a word. 
 
-Well, you can [imagine] such a person. Baker Roshi in San Francisco: he is very smart, he uses words very [well], so people are very impressed by his words. So that is a teaching; pretty good. Very [quick]. If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. 
+Well, you can see such a person. Baker Roshi in San Francisco: he is very smart, he uses words very [well], so people are very impressed by his words. So that is a teaching; pretty good. Very [quick]. 
 
-But here it says, nevertheless, it is not good enough. 
+If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. But here it says, nevertheless, it is not good enough. 
 
 > But say, how is it when a man who has passed beyond measurements comes? To test I am citing this old case: look!
 
@@ -140,11 +140,11 @@ So, what does the golden fish who has passed through the net use for food?
 
 > Feng said, “When you come out of the net I will tell you.”
 
-Well, San Sheng’s [...] saying like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But that he said like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
+Well, San Sheng’s [...] saying like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But that he said [something] like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
 
-For instance, [a monk asked Zhaozhou Zen Master], “I [am carrying nothing on my back], what should I drop off?” In other words, he attained enlightenment, so-called nothing, “I [am carrying] nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] says, “I [am already carrying] nothing on my back, what should I put down?” The Zen Master says, “Please go home [carrying that].” Do you understand? “Go back home [...] with nothing.” It means [the monk] didn’t understand *nothing*. “Nothing to carry” – but he already carried something, so-called “nothing.” Do you understand? 
+For instance, [a monk asked Zhaozhou Zen Master], “I [am carrying nothing on my back], what should I drop off?” In other words, he attained enlightenment, so-called nothing: “I [am carrying] nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] says, “I [am already carrying] nothing, what should I put down?” The Zen Master says, “Please go home [carrying that].” Do you understand? “Go back home [...] with nothing.” It means [the monk] didn’t understand *nothing*. “Nothing to carry” – but he already carried something, so-called “nothing.” Do you understand? 
 
-For instance, I say, “Don’t think.” So, you try not to think – it means [you are] already thinking. The same applies to this [story]: “I have nothing to carry,” but the Zen Master says, “Put down the nothing.” But, he says, “I have nothing to put down, what should I put down?” So, the Zen Master says, “If you think so, well, you should carry it back to your home, if you think how important nothing is for you.” So, he always carried the nothing. But, not to carry the nothing means no more nothing. It’s already something. 
+For instance, I say, “Don’t think.” So you try not to think – it means [you are] already thinking. The same applies to this [story]: “I have nothing to carry,” but the Zen Master says, “Put down the nothing.” “But,” he says, “I have nothing to put down, what should I put down?” So, the Zen Master says, “If you think so, well, you should carry it back to your home, if you think how important nothing is for you.” So, he always carried the nothing. But, not to carry the nothing means no more nothing; it’s already something. 
 
 So, the same applies to [this case] too. [San Sheng] experienced that wonderful [nirvana], freedom. So, he says, “What does the golden fish who passes through the net use for food?” That means already he [...] has carried the golden fish. So, that’s why Feng said, “When you come out of the net, I will tell you.” Once again you should come out of the net. 
 
@@ -154,7 +154,7 @@ And then,
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
-[...] It is said that [Feng] had [fifteen hundred] monks, many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he says, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
+[...] It is said that [Feng] had many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he says, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
 
 But, 
 
@@ -162,17 +162,17 @@ But,
 
 It means, “My task as abbot makes me busy, so I don’t have enough time to discuss it with you now.” So he said [that and] he left. 
 
-And that is [also] not a real answer, but he exactly had great skillful methods, so-called “parry.”. Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. Not escape. 
+And that is [also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. Not escape. 
   
 In the commentary, it says:
 
 > When these adepts met, there was one capture and one release ...
 
-You have to capture, you have to take something, when you have to teach, you have to give. [...] You have to give; in order to give, you have to take people – anyway, grasp him or her, and give. Simultaneously, you have to release. Let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
+You have to capture, you have to take something, when you have to teach, you have to give. [...] In order to give, you have to take people – anyway, grasp him or her, and give. Simultaneously, you have to release. Let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
 
 You can do it. For instance, a friend of mine, Yokoi Roshi, always taught me many things. One side of his life [toward] me was very, what would you say, strict; always he captured me. When he captured me, he never released me. He immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go. Because I can see his really deep compassion in his life toward me. 
 
-So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic. You have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
+So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic; you have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
 
 *[Tape change.]*
 
@@ -188,9 +188,7 @@ I experienced that [...] seven years ago, when I was on Fifth Street Southeast. 
 
 So if you fight with this kind of words, you become mean. So no end of fighting. 
 
-So, I said, there are two things simultaneously exist in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? 
-
-But, [if] some person is pretty weak, sometimes you should push; push him or push her. Do something initiatively. 
+[As] I said, there are two things simultaneously exist[ing] in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? But, [if] some person is pretty weak, sometimes you should push; push him or push her. Do something initiatively. 
 
 If somebody really puts you down, well, you should be noble. Anyway, you should be really noble: gentle, compassionate, and patient. Around your life, there are many people who put you down always, don’t you think? With words, with actions. At that time, you shouldn’t “bark” at him or her always. Don’t bark back. Even though people bark at you, don’t bark back [at them]. You should be always noble. 
 
@@ -222,17 +220,17 @@ But “taking initiative” doesn’t mean to rush into a certain destination bl
 
 #### 50:50
 
-**Question:** I have a question. You said if you know something before, you don’t need to get into to experience about that. 
+**Question:** I have a question. You said if you know something before, you don’t need to get into [it] to experience about that. 
 
 **Katagiri Roshi:** Mm-hmm.
 
-**Questioner:** But I was thinking that just the knowledge and experiencing something is a totally different thing. 
+**Questioner:** But I was thinking that just knowledge and experiencing something is a totally different thing. 
 
-**Katagiri Roshi:**  Yes, totally different. But you should know also something which happens totally different, before you think, on the way to experience. On the way to experience, sometimes something happens totally different, which you have never thought before. You should know this, too. 
+**Katagiri Roshi:** Yes, totally different. But you should know also something which happens, totally different, before you think, on the way to experience. On the way to experience, sometimes something happens totally different, which you have never thought before. You should know this, too. 
 
 **Questioner:** *[Unintelligible.]*
 
-**Katagiri Roshi:** Experience is important. I don’t mean you *shouldn’t* experience. Sometimes you *have to* experience, even though you know what it is before you do. Okay? Sometimes you have to do [something]. But [...] not everything. [...] So that’s why you have to consider carefully [...] whether you should do [something] or you shouldn’t do it, understanding yourself and also your object. 
+**Katagiri Roshi:** Experience is important. I don’t mean you *shouldn’t* experience. Sometimes you *have to* experience, even though you know what it is before you do. Okay? Sometimes you have to do [something]. But [...] not everything. [...] So that’s why you have to consider carefully [...] whether you should do [something] or you shouldn’t do it. Understanding yourself, and also your object. 
 
 For instance, [...] marijuana and drugs. One of the Zen teachers was forced by the students to take marijuana, and then he became sick. Because he was interested in the tasting, *[he laughs,]* but he [became] sick. But I don’t think it’s necessary to become sick. So if you know what the marijuana is – fantastic, in a sense, wonderful. But you should know who you are, physically or mentally. Okay? And also you should know what the marijuana is. 
 
@@ -250,19 +248,15 @@ Is that okay?
 
 **Questioner:** Mm-hmm.
 
-**Katagiri Roshi:** Um... kind of... Pretty close, but not *exactly*. Pretty close. 
+**Katagiri Roshi:** Um... kind of... pretty close, but not *exactly*. Pretty close. 
 
-I know there are some people who attain enlightenment (that way). I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something, always. [Because “always” is everything is changing.]
+I know there are some people who attain enlightenment (that way). I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is everything is changing.]
 
 #### 56:05
 
 **Questioner:** Hojo-san, I’m still confused by the question... well, not necessarily marijuana or drugs, but just the thing of... how can you know about something before you’re dealing with it or have experience with it?
 
-**Katagiri Roshi:** Through a book...
-
-**Questioner:** Through a book? Well...
-
-**Katagiri Roshi:** Through your common sense... You can know many ways. Can’t you?
+**Katagiri Roshi:** Through a book... Through your common sense... You can know many ways. Can’t you?
 
 **Questioner:** Sure. But then you can say, many people read about Zen before they come to Zen center or get involved. But when they’re reading, it’s not exactly it, when you’re coming and are practicing. 
 
