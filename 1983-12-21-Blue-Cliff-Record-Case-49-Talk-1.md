@@ -164,7 +164,7 @@ But,
 
 It means, “My task as abbot makes me busy, so I don’t have enough time to discuss it with you now.” So he said [that and] he left. 
 
-[And that is also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. [It’s] not escape. 
+[And that is also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called “thrust.” But on the other hand, parry. [It’s] not escape. 
   
 So, in the commentary, it says:
 

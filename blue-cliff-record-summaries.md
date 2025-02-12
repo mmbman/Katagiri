@@ -258,7 +258,7 @@ Never rest on your so-called enlightenment. Katagiri Roshi discusses the relatio
 
 ##### [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
 
-Katagiri Roshi explains that there are two aspects of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must practice both, constantly, like a rolling ball, or like a flag flapping in the eight worldly winds. Also, the meaning of *not killing*.
+Katagiri Roshi explains that there are two aspects of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must constantly practice both, like a rolling ball, or like a flag flapping in the eight worldly winds. Also, the meaning of *not killing*.
 
 ---
 
