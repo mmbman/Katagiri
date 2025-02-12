@@ -8,15 +8,13 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ### Summary
 
-Never rest on your so-called enlightenment. Katagiri Roshi discusses the relationship between communication and boundaries. It’s all food for the fish.
+Never rest on your so-called enlightenment. Katagiri Roshi discusses the relationship between action, communication, and boundaries. It’s all food for the fish.
 
 ### Transcript
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-49-lecture-1" target="_blank">Listen to this talk</a>
 </p>
-
-<p align="center"><b>This transcript is in draft stage.</b></p>
 
 #### 0:00
 
@@ -66,9 +64,9 @@ In order to teach others, simultaneously you have to “defend” yourself, agai
 
 If you read the *Diamond Sutra*, it always [talks about] a bodhisattva’s life, [in] which they always are careful to take care of their life, watching over the many things externally and internally, so they don’t fall into a pitfall on purpose or consciously. 
 
-Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left, nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them you fall into the pitfalls, in other words, multiple obstacles. 
+Even though you are very careful of taking care of your life, watching over the front and back, and to the right, to the left, nevertheless you easily fall into pitfalls before you are conscious of them. This is very common. Before you are conscious of them you fall into the pitfalls – in other words, multiple obstacles. 
 
-I was pretty often asked by people to try [or to taste] a new drug, particularly in the 1970s. People tried to let me experience drugs and marijuana, et cetera. But fortunately I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
+I was pretty often asked by people to try [...] a new drug, particularly in the 1970s; people tried to let me experience drugs and marijuana, et cetera. But fortunately I knew a little bit what marijuana is, and any kind of drugs that people were interested in. That’s why I didn’t take it. If you know something pretty well before you act toward that, well, it’s not necessary to do. 
 
 But many people believe that you should experience *everything*. No, you cannot experience *everything*, okay? If you try to experience everything, it makes you confused. Because if you act, the result of your action becomes a ghost... something more than you have expected. That is actions. 
 
@@ -88,7 +86,7 @@ When I was a child, I had a very bad habit. Particularly in the winter, I went t
 
 That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed, loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
 
-And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively. Instead of waiting for something to do, or always accepting myself not initiatively, always withdrawing, looking at myself objectively – that’s why consciously or unconsciously I criticized myself, so [that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much, but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. That was pretty good for me. I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
+And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively. Instead of waiting for something to do, or always accepting myself not initiatively – always withdrawing, looking at myself objectively – that’s why consciously or unconsciously I criticized myself, [and that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much; but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. That was pretty good for me. I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
 
 So, since then, I really understand myself, that I should do something positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
 
@@ -96,7 +94,7 @@ Well, before you do [something], always there [is a question]: “I can do,” �
 
 But most people don’t do this. [They] always criticize, because [they] always try to get some clear answer, “I can do” or “I cannot do.” Sometimes you can see [whether you can do it]; sometimes there is something you cannot know. 
 
-So, since then, [I always answered] loudly “yes,” very positively. Even the answer is very important. If you say [hesitantly] “yes” – that’s it, you know? Very naturally your life is something like that. But if you say “*yes*,” very positively and loudly, with confidence – you can do it, [or] you can do something. So that spirit is very important. 
+So, since then, [I always answered] loudly “yes,” very positively. Even the answer is very important. If you say [hesitantly] “yes” – that’s it, you know? Very naturally your life is something like that. But if you say “*yes*” – very positively and loudly, with confidence – you can do it, [or] you can do something. So that spirit is very important. 
 
 So, for this, you should accept totally yourself, who you are. Human beings are pretty weak, and human beings possess lots of karmic life you don’t know. Karmic life leads you to go in a completely different direction which you have never thought before. That is karmic life. When you are born, immediately there is a karmic life with you. From this point, you cannot escape from your karmic life, which something set up, exactly. [For this,] you have to totally accept karmic life. At that time, you can defend yourself against attack, externally or internally. And then, simultaneously to defend yourself means to do something positively. 
 
@@ -158,7 +156,7 @@ And then,
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
-[...] It is said that [Feng] had [...] many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” Meanness. 
+[...] It is said that [Feng] had [...] many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” “Meanness.”
 
 But, 
 
@@ -166,15 +164,15 @@ But,
 
 It means, “My task as abbot makes me busy, so I don’t have enough time to discuss it with you now.” So he said [that and] he left. 
 
-And that is [also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. [It’s] not escape. 
+[And that is also] not a real answer, but he exactly had great skillful methods, so-called “parry.” Sometimes he had a skillful method so-called *[unintelligible]*. But on the other hand, parry. [It’s] not escape. 
   
 So, in the commentary, it says:
 
 > When these adepts met, there was one capture and one release ...
 
-You have to capture, you have to take something, when you have to teach, you have to give. [...] In order to give, you have to take people – anyway, grasp him or her, and give. Simultaneously, you have to release. Let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
+You have to capture, you have to take something, when you have to teach, you have to give. [...] In order to give, you have to take people – grasp him or her, and give. Simultaneously, you have to release. Let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
 
-You can do it. For instance, a friend of mine, Yokoi Roshi, always taught me many things. One side of his life [toward] me was very, what would you say, strict; always he captured me. When he captured me, he never released me. He immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go. Because I can see his really deep compassion in his life toward me. 
+You can do it. For instance, a friend of mine, Yokoi Roshi (Kakudo Yokoi, d. 1975), always taught me many things. One side of his life toward me was very, what would you say, strict; always he captured me. When he captured me, he never released me; he immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. But he didn’t actually let me go, but I myself let go, because I could see his really deep compassion in his life toward me. 
 
 So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic; you have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
 
@@ -194,11 +192,11 @@ So if you fight with this kind of words, you become mean. So no end of fighting.
 
 [As] I said, there are two things simultaneously exist[ing] in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? But, [if] some person is pretty weak, sometimes you should push; push him or push her. Do something initiatively. 
 
-If somebody really puts you down, well, you should be noble. Anyway, you should be really noble: gentle, compassionate, and patient. Around your life, there are many people who put you down always, don’t you think? With words, with actions. At that time, you shouldn’t “bark” at him or her always. Don’t bark back. Even though people bark at you, don’t bark back [at them]. You should be always noble. 
+If somebody really puts you down, well, you should be noble. Anyway, you should be really noble: gentle, compassionate, and patient. In your life, there are always many people who put you down, don’t you think? With words, with actions. At that time, you shouldn’t “bark” at him or her always. Don’t bark back. Even though people bark at you, don’t bark back [at them]. You should be always noble. 
 
-So, that’s why Zen Master Feng said, “My affairs as the abbot are many and complicated.” And he left!
+So, that’s why Zen Master Feng said, “My affairs as abbot are many and complicated.” And he left!
 
-Both Zen Masters were pretty good in this koan. But, they are not discussing about victory or defeat. Both are great Zen teachers. The important point is, you cannot fight each other. You shouldn’t fight. But both Zen Masters accept very smoothly a certain situation, expressing his noble attitude toward a person who is expressing meanness. Just accept the situation, instead of fighting. This is very important. 
+Both Zen Masters were pretty good in this koan, but they are not discussing about victory or defeat. Both are great Zen teachers. The important point is, you cannot fight each other. You shouldn’t fight. But both Zen Masters accept very smoothly a certain situation, expressing his noble attitude toward a person who is expressing meanness. Just accept the situation, instead of fighting. This is very important. 
 
 So, from this point, San Sheng accepts his experience, but instead of expressing his strength, he should express [nobility, gentleness]. He expressed his strength, because he really realized great nirvana, freedom, which is strength – so he expresses strength when encountering strength. That is called sitting on the chair of nirvana, enlightenment. You cannot do that. 
 
@@ -254,7 +252,7 @@ Is that okay?
 
 **Katagiri Roshi:** Um... kind of... pretty close, but not *exactly*. Pretty close. 
 
-I know there are some people who attain enlightenment (that way). I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is everything is changing.]
+I know there are some people who attain enlightenment [that way]. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is everything is changing.]
 
 #### 56:05
 

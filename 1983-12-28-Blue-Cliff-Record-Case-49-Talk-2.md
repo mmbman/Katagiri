@@ -8,15 +8,13 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ### Summary
 
-Katagiri Roshi explains that there are two aspects of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must practice both, constantly – like a rolling ball, or like a flag flapping in the eight worldly winds. Also, the meaning of *not killing*.
+Katagiri Roshi explains that there are two aspects of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must practice both, constantly, like a rolling ball, or like a flag flapping in the eight worldly winds. Also, the meaning of *not killing*.
 
 ### Transcript
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-49-lecture-2" target="_blank">Listen to this talk</a>
 </p>
-
-<p align="center"><b>This transcript is in draft stage.</b></p>
 
 #### 0:00
 
@@ -47,9 +45,9 @@ The verse to this case:
 
 > Stop saying he tarries in the water.
 
-So he doesn't tarry even for a moment in the certain situation of the water. He is always moving, he is always manifesting himself freely, vitally, dynamically. He doesn't stay even for a moment in a certain situation. He just sees something like [it is] something reflected in the mirror; just pass [by]. Next moment, that reflection disappears. In his everyday life, he does in that way. He sees something, it is reflected in his mirror, but after that he doesn't do anything, just accept, just pass by. 
+So he doesn't tarry even for a moment in the certain situation of the water. He is always moving, he is always manifesting himself freely, vitally, dynamically. He doesn't stay even for a moment in a certain situation. He just sees something like [it is] something reflected in the mirror; just pass [by]. Next moment, that reflection disappears. In his everyday life, he does in that way. He sees something, it is reflected in his mirror, but after that he doesn't do anything – just accept, just pass by. 
 
-So that [is the meaning of] “stop saying he tarries in the water.” It doesn’t mean he ignores the presence of moment he occupies, because he exists, he is a being who occupies a certain time and space. So he *is*. He [...] stays in a moment, but he [...] is not caught by the moment. The moment is just like a reflection in the mirror. So it is a moment, but it’s not a real moment, it’s not a moment. He accepts it, but he is not caught by it. This is “not tarrying in the water.”
+That [is the meaning of] “stop saying he tarries in the water.” It doesn’t mean he ignores the presence of moment he occupies, because he exists, he is a being who occupies a certain time and space. So he *is*. He [...] stays in a moment, but he [...] is not caught by the moment. The moment is just like a reflection in the mirror. So it is a moment, but it’s not a real moment – it’s not a moment. He accepts it, but he is not caught by it. This is “not tarrying in the water.”
 
 > He shakes the heavens and sweeps the earth, ...
 
@@ -67,11 +65,11 @@ So that is “he shakes the heavens and sweeps the earth.”
 
 > When a thousand-foot whale spouts, vast waves fly, ...
 
-... So that is just like a thousand foot whale [spouting]. Very vital. Very powerful. Very stable, unmovable. That is just like spring water coming up from the ground. So that is, here it says, the “thousand foot whale spouts.”
+... So that is just like a thousand foot whale [spouting]. Very vital. Very powerful. Very stable, unmovable. That is just like spring water coming up from the ground. That is, here it says, the “thousand foot whale spouts.”
 
 And finally “vast waves fly.” It's coming up. That means always he is moving, wherever he may go – small waves, big waves. And also he is really educating, teaching somebody, [...] giving something constantly. Small waves, big waves... sometimes very calm. But always he is giving. 
 
-So when “a thousand foot whale spouts,” he educates the whole world. He educates, he gives something wonderful to human beings. So that is, here it says, “vast waves fly.” 
+So when “a thousand foot whale spouts,” he educates the whole world. He educates, he gives something wonderful to human beings. That is, here it says, “vast waves fly.” 
 
 > At a single thunderclap, the pure wind gusts.  
 
@@ -98,11 +96,11 @@ Very naturally, you can reach a certain stage. But it's not good enough. Next, y
 
 So you have to seek for the truth in order to be a pianist, and then you can be a pianist pretty easily in the world of music. But it's not good enough, because you have to deepen your life – something more than a pianist, but [rather], as a human. That means you have to go beyond pianist, you have to educate yourself [as] something more than pianist. 
 
-It is pretty easy for us to educate somebody in a certain realm – the so-called music world, or art world. If you try to educate somebody [in that], it's pretty easy. But it's not so easy to educate a person who is going beyond artist or musician. But this is very important, otherwise you cannot have a depth of human life which is very charming and fascinating, appealing to everyone, simultaneously, beyond human speculation. 
+It is pretty easy for us to educate somebody in a certain realm – the so-called music world, or art world. If you try to educate somebody [in that], it's pretty easy. But it's not so easy to educate a person who is going *beyond* artist or musician. But this is very important – otherwise, you cannot have a depth of human life which is very charming and fascinating, appealing to everyone, simultaneously, beyond human speculation. 
 
-I told you before, that person who has charming and fascinating personality of his life, his attitude toward human life is pretty flexible and soft, but very stable. I always tell you, you must be always like a ball. A ball has a center; the center never changes, wherever the ball rolls. The center of the ball is always the center of the ball, wherever it may go. That is important, but on the other hand, you have to move, wherever you may go. You have to become master of yourself in whatever situation you may be. That means, you have to go. You have to make a choice of direction, and you have to go. 
+I told you before, that person who has charming and fascinating personality of his life, his attitude toward human life is pretty flexible and soft, but very stable. I always tell you, you must be always like a ball. A ball has a center; the center never changes, wherever the ball rolls. The center of the ball is always the center of the ball, wherever it may go. That is important, but on the other hand, you have to move, wherever you may go. You have to become master of yourself in whatever situation you may be. That means [...] you have to make a choice of direction, and you have to go. 
 
-So, very naturally, [from the] center of yourself, make a choice in which direction to go. So center comes in front, just like a torpedo. But on the other hand, personally, everyday you are very centered, you are very stable, but the center is not always inside. Center is always out, when you move. [It is an] interactive situation; the center is always operating, to guide you. 
+So, very naturally, [the] center of yourself makes a choice in which direction to go. So the center comes in front (leads), just like a torpedo. But on the other hand, personally, everyday you are very centered, you are very stable. But the center is not always inside; the center is always out when you move. [In an interactive] situation, the center is always operating, to guide you. 
 
 So that is [the meaning of] that person flaps in the wind, wherever it may go from – to the east, to the north, to the south, wherever it may [blow] from – but on the other hand, he stands always alone, unmoved. 
 
@@ -118,13 +116,13 @@ So, eulogy and praise, very naturally after doing something, there are lots of p
 
 But anyway, even though this person stands right in the middle of eight winds, he keeps standing alone, unmoved. This is this old man, Seppo Zen Master. 
 
-So, finally [Seppo Zen Master] says, “I am pretty busy.” [Because] the monk Sheng says, “The teacher of 1500 people, and you don’t even know what to say!” [...] Seppo Zen Master was a pretty famous teacher at that time. So the monk Sheng gives a kind of meanness; he deals with Seppo Zen Master very meanly. But Seppo Zen Master didn’t say anything [about that]; he says, “My temple affairs are pretty busy.” So he left. He didn’t fight with him. Very naturally, very smoothly, he “parried,” [...] saying, “I am pretty busy with taking care of my temple affairs.” It’s pretty difficult to say so, because if people bark at you, very naturally, immediately, you want to bark back! That’s very common. But he didn’t. He just said so and left. 
+So, finally [Seppo Zen Master] says, “I am pretty busy.” [Because] the monk Sheng says, “The teacher of 1500 people, and you don’t even know what to say!” [...] Seppo Zen Master was a pretty famous teacher at that time. So the monk Sheng gives a kind of meanness, he deals with Seppo Zen Master very meanly. But Seppo Zen Master didn’t say anything [about that]; he says, “My temple affairs are pretty busy.” So he left. He didn’t fight with him. Very naturally, very smoothly, he “parried,” [...] saying, “I am pretty busy with taking care of my temple affairs.” It’s pretty difficult to say [that], because if people bark at you, very naturally, immediately, you want to bark back! That’s very common. But he didn’t. He just said [that] and left. 
 
 So, the two practices: if you [only] practice one, so-called *seeking for the truth* – always developing your life, going up, always trying to go up – you can get certain stage, and you can be successful in doing something. But there is no depth of human life. There is nothing fascinating. No spirit, no personality which people are impressed by. So, very naturally, we are seeking for the truth, but simultaneously we have to practice it in everyday life. How you [think it], how you put it into everyday practice. 
 
-For instance, *not killing*. Trying not to kill is a kind of “going up.” So, very naturally, if you have this strong spirit, if you see somebody who killed, even by chance, even if not on purpose, you really criticize him or her, because you have a strong spirit of not killing. You want to go up, but people don’t. If you see the people who don’t have that strong spirit of going up, very naturally, you put them down. 
+For instance, *not killing*. Trying not to kill is a kind of “going up.” So, very naturally, if you have this strong spirit, if you see somebody who killed – even by chance, even if not on purpose – you really criticize him or her, because you have a strong spirit of not killing. You want to go up, but people don’t. If you see the people who don’t have that strong spirit of going up, very naturally, you put them down. 
 
-But, on the other hand, personally, you don’t want to to kill, whatever it is, insects. But, *not to kill* doesn’t mean not to kill insects, or not to kill vegetables, et cetera. But, there is a very important practice: you have to descend to the human world and practice it very quietly, wherever you may go. 
+On the other hand, personally, you don’t want to to kill, whatever it is, insects. But *not to kill* doesn’t mean not to kill insects, or not to kill vegetables, et cetera. But there is a very important practice: you have to descend to the human world and practice it very quietly, wherever you may go. 
 
 For instance, washing dishes. Look at [the] dishes in the kitchen. If you see the dishes over there, most of the dishes are cracked. Did you notice that? Because you wash dishes and put them recklessly [in a box], very recklessly. So, cracking each other, bumping into each other, and you don’t care. You pile up the dishes recklessly. It is already killing: killing the life of dishes, plates. 
 
