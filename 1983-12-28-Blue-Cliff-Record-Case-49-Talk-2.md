@@ -100,7 +100,7 @@ It is pretty easy for us to educate somebody in a certain realm – the so-calle
 
 I told you before, that person who has charming and fascinating personality of his life, his attitude toward human life is pretty flexible and soft, but very stable. I always tell you, you must be always like a ball. A ball has a center; the center never changes, wherever the ball rolls. The center of the ball is always the center of the ball, wherever it may go. That is important, but on the other hand, you have to move, wherever you may go. You have to become master of yourself in whatever situation you may be. That means [...] you have to make a choice of direction, and you have to go. 
 
-So, very naturally, [the] center of yourself makes a choice in which direction to go. So the center comes in front (leads), just like a torpedo. But on the other hand, personally, everyday you are very centered, you are very stable. But the center is not always inside; the center is always out when you move. [In an interactive] situation, the center is always operating, to guide you. 
+So, very naturally, [the] center of yourself makes a choice in which direction to go. So the center [goes] in front, just like a torpedo. But on the other hand, personally, everyday you are very centered, you are very stable. But the center is not always inside; the center is always out when you move. [In an interactive] situation, the center is always operating, to guide you. 
 
 So that is [the meaning of] that person flaps in the wind, wherever it may go from – to the east, to the north, to the south, wherever it may [blow] from – but on the other hand, he stands always alone, unmoved. 
 
