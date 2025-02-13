@@ -142,7 +142,7 @@ So, what does the golden fish who has passed through the net use for food?
 
 > Feng said, “When you come out of the net I will tell you.”
 
-Well, San Sheng’s [...] saying like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But that he said [something] like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
+Well, San Sheng’s [speaking] like this was wonderful, a very smart and sharp question, because he experienced this [...] nirvana, perfect freedom. But Feng said, “When you come out of the net, I will tell you.” His answer was pretty basic; it’s not a real answer. But that he said [something] like this means that he realized that San Sheng already sat on the chair of his enlightenment, even for a moment, but he didn’t realize it. 
 
 For instance, [a monk asked Zhaozhou Zen Master], “I [am carrying nothing on my back], what should I drop off?” In other words, he attained enlightenment, so-called nothing: “I [am carrying] nothing.” And then the Zen Master says, “Put down that nothing.” But, [the monk] says, “I [am already carrying] nothing, what should I put down?” The Zen Master says, “Please go home [carrying that].” Do you understand? “Go back home [...] with nothing.” It means [the monk] didn’t understand *nothing*. “Nothing to carry” – but he already carried something, so-called “nothing.”
 
@@ -156,7 +156,7 @@ And then,
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
-[...] It is said that [Feng] had [...] many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really – what would you say – kind of “mean.” “Meanness.”
+[...] It is said that [Feng] had [...] many monks practicing under him in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really – what would you say – kind of “mean.” “Meanness.”
 
 But, 
 
@@ -170,11 +170,11 @@ So, in the commentary, it says:
 
 > When these adepts met, there was one capture and one release ...
 
-You have to capture, you have to take something, when you have to teach, you have to give. [...] In order to give, you have to take people – grasp him or her, and give. Simultaneously, you have to release. Let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
+You have to capture, you have to take something, when you have to teach, [when] you have to give. [...] In order to give, you have to take people – grasp him or her, and give. Simultaneously, you have to release, let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” You can do it. 
 
-You can do it. For instance, a friend of mine, Yokoi Roshi (Kakudo Yokoi, d. 1975), always taught me many things. One side of his life toward me was very, what would you say, strict; always he captured me. When he captured me, he never released me; he immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. But he didn’t actually let me go, but I myself let go, because I could see his really deep compassion in his life toward me. 
+For instance, a friend of mine, Yokoi Roshi (Kakudo Yokoi, d. 1975), always taught me many things. One side of his life toward me was very, what would you say, strict; always he captured me. When he captured me, he never released me; he immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go, because I could see his really deep compassion in his life toward me. 
 
-So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic; you have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
+So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic: you have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
 
 *[Tape change.]*
 
@@ -204,7 +204,7 @@ That’s why in Buddhism, always you achieve a certain stage, and you should sta
 
 So, constantly, you have to do it. If you do something, very naturally, you can get a result. But you cannot stay with the result always. Even the good, even the bad. Stand up quickly, as soon as possible, and move, walking straightly. 
 
-So, that is the meaning of this case. 
+That is the meaning of this case. 
 
 Do you have questions?
 
