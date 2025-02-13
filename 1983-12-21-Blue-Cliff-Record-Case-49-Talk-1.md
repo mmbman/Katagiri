@@ -256,7 +256,7 @@ I know there are some people who attain enlightenment [that way]. I don’t know
 
 #### 56:05
 
-**Questioner:** Hojo-san, I’m still confused by the question... well, not necessarily marijuana or drugs, but just the thing of... how can you know about something before you’re dealing with it or have experience with it?
+**Question:** Hojo-san, I’m still confused by the question... well, not necessarily marijuana or drugs, but just the thing of... how can you know about something before you’re dealing with it or have experience with it?
 
 **Katagiri Roshi:** Through a book... Through your common sense... You can know many ways. Can’t you?
 
