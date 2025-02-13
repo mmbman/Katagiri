@@ -252,7 +252,7 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 
 ##### [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
 
-Never rest on your so-called enlightenment. Katagiri Roshi discusses the relationship between action, communication, and boundaries. It’s all food for the fish.
+Katagiri Roshi discusses the relationship between action, communication, and boundaries. Never rest on your so-called enlightenment. It’s all food for the fish.
 
 ---
 
