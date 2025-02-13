@@ -8,7 +8,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ### Summary
 
-Never rest on your so-called enlightenment. Katagiri Roshi discusses the relationship between action, communication, and boundaries. It’s all food for the fish.
+Katagiri Roshi discusses the relationship between action, communication, and boundaries. Never rest on your so-called enlightenment. It’s all food for the fish.
 
 ### Transcript
 
@@ -54,13 +54,13 @@ The first one, “piercing, penetrating, one takes the drum and captures the fla
 
 [...] Defense and offense, both exist simultaneously in our lives. 
 
-“Piercing, penetrating”: when you try to educate, when you try to teach somebody, you have to “pierce.” “You have to pierce” means you have to hit the drum, and take away the flag of [the] egoistic sense. The word “piercing” means, even if you use [only] one word, [that] one word must be piercing into the human heart. And also, that education must be “penetrating” others. That means your education – with words, with mind, with attitude – must be based on *compassion*. Otherwise, you cannot penetrate. 
+“Piercing, penetrating”: when you try to educate, when you try to teach somebody, you have to “pierce.” “You have to pierce” means you have to hit the drum, and take away the flag of [the] egoistic sense. The word “piercing” means, even if you use [only] one word, [that] one word must be piercing into the human heart. And also, that education must be “penetrating” others: that means your education – with words, with mind, with attitude – must be based on *compassion*. Otherwise, you cannot penetrate. 
 
 So, here it says, “one takes the drum.” That means using the expedient ways, expedient methods – words, physical actions, and also thinking. Anyway, we can approach to the people and teach, and educate; simultaneously that expedient method must penetrate the other’s life. So that is “offense,” offense of the fortress. 
 
 When you teach, positively you have to teach, you have to educate. Initiatively, you have to move toward. For this, that education or teaching requires kindness, compassion. In other words, true heart: looking [at] human life for the long run, and *then* you have to teach. Even though you use one word which is very piercing into other people’s hearts, it is not something “piercing,” because it is based on compassion. Compassion lets you see human life, your life and others’ life, for the long run; otherwise, your education, your teaching, and your presence doesn’t penetrate others. So that’s why positively you have to take care of your life, and also you have to teach others’ lives. 
 
-In order to teach others, simultaneously you have to “defend” yourself, against external [and] internal attacks. That means, externally, internally, there are *many* things. So you have to know the many things externally, you have to know many things internally. That means you have to know yourself, your past life, and present life, future life, and also front and back, and to the right, to the left – you have to know many things. And then you can defend yourself against external and internal attack.
+In order to teach others, simultaneously you have to “defend” yourself, against external [and] internal attacks. That means, externally, internally, there are *many* things, so you have to know the many things externally, you have to know many things internally. That means you have to know yourself, your past life, and present life, future life, and also front and back, and to the right, to the left – you have to know many things. And then you can defend yourself against external and internal attack.
 
 If you read the *Diamond Sutra*, it always [talks about] a bodhisattva’s life, [in] which they always are careful to take care of their life, watching over the many things externally and internally, so they don’t fall into a pitfall on purpose or consciously. 
 
@@ -72,9 +72,9 @@ But many people believe that you should experience *everything*. No, you cannot 
 
 So, if you know something very clearly [is] dangerous or something unwholesome, I don’t think it’s necessary to go there. If you go there, sometimes you become [like] the insect in the summer jumping into the fire – so, committing suicide. It’s very common. That’s why people are [...] suffering from their life very much. 
 
-So, “fortified, entrenched, one inspects the front and oversees the rear” – that is a bodhisattva life. To watch over many things in front and in the back of your life. And then, nevertheless, there are lots of obstacles, dangerous situations there. 
+So, “fortified, entrenched, one inspects the front and oversees the rear” – that is a bodhisattva life, to watch over many things in front and in the back of your life. And then, nevertheless, there are lots of obstacles, dangerous situations there. 
 
-So, if you know pretty well human life – not only the many things you can see objectively or externally – you have to learn yourself, surrounded by the countless number of feelings, emotions going on inside of your life. That is a human being. And those feelings are acting very subtly, and also sometimes very [greatly]; sometimes very wonderfully, or sometimes painfully. So, you should know the human feelings, human emotions. Many things going on inside. 
+So, if you know pretty well human life, [you have to know] not only the many things you can see objectively or externally – you have to learn yourself, surrounded by the countless number of feelings, emotions going on inside of your life. That is a human being. And those feelings are acting very subtly, and also sometimes very [greatly]; sometimes very wonderfully, or sometimes painfully. So, you should know the human feelings, human emotions. Many things going on inside. 
 
 That’s why, “fortified, entrenched, one inspects the front and oversees the rear.” And then, if you understand yourself, at that time you can accept yourself as a human being, looking at yourself for the long run. And then you understand others, too. 
 
@@ -86,7 +86,7 @@ When I was a child, I had a very bad habit. Particularly in the winter, I went t
 
 That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed, loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
 
-And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively. Instead of waiting for something to do, or always accepting myself not initiatively – always withdrawing, looking at myself objectively – that’s why consciously or unconsciously I criticized myself, [and that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much; but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. That was pretty good for me. I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
+And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively. Instead of waiting for something to do, or always accepting myself not initiatively – always withdrawing, looking at myself objectively. That’s why consciously or unconsciously I criticized myself, [and that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much; but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. [...] I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
 
 So, since then, I really understand myself, that I should do something positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
 
@@ -156,7 +156,7 @@ And then,
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
-[...] It is said that [Feng] had [...] many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really, what would you say... kind of “mean.” “Meanness.”
+[...] It is said that [Feng] had [...] many monks practicing under him, in those days. So, here it says, “That’s why you are a great teacher, because under you there are many students practicing together.” So, he said, “The teacher of fifteen hundred people, you are a great Zen teacher, but you don’t know what to say!” That is really – what would you say – kind of “mean.” “Meanness.”
 
 But, 
 
@@ -188,7 +188,7 @@ On the other hand, each “acted noble when encountering meanness.” You can ex
 
 I experienced that [...] seven years ago, when I was on Fifth Street Southeast. One of the Japanese college students at the University of Minnesota who studied science, he came with his friends, visiting me, and immediately [some of his] first words were, “Are you a Zen Master? If you are a Zen Master, [...] are you an enlightened person?” These were his first words. That is so-called “meanness.” It’s really mean. *[Laughter.]* 
 
-So if you fight with this kind of words, you become mean. So no end of fighting. 
+So if you fight with this kind of words, you become mean. So [there is] no end of fighting. 
 
 [As] I said, there are two things simultaneously exist[ing] in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? But, [if] some person is pretty weak, sometimes you should push; push him or push her. Do something initiatively. 
 
@@ -252,7 +252,7 @@ Is that okay?
 
 **Katagiri Roshi:** Um... kind of... pretty close, but not *exactly*. Pretty close. 
 
-I know there are some people who attain enlightenment [that way]. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is everything is changing.]
+I know there are some people who attain enlightenment [that way]. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is, everything is changing.]
 
 #### 56:05
 
@@ -264,11 +264,13 @@ I know there are some people who attain enlightenment [that way]. I don’t know
 
 **Katagiri Roshi:** Yes, spiritual experience is something important to you, because you have to experience. But religion is not always to “taste the water” always, not to make an experiment always. Religion is, to experience something you should make experiment or you shouldn’t make experiment, both. Because you cannot make experiment of everything. Don’t you think? 
 
-For instance, going to the moon. *[He laughs.]* How can you go to the moon, now? Maybe next century, you will be able to go, if you [are alive]. But now, no chance. But, you cannot ignore that situation. So in order to understand the human world, human beings very deeply, you have to know that human world, the human beings, which you can make an experiment of them, and which you cannot make an experiment, like going to the moon. Okay? 
+For instance, going to the moon. *[He laughs.]* How can you go to the moon, [today]? Maybe next century, you will be able to go, if you [are alive]. But now, no chance. But, you cannot ignore that situation. 
+
+So in order to understand the human world, human beings very deeply, you have to know that human world, the human beings, which you can make an experiment of them, and which you cannot make an experiment, like going to the moon. Okay? 
 
 *[Long pause.]*
 
-Some people misunderstand Zen, saying Zen is, *[unintelligible]*, [which] is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. Anyway you should hold – include – [the] whole thing. 
+Some people misunderstand Zen, saying Zen is *[unintelligible]*, [which] is “to know by themselves” – to know that the water is cold, by drinking. Do you understand? But it’s not Zen, anyway. *[He chuckles.]* Because to know something by your experience is something *parallel* to the human world, universe. Still there are many things you don’t know. But religion or Zen: if you say religion, religion must be something including the whole world, okay? You know, or you cannot know, both. You should hold – include – [the] whole thing. 
 
 Nevertheless, you cannot be tossed away, you cannot [panic], even though you cannot know many things. You have to walk, stably, day to day, step by step, always. This is religious practice. And then learn, every day, step by step. 
 
