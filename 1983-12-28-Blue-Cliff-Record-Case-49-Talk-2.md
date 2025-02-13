@@ -122,7 +122,7 @@ So, the two practices: if you [only] practice one, so-called *seeking for the tr
 
 For instance, *not killing*. Trying to not kill is kind of “going up.” So, very naturally, if you have this strong spirit, if you see somebody who killed – even by chance, even if not on purpose – you really criticize him or her, because you have a strong spirit of not killing. You want to go up, but people don’t. If you see the people who don’t have that strong spirit of going up, very naturally, you put them down. 
 
-On the other hand, personally, you don’t want to kill – whatever it is – insects. But *not to kill* doesn’t mean not to kill insects, or not to kill vegetables, et cetera, but there is a very important practice [that] you have to descend to the human world and practice very quietly, wherever you may go. 
+On the other hand, personally, you don’t want to kill – whatever it is – insects. But *not to kill* doesn’t mean not to kill insects, or not to kill vegetables, et cetera, but [that] there is a very important practice [that] you have to descend to the human world and practice very quietly, wherever you may go. 
 
 For instance, washing dishes. Look at [the] dishes in the kitchen. If you see the dishes over there, most of the dishes are cracked. Did you notice that? Because you wash dishes and put them recklessly [in a box], very recklessly. So, cracking each other, bumping into each other, and you don’t care, you pile up the dishes recklessly. It is already killing: killing the life of dishes, plates. 
 
