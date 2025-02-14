@@ -63,7 +63,7 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 >
 >> (Here are a couple different translations for reference. Skip these if not interested.)
 >> 
->> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html)
+>> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html):
 >>  
 >> We alone face death.  
 >> The beast, death behind and  
@@ -83,7 +83,7 @@ That’s why Dogen Zenji says the practice of giving is not to covet. This is ve
 >> always and only to face  
 >> one another and nothing else.  
 >>   
->> [Translated by J.B. Leishman and Stephen Spender:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf)
+>> [Translated by J.B. Leishman and Stephen Spender:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf):
 >> 
 >> We only see death; the free animal  
 >> has its decease perpetually behind it  
