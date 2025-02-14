@@ -98,7 +98,7 @@ So you have to seek for the truth in order to be a pianist, and then you can be 
 
 It is pretty easy for us to educate somebody in a certain realm – the so-called music world, or art world. If you try to educate somebody [in that], it's pretty easy. But it's not so easy to educate a person who is going *beyond* artist or musician. But this is very important – otherwise, you cannot have a depth of human life which is very charming and fascinating, appealing to everyone, simultaneously, beyond human speculation. 
 
-I told you before, that person who has charming and fascinating personality of his life, his attitude toward human life is pretty flexible and soft, but very stable. I always tell you, you must always be like a ball. A ball has a center; the center never changes, wherever the ball rolls. The center of the ball is always the center of the ball, wherever it may go. That is important, but on the other hand, you have to move [...]. You have to become master of yourself in whatever situation you may be. That means [...] you have to make a choice of direction, and you have to go. 
+I told you before, that person who has charming and fascinating personality of his life, his attitude toward human life is pretty flexible and soft, but very stable. I always tell you, you must always be like a ball. A ball has a center; the center never changes, wherever the ball rolls. The center of the ball is always the center of the ball, wherever it may go. That is important, but on the other hand, you have to move [...] You have to become master of yourself in whatever situation you may be. That means [...] you have to make a choice of direction, and you have to go. 
 
 Very naturally, [the] center of yourself makes a choice in which direction to go, so the center [goes] in front, just like a torpedo. But on the other hand, personally, everyday you are very centered, you are very stable. But the center is not always inside; the center is always out when you move. [In an active] situation, the center is always operating, to guide you. 
 
@@ -116,7 +116,7 @@ So, eulogy and praise: very naturally after doing something, there are lots of p
 
 But anyway, even though this person stands right in the middle of eight winds, he keeps standing alone, unmoved. That is this old man, Seppo Zen Master (Hsueh Feng). So finally, he says, “I am pretty busy.” 
 
-The monk Sheng said, “The teacher of 1500 people, and you don’t even know what to say!” Because Seppo Zen Master was a pretty famous teacher at that time. The monk Sheng gives a kind of meanness, he deals with Seppo Zen Master very meanly. But Seppo Zen Master didn’t say anything [about that]; he said, “My temple affairs are pretty busy,” so he left. He didn’t fight with him. Very naturally, very smoothly, he “parried,” [...] saying, “I am pretty busy with taking care of my temple affairs.” It’s pretty difficult to say [that], because if people bark at you, very naturally, immediately, you want to bark back. That’s very common. But he didn’t. He just said [that] and left. 
+The monk Sheng said, “The teacher of 1500 people, and you don’t even know what to say!” Because Seppo Zen Master was a pretty famous teacher at that time. The monk Sheng gives a kind of meanness, he deals with Seppo Zen Master very meanly. But Seppo Zen Master didn’t say anything [about that]; he said, “My temple affairs are pretty busy.” So he left. He didn’t fight with him. Very naturally, very smoothly, he “parried,” [...] saying, “I am pretty busy with taking care of my temple affairs.” It’s pretty difficult to say [that], because if people bark at you, very naturally, immediately, you want to bark back! That’s very common. But he didn’t. He just said [that] and left. 
 
 So, the two practices: if you [only] practice one, so-called *seeking for the truth* – always developing your life, going up, always trying to go up – you can get a certain stage, and you can be successful in doing something. But there is no depth of human life. There is nothing fascinating; no spirit, no personality which people are impressed by. So, very naturally, we are seeking for the truth, but simultaneously we have to practice it in everyday life. [We have to think about] how you put it into everyday practice.
 
@@ -134,9 +134,9 @@ So, this case points out human life like this: not only creating the spirit of g
 
 Alright. Do you have questions? 
 
-In the human world, there are many musicians, many artists... generally speaking, so-called “soldiers.” You know, many soldiers: musicians, and [very generally] writers. Sometimes people say, “I am a writer.” So [there are] many writers – *many*, many writers. Many, many poets. Many, many musicians. But, “a general” is only one. It’s pretty hard to find a general of the musician, of a writer. It’s pretty hard. 
+In the human world, there are many musicians, many artists, generally speaking. So-called “soldiers.” Many soldiers: so-called musicians, and [very generally] writers. Sometimes people say, “I am a writer.” So [there are] *many*, many writers. Many, many poets. Many, many musicians. But, a “general” is only one. It’s pretty hard to find *a general* of the musician, of a writer. It’s pretty hard. 
 
-So, if you want to be a writer, generally, you can be a writer, pretty easily. But it’s pretty difficult to become *a general* of a writer, or musician, et cetera. For this, you have to practice many, many years... quietly, even though people don’t pay attention to you. 
+So, if you want to be a writer generally, you can be a writer, pretty easily. But it’s pretty difficult to become *a general* of a writer, or musician, et cetera. For this, you have to practice many, many years... quietly, even though people don’t pay attention to you. 
 
 But, on the other hand, we have to have a very strong, unflinching effort to move toward the truth, seeking every day.
 
