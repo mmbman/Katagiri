@@ -232,7 +232,7 @@ There was one boat on which a middle-age man and one girl, several times their m
 
 I went to the convent in South Dakota, and from the convent I could see the Missouri River. Big river. But by the banks there are cars, always. For almost a mile, there are cars, right in front; water here, cars always here. I asked the monk; he said, those people believe that if they put their cars there, the water is theirs.
 
-... Well, this was the first experience for us. We never did this before in the United States; only Omaha, once. And then people were angry, because there is “pollution”. But we should look at the United States, the human world, how much we pollute all the rivers. Spiritual life, materialistical world. It is okay to pick up a lantern. But I really regret that people didn’t ask us; people didn’t sit side by side with us, even for a moment; listen to us, what we are doing, and why we do this. That is so important. But they didn’t; just picked up. That is really a miserable lifestyle, face to face.
+... Well, this was the first experience for us. We never did this before in the United States; only Omaha, once. And then people were angry, because there is “pollution.” But we should look at the United States, the human world, how much we pollute all the rivers. Spiritual life, materialistical world. It is okay to pick up a lantern. But I really regret that people didn’t ask us; people didn’t sit side by side with us, even for a moment; listen to us, what we are doing, and why we do this. That is so important. But they didn’t; just picked up. That is really a miserable lifestyle, face to face.
 
 #### 1:07:09 end of recording
 
