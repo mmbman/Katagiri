@@ -95,41 +95,39 @@ So at the dropping off body and mind, if you do zazen, simultaneously the dullne
 
 Let me say [more about] this one. What do [we] mean by “dropping off body and mind the moment when do zazen, the moment when you devote yourself in zazen”? Let me say it like this. 
 
-[...] Let’s imagine that you [are getting into] a bathtub in the cold weather. In the rigors of Minnesota winter, your body becomes very cold. After that, you put your body right in the middle of a hot bath, okay? The moment when you put your body and mind in the hot bathtub, what do you say?
+[...] Let’s imagine that you [are getting into] a hot bath in the cold weather. In the rigors of Minnesota winter, your body becomes very cold. After that, you put your body right in the middle of a hot bath, okay? The moment when you put your body and mind in the hot bathtub, what do you say?
 
 **Several people:** “Ah.”
 
 **Katagiri Roshi:** “Ah!” *[Laughter.]* 
 
-That’s pretty simple! “Ah” – that’s it. It’s no particular word, it’s a simple word. “Simple word” means a ground word, coming from the bottom of your heart. When your body and mind becomes one with the hot water and bathtub and all circumstances – including your memories, and distractions, dullness, all stuff. And then when you become completely one with the [bath], then you can demonstrate simplicity in life, so-called, “Ah!” That’s it. 
+That’s pretty simple! “Ah!” – that’s it. It’s no particular word, [just] a simple word. “Simple word” means a ground word, coming from the bottom of your heart. When your body and mind becomes one with the hot water and bathtub and all circumstances – including your memories, and distractions, dullness, all stuff. And then when you become completely one with the [bath], then you can demonstrate simplicity in life – so-called, “Ah!” That’s it. 
 
-Within the “ah” – who are they? Who are they? 
-
-Can you pick up something particular? Pay attention to just the moment, at the very moment when you say “Ah.” *Who* are they? What is it? What is there? Can you say it? 
+Within the “ah” – who are they? Can you pick up something particular? Pay attention to just the moment, at the very moment when you say “Ah.” *Who* are they? What is it? What is there? Can you say it? 
 
 *After* “ah,” you pick up *you*, who says “ah.” But I am talking about *before* you say “ah.” Okay? 
 
-Here is a partition, a very thin partition, just like a very thin curtain. Silk... very thin silk. Not silk... silk is still touchable, but that partition is not touchable, but it’s still something there. Just like a mist. A mist is pretty hard to grasp, but it’s there. And then if you touch it, it disappears, and you can get next door. [I say] this is a [...] door. 
+Here is a partition, a very thin partition, just like a very thin curtain.Very thin silk. Not silk... silk is still touchable, but that partition is not touchable, but it’s still something there. Just like a mist. A mist is pretty hard to grasp, but it’s there. And then if you touch it, it disappears, and you can get next door. This is a [...] door. 
 
-So this partition, when you are coming back to your home, and you put your body and mind in the bath tub. And then immediately within this partition you create your own life, so-called “ah.” Simple life. 
+So [...] you are coming back to your home, and you put your body and mind in the bathtub. And then immediately within this partition you create your own life, so-called “ah.” Simple life. And then right before this partition, right before you touch [it] – this is the very beginning of the moment, okay? The very moment, before you think of it, before something runs through your consciousness. In that [situation], I think your body and your consciousness and the water become exactly one. That situation is never described. But your body and the water [are] functioning simultaneously, together.
 
-And then right before this partition, right before you touch – this is the very beginning of the moment, okay? The very moment, before you think of it, before something runs through your consciousness. In that area, I think your body and your consciousness and waters becomes exactly one. That area, that situation, is never described, but your body and the water [are] functioning simultaneously, together.
+And then, the next moment, you say, “Ah.” That is the next moment. And then when you say “ah,” people are very interested in the “ah” which you have demonstrated. Then, you are involved so much in what “ah” means. *[Laughter.]* What are they – the hot water, and your body and mind? Who makes me say “ah”? Something like that. This is “scientific,” you know? Modern civilization. And then finally, you don’t know where you are going. And also, you completely forget the first stage, the very first stage of your life. Completely you forget. 
 
-And then, the next moment, you say, “Ah.” That is the next moment. And then when you say “ah,” people are very interested in the “ah” which you have demonstrated. Then, you are involved so much in what “ah” means. *[Laughter.]* Well, what are they? Hot water, and your body and mind... who makes me say “ah”? Something like that. This is scientific, you know? Modern civilization. And then finally, you don’t know where are you going. And also, you completely forget the first stage, the very first stage of your life. Completely you forget. 
+[In the] first stage of your life, there are many beings which are functioning interpenetratedly, interconnectedly, together. This is *oneness*. Look at this sunny, wonderful day, you know? Well, how many beings exist? When you feel that wonderful sunny day, you say, “Ah, wonderful!” And before you say “wonderful,” how many beings are working together, interpenetratedly, without any hindrances? This is called *the universe*, we say; this is called *oneness*. In the oneness, that is a place where all beings come together and are working together and walking hand in hand, without hindrances, creating a peaceful world. 
 
-[In the] first stage of your life, there are many beings which are functioning interpenetratedly, interconnectedly, together. This is *oneness*. You look at this sunny, wonderful day, you know? Well, how many beings exist? When you feel that wonderful sunny day, you say, “Ah, wonderful!” And before you say “wonderful,” how many beings are working together, interpenetratedly, without any hindrances? This is called *the universe*, we say; this is called *oneness*. In the oneness, that is a place where all beings come together and are working together and walking hand in hand, without hindrances, creating a peaceful world. 
+Even [beyond] Minnesota. The rigors of Minnesota winter shake hands with the winter of Hawaii, in peace. You don’t believe it, but this is true. The Japanese monkey talks peacefully with the elephant in India. Can you believe it? You don’t believe it. But this is the place where all sentient beings come together and talk together, which is called *oneness*. We say *universe*, we say the *truth*. 
 
-Even [beyond] Minnesota. The rigors of Minnesota winter shake hands with the winter of Hawaii, in peace. You don’t believe it, but this is the truth. The Japanese monkey talks peacefully with the elephant in India. Can you believe it? You don’t believe it. But this is the place where all sentient beings come together and talk together, which is called *oneness*. We say *universe*, we say the *truth*. 
+But if you are involved so much in the dualistic world, *after* creating a “wow,” you completely forget that first stage of your life. That’s why spiritual life is constantly to let you [get] back to the first stage, the first stage of a “wow.” That’s it. 
 
-But if you are involved so much in the dualistic world, *after* creating a “wow,” you completely forget that first stage of your life. That’s why spiritual life is constantly to let you [get] back to the first stage. The first stage of a “wow.” That’s it. 
-
-That’s why you don’t understand it. But when you are there, completely the dullness and distraction, the form of the five *skandhas*, are struck aside from the beginning. And then, what do you mean? Your body and hot water becomes one. This is called *intimacy*, perfect intimacy. *Secret* intimacy we say: very secret, secret intimacy. No gap between. 
+That’s why you don’t understand it. But when you are there, completely the dullness and distraction, the form of the five *skandhas*, are struck aside from the beginning. And then, what do we mean? Your body and hot water becomes one. This is called *intimacy*, perfect intimacy. *Secret* intimacy we say: very secret intimacy. No gap between. 
 
 This is called *right*, [this is] the meaning of the *right*. And also that is a gate, entrance, to communicate with the universe. *Universe* means the total picture of your life working together with all sentient beings. Okay?
 
-So that is called *dropping off body and mind*. When you do zazen, immediately you say “Ah!” That’s it. But you don’t say “Ah,” because zazen has no particular object, so-called *bathtub*, you know? So that’s why you don’t know. You are always using your mind and body and that’s it. That is subjectivity, and also objective. And then the whole world comes into you. And then, when you say “Wow!” this is called *samadhi*, we say. *Concentration*, okay? Total concentration, total devotion. And also this is called *jijiyu samadhi*, self-joyousness. *Self-joyous samadhi*, we call it. In other words, this is called, “Ah!” That’s it. 
+So that is called *dropping off body and mind*. When you do zazen, immediately you say “Ah!” That’s it. But you don’t say “ah,” because zazen has no particular object, so-called *bathtub*, you know? So that’s why you don’t know. You are always using your mind and body, and that’s it. That is subjectivity and also object. And then the whole world comes into you. 
 
-But in zazen, you cannot say “ah,” because everyone [stays] quiet. *[There are some chuckles.]* So, you have to enjoy the self-joyous samadhi concentration right in the middle of zazen.
+And then, when you say “Wow!” this is called *samadhi*, we say. *Concentration*. Total concentration, total devotion. And also this is called *jijiyu samadhi*, “self-joyousness.” *Self-joyous samadhi*, we call it. 
+
+In other words, this is called, “Ah!” That’s it. But in zazen, you cannot say “ah,” because everyone [is] quiet. *[There are some chuckles.]* So, you have to enjoy the self-joyous samadhi concentration right in the middle of zazen.
 
 This is “dropping off body and mind.” 
 
