@@ -133,13 +133,15 @@ This is “dropping off body and mind.”
 
 #### 33:48
 
-And then, [...] what makes it possible for this, dropping off body and mind? Is it an idea? Is it a concept or perception? No. Just activity there. Total activity, which is neat and tidy, so-called *simplicity*. Simple activity. Simple activity means using your consciousness and using your whole body with wholeheartedness and jump into the zazen, and then this is called simplicity. That is called activity. Our activity is usually very complicated, but in zazen, activity is very simple, which means very tidy and neat and unsophisticated. Very pure, simple. 
+And then, [...] what makes it possible for this, dropping off body and mind? Is it an idea? Is it a concept or perception? No. Just activity there. Total activity, which is “neat and tidy,” so-called *simplicity*. Simple activity. 
 
-So, this is why that simple activity is important: in order to experience intimacy. Let me explain this once again. 
+Simple activity means using your consciousness and using your whole body with wholeheartedness and jump into the zazen, and then this is called simplicity. That is called activity. Our activity is usually very complicated, but in zazen, activity is very simple, which means very tidy and neat, unsophisticated. Very pure, simple. 
 
-Dogen Zenji explains about washing the robe. How can you wash the robe, in *Shobogenzo*? Using [water with ashes]. In ancient time we didn’t have soap, so using [water with ashes]. I don’t want to explain this one, so I want to explain [using] your washing machine. 
+This is why that simple activity is important: in order to experience intimacy. Let me explain this once again. 
 
-So, look at the washing machine. If you want to wash your dirty clothes, you have to put the dirty clothes in the washing machine, and also, next, pure, clean water there. That is called the dualistic world: dullness, distractions, and good or bad, right and wrong;  the phenomenal world. 
+Dogen Zenji explains about washing the robe in *Shobogenzo*: how you can wash the robe using [water with ashes]. In ancient time we didn’t have soap, so using [water with ashes]. I don’t want to explain this [way], I want to explain [using] your washing machine. 
+
+So, look at the washing machine. If you want to wash your dirty clothes, you have to put the dirty clothes in the washing machine, and also, next, the pure, clean water there. That is called the dualistic world: dullness, distractions, and good or bad, right and wrong; the phenomenal world. 
 
 And then, when you put the water in [with] the dirty clothes, then next, what do you do? 
 
@@ -165,7 +167,7 @@ And then, when you put the water in [with] the dirty clothes, then next, what do
 
 **Someone from before:** Agitating!
 
-**Katagiri Roshi:** Oh, that’s what I mean. I am sorry. *[Laughter.]*
+**Katagiri Roshi:** Oh, that’s what I mean. I’m sorry. *[Laughter.]*
 
 Anyway, machine [is] moving: that is our practice, so-called simple activities, constantly. Alright?
 
@@ -175,9 +177,9 @@ And then the people are very interested in impurity or purity. And then finally 
 
 But actually, under the dirty clothes and the clean water, what’s there? 
 
-Under all circumstances, always there is movement there. Alright? And *then*, you can create... Pay attention to this one, alright? Don’t forget this one. Whatever happens, [whether] you like or you don’t like, there is a wonderful world there. That is called *whole universe*, you say. Sometimes you say, “Universe takes care of me.” What do you mean, *the universe*? Universe is not a concept. Universe is not something you can get by your “head trip.” Universe is something *active*. If you believe there is a universe, universe must be manifested or realized in your everyday life. Otherwise, no sense of universe. 
+Under all circumstances, always there is movement there. Alright? And *then*... Pay attention to this one, alright? Don’t forget this one. Whatever happens, [whether] you like or you don’t like, there is a wonderful world there. That is called *whole universe*, you say. Sometimes you say, “Universe takes care of me.” What do you mean, *the universe*? Universe is not a concept. Universe is not something you can get by your “head trip.” Universe is something *active*. If you believe there is a universe, universe must be manifested or realized in your everyday life. Otherwise, no sense of universe. 
 
-So, there is a universe which is beyond your consciousness, but that universe must be manifested, realized by *you*, in your everyday life. At that time, universe becomes *phenomenal world*. Okay? Universe blooms its flower, so-called phenomenal world, pure [and] impure – like this. What is a pure sense of the universe? Pure sense of universe is constantly moving, under dirty clothes and clean water. Which you cannot see. So, movement is invisible. 
+So, there is a universe which is beyond your consciousness, but that universe must be manifested, realized by *you*, in your everyday life. At that time, universe becomes *phenomenal world*. Okay? Universe blooms its flower, so-called phenomenal world, pure [and] impure – like this. What is a pure sense of the universe? Pure sense of universe is constantly moving, under dirty clothes and clean water. Which you cannot see. Movement is invisible. 
 
 So, under all circumstances – whatever you feel from your life, whatever you feel from the world – there is always [a] universe which is working, very active, to support all sentient beings, to create the human world. 
 
@@ -185,9 +187,9 @@ And then, what happens?
 
 Then, there is nothing to attach to, so-called dirty clothes, because dirty clothes turn into clean clothes. Clean water becomes dirty water. 
 
-But usually people don’t believe this, because if you have a concept so-called *clean water*, you believe that it must be always clean, *always*! [...] Idealistically it’s true, but it doesn’t work in your everyday life. Is that clear? 
+But usually people don’t believe this, because if you have a concept, so-called *clean water*, you believe that it must be always clean, *always*! Idealistically it’s true, but it doesn’t work in your everyday life. Is that clear? 
 
-So, clean water must be dirty water, in order to make the dirty clothes clean! That is a phenomenal world, that is called *intimacy*, that is called *interdependent co-origination* – helping each other. Alright? 
+So, clean water must be dirty water, in order to make the dirty clothes clean! That is the phenomenal world, that is called *intimacy*, that is called *interdependent co-origination* – helping each other. Alright? 
 
 So, all we have to do is to practice zazen with total activity, which is simple, tidy, and neat. Unsophisticated. 
 
@@ -195,15 +197,15 @@ And then, you can see the nightmares, fears, and many things. But if you always 
 
 So, you don’t believe that if you sit down exactly, dullness and distraction are struck aside from the beginning, [as Dogen Zenji says]. But that is called the unique way to participate in peaceful, harmonious, spiritual life. Otherwise, no way. No way. 
 
-How do you do this? You have to just emulate this practice. Imitate, as exactly what the ancestors and Buddhists have done. You have to do it. And then, you can really deepen your life, and that practice makes your life ripe. 
+How do you do this? You have to just emulate this practice. Imitate, as exactly what the ancestors and buddhas have done. You have to do it. And then, you can really deepen your life, and that practice makes your life ripe. 
 
-And then from this ripeness, from this deepening of your life, then you can create philosophy, psychology from this. [From the depths of] the well, psychology and philosophy and religious teaching are coming up. But people completely understand the religious teaching reversed, *[he laughs,]* in the opposite way: first there is a teaching, and then we try to mold our life into the teaching. Or we try to get the knowledge from the teaching, and then try to be free from something. *You cannot do it*, because your body and mind are always supported by the movement in dynamism, so-called universe. 
+And then from this ripeness, from this deepening your life, then you can create philosophy, psychology from this. [From the depths of] the well, psychology and philosophy and religious teaching are coming up. But people completely understand the religious teaching reversed, in the opposite way: first there is a teaching, and then we try to mold our life into the teaching. *[He laughs.]* Or we try to get the knowledge from the teaching, and then try to be free from something. *You cannot do it*, because your body and mind are always supported by the movement in dynamism, so-called universe. 
 
 So, who is Katagiri? Katagiri is Katagiri. Finally, what do you mean? Katagiri creates his own phenomenal world, but on the other hand, Katagiri has to stand up constantly in this total dynamic activity, as best as he can. And then, he can deepen his life. The same applies to your life, whatever you do. This is called ...
 
 *[Tape change.]*
 
-... and then Dogen Zenji [says here], “This is called right entrance to the Buddha Dharma.” Right entrance to get into, to participate in peaceful and harmonious human life.
+... and Dogen Zenji says here, “This is called right entrance to the Buddha Dharma.” Right entrance to participate in peaceful and harmonious human life.
 
 Do you have questions? 
 
