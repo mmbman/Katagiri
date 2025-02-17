@@ -333,13 +333,13 @@ Yes, I can understand. I don’t know. But that is ... well if you explain it, y
 
 **Questioner:** So you’re saying there are two kinds of joy, one which is ego, and one which is very quiet, that we don’t understand yet, that isn’t ego.
 
-**Katagiri Roshi:** Mm-hmm. So, joyousness is based on self-centeredness *and* also not-self-centeredness – both. So that’s why self-centeredness turns into the not-self-centeredness, by quiet dynamic movement, so-called washing machine, anyway. 
+**Katagiri Roshi:** Mm-hmm. So, joyousness is based on self-centeredness *and* also not-self-centeredness – both. So that’s why self-centeredness turns into the not-self-centeredness, by quiet dynamic movement, so-called washing machine. 
 
 Do you understand? No? 
 
 **Questioner:**A little bit. 
 
-**Katagiri Roshi:** Okay. Good. That’s enough. [Thank you.] *[Laughter.]* 
+**Katagiri Roshi:** Okay, good. That’s enough. [Thank you.] *[Laughter.]* 
 
 #### 1:06:07 end of recording
 
