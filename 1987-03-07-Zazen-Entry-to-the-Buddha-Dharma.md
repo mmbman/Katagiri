@@ -3,15 +3,13 @@ title: "Zazen: Entry to the Buddha Dharma"
 ---
 ## March 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [Fundamentals](fundamentals)
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-11-Bendowa-Talk-1) | Series: [Fundamentals](fundamentals), [*Bendowa*](bendowa)
 
 ### Summary
 
 Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “Negotiating the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and the meaning of *shinjin dotsuraku*, “dropping off body and mind.”
 
 ### Transcript
-
-<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/zazen-entry-to-the-buddha-dharma" target="_blank">Listen to this talk</a>
@@ -347,4 +345,4 @@ Do you understand? No?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [Fundamentals](fundamentals)
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-11-Bendowa-Talk-1) | Series: [Fundamentals](fundamentals), [*Bendowa*](bendowa)

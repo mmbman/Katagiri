@@ -3,7 +3,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1"
 ---
 ## March 11, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [Fundamentals](fundamentals)
+#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
 
 ### Transcript
 
@@ -15,7 +15,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendowa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, but because of circumstances he didn’t do anything, he just stayed at a small temple. And at that time he wrote this *Bendowa* first, before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [the] first work of Dogen Zenji. It’s a very interesting article, this one. 
+**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendowa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendowa* first – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [the] first work of Dogen Zenji. It’s a very interesting article, this one. 
 
 I think in those days there were many questions about the zazen he emphasized. So he made eighteen questions and answered those questions. It’s a very interesting question and answer. 
 
@@ -37,21 +37,21 @@ This answer is very long, so I think I’ll read [just a little bit]...
 >
 > The spiritual realm of Buddhas is totally incomprehensible. It is not to be reached by the workings of the mind. Still less can it be known by a man of disbelief or inferior intelligence. Only a person of great capacity based on right faith is able to enter here. Even were a person of disbelief given teachings of it, he would find it difficult to receive them. Even on Vulture Peak, there were some the Buddha allowed to leave. If right faith arises in your mind, you should practice religious discipline and study under a master. If it doesn’t arise, you should cease for a while and regret the fact of not receiving benefits of the dharma from the past. 
 
-Those three questions are all connected, talking about *right entrance*. Zazen is exactly right entrance to get into the Buddha’s world. So what is right entrance? Why does Dogen Zenji emphasize that zazen is right entrance? 
+Those three questions are all connected, talking about *right entrance*. Zazen is exactly right entrance to get into the Buddha’s world. So what is *right entrance*? Why does Dogen Zenji emphasize that zazen is right entrance? 
 
 Number one is [where] already Dogen Zenji [said], “It is right entrance to the Buddha Dharma, that’s why I emphasize how important zazen is.” 
 
 So *right entrance*: I think *right* in Buddhism is not the emphasis of self-centeredness each religion makes. Each religion always put the emphasis on it’s own religion, how important it is, how “right” this religion is. But I don’t think *right* in Buddhism is the emphasis of the egoistic self-centeredness which each religion often manifests. Is that clear? 
 
-[Instead,] I think *right* means *thoroughgoing*. In Pali or Sanskrit, if you say *Sadharma Pundarika Sutra*, *Sa* means “togetherness,” or “join.” That is *Sa*. So if you see something including all beings, that is perfect – it’s a perfect state of existence. If you see yourself including all sentient beings, your presence is perfect. If you see yourself [as] separate from all sentient beings, you are not perfect, you are pretty shaky. But regardless of whether you are conscious of it or not, your presence is exactly perfect – a best, thoroughgoing state of existence – because your life is supported by dharma. So that is so-called *right*, what *sa* means: *togetherness*, or *join*. 
+[Instead,] I think *right* means *thoroughgoing*. In Pali or Sanskrit, if you say *Sadharma Pundarika Sutra* (the *Lotus Sutra*), *sa* means “togetherness,” or “join.” That is *sa*. So if you see something including all beings, that is perfect – it’s a perfect state of existence. If you see yourself including all sentient beings, your presence is perfect. If you see yourself [as] separate from all sentient beings, you are not perfect, you are pretty shaky. But regardless of whether you are conscious of it or not, your presence is exactly perfect – a best, thoroughgoing state of existence, because your life is supported by dharma. So that is so-called *right*, what *sa* means: *togetherness*, or *join*. 
 
 So that *right* sometimes is translated as “sublime,” or sometime we translate it as “subtle.” 
 
-*Sadharma Pundarika Sutra* in Japanese [is] *Myoho Renge* – *myo* means “subtle,” so *myoho* means “subtle dharma.” So in Japanese, Soko Gakai people always chant the title of the *Lotus Sutra*, [...] *Myoho Renge Kyo*. “*Nam myoho*” – *nam* means *namo*: you devote yourself to. So “*namo myoho renge kyo*” in Japanese – they are always chanting every day. 
+*Sadharma Pundarika Sutra* in Japanese [is] *Myoho Renge*. *Myo* means “subtle,” so *myoho* means “subtle dharma.” Soko Gakai people always chant the title of the *Lotus Sutra* in Japanese, [...] *Myoho Renge Kyo*. “*Nam myoho*” – *nam* means *namo*: you devote yourself to. So “*namo myoho renge kyo*” in Japanese – they are always chanting every day. 
 
 So that is *right*. Right means *thoroughgoing*. That something thoroughgoing is not something you should research or you should analyze and try to get something in your hand, but I think you should just accept. Just accept. In other words, *just accept* means *believe*. That is called *to believe*, [or] *faith*. 
 
-*Faith* is to believe in you, to believe in dharma. That means to accept *you* supported by all living beings. All beings; that is exactly best. So that is simultaneously [the] entrance gate to get into Buddha’s world. That’s why if you have faith, simultaneously it makes your life stable, because you can immediately get into Buddha’s world. 
+*Faith* is to believe in you, to believe in dharma. That means to accept *you* supported by all living beings. All beings; that is exactly *best*. So that is simultaneously [the] entrance gate to get into Buddha’s world. That’s why if you have faith, simultaneously it makes your life stable, because you can immediately get into Buddha’s world. 
 
 So that strength is coming from under the ground, it’s coming up constantly. It is not visible with the naked eye, but it is always in the bottom of your heart. 
 
@@ -161,27 +161,27 @@ So that’s why [the] answer. Let’s [look at] the answer:
 
 *[Tape change.]*
 
-Or, dharma means the triple treasure: buddha, dharma, sangha. Well, you can say. So, doubt: doubt is one of the five hindrances. Doubt is not to trust in the self, and teacher, and dharma. 
+*Dharma* [here] means the triple treasure: buddha, dharma, sangha. Well, you can say. So, doubt: doubt is one of the five hindrances. Doubt is not to trust in the self, and teacher, and dharma. 
 
-So, here it says, “you malign the great vehicle”: it means you already speak ill of the self and the teachers, all people, or all sentient beings, and dharma. It means you speak ill of others, you put yourself down, and people, and also all living beings. If you put yourself down, very naturally you cannot accept the world, dharma, as they truly are. Very naturally, [it’s a] miserable world. 
+So, here it says, “you malign the great vehicle”: it means you already speak ill of the self and the teachers, or people, or all sentient beings, and dharma. It means you speak ill of others, you put yourself down, and people, and also all living beings. If you put yourself down, very naturally you cannot accept the world, dharma, as they truly are. Very naturally, [it’s a] miserable world. 
 
-So, that’s why it says, “you malign the great vehicle...”
+So that’s why it says, “you malign the great vehicle...”
 
 > ... your illusion is indeed profound. 
 
-So, that’s delusion. Delusion means hindrances. Doubt is coming up constantly. No matter how long you listen to Buddha’s teaching, yes I understand, but I don’t believe it, I don’t trust myself always. You always repeat the same things. That’s why Dogen Zenji says “your illusion is indeed profound.” 
+[That] delusion means hindrances, doubt is coming up constantly. No matter how long you listen to Buddha’s teaching: “Yes, I understand, but I don’t believe it, I don’t trust myself always.” You always repeat the same things. That’s why Dogen Zenji says “your illusion is indeed profound.” 
 
 Well, what it means, he says, 
 
 > It is like being in the middle of a great ocean and saying there is no water. 
 
-It’s ridiculous! But we do it. We are buddha, but we don’t believe it. Sit down in zazen with wholeheartedness, this is simultaneously the great Way to get into the Buddha’s world beyond your speculation, but we don’t believe it. Even if you believe and do it, still you don’t believe how much your practice is progressing. You don’t believe it. 
+It’s ridiculous! But we do it. We are buddha, but we don’t believe it. Sitting down in zazen with wholeheartedness, this is simultaneously the great Way to get into the Buddha’s world beyond your speculation – but we don’t believe it. Even if you believe and do it, still you don’t believe how much your practice is progressing. You don’t believe it. 
 
-So, that’s why Dogen Zenji [says] in this *Bendowa*, “even if you sit down for a minute, you become Buddha.” But that is so-called *right entrance*. *Right* means no gap between you and Buddha’s world. That is *thoroughgoing*. How can you get no gap between you and Buddha’s world? That is *thoroughgoing* practice. You have to do it. 
+So, that’s why Dogen Zenji [says] in this *Bendowa*, “Even if you sit down for a minute, you become Buddha.” But that is so-called *right entrance*. *Right* means no gap between you and Buddha’s world. That is *thoroughgoing*. How can you get no gap between you and Buddha’s world? That is *thoroughgoing* practice. You have to do it. 
 
-So, zazen is a very simple way to participate in this thoroughgoing state of existence. It’s *very* simple. And also, this is all we want to do. 
+So, zazen is a very simple way to participate in this thoroughgoing state of existence. It’s *very* simple. And also, this is all we want to do. And then we make a schedule and let you sit down, and then the moment when you are there, you start grumbling at it. That is so-called *ignorance*, we say. *[He laughs a little.]* 
 
-And then we make a schedule and let you sit down, then the moment when you are there, you start grumbling at it. That is so-called *ignorance*, we say. *[He laughs slightly.]* We are there, but we don’t believe it. But if you are away from it, you are always seeking for that. And then the buddhas always [say], “Please [...] be here and see it.” So, Buddha puts you right in the middle of Buddha’s world, and then immediately human beings always start to grumble over it, and complain. Why do you do this? This is called *ignorance*. We don’t know why. 
+We are there, but we don’t believe it. But if you are away from it, you are always seeking for it. And then the buddhas always [say], “Please [...] be here and see it.” So, Buddha puts you right in the middle of Buddha’s world, and then immediately human beings always start to grumble over it, and complain. Why do you do this? This is called *ignorance*. We don’t know why. 
 
 So that’s why buddhas and bodhisattvas never have a chance to get into the Buddha’s world, they always try to work with all sentient beings. Because human beings are always grumbling, always going in a different way. So, bodhisattvas never have a great chance to be present in the Buddha’s world for themselves, because they have to see all sentient beings and they have to walk hand in hand with all sentient beings. 
 
@@ -191,9 +191,9 @@ This is a very simple analogy: he says it is like being in the middle of a great
 
 > Thankfully, Buddhas are already sitting serenely in *jijuyu samadhi*. 
 
-*Jijuyu samadhi* means “self-joyfulness [samadhi].” *Jijuyu samadhi* is exactly participating in that Buddha’s world beyond human speculation. Just put yourself in the hot bath – that’s it. And then after that you create your world: “Wow!” Or not-wow. Because people are different, so sometimes people say “wow,” but sometimes people don’t want to say “wow.” Still people hate that hot bath, even though it is hot, wonderful. But whatever you say, wow or not-wow, anyway first put your body right in the middle of the bathtub. That’s it. That’s all you can do. That is called *oneness*. That is called Buddha’s world. *Jijuyu samadhi*. “Self-joyfulness,” which is pure and clean, and unsophisticated. Very pure. Everyone can do this. 
+*Jijuyu samadhi* means “self-joyfulness [samadhi].” *Jijuyu samadhi* is exactly participating in that Buddha’s world beyond human speculation. Just put yourself in the hot bath – that’s it. And then after that you create your word: “Wow!” Or not-wow. Because people are different, so sometimes people say “wow,” but sometimes people don’t want to say “wow.” Still people hate that hot bath, even though it is hot, wonderful. But whatever you say, wow or not-wow, anyway first put your body right in the middle of the bathtub. That’s it. That’s all you can do. That is called *oneness*. That is called Buddha’s world. *Jijuyu samadhi*. “Self-joyfulness,” which is pure and clean, and unsophisticated. Very pure. Everyone can do this. 
 
-That is called *jijuyu samadhi*. That’s why zazen is very simple. Very simple form, and you can do in your everyday life. Just simple form and simple circumstances. It is a very wonderful opportunity to do this. 
+That is called *jijuyu samadhi*. That’s why zazen is very simple – a very simple form, and you can do in your everyday life. Just simple form and simple circumstances. It’s a very wonderful opportunity to do this. 
 
 So that’s why zazen is *jijuyu samadhi*, [which] Dogen Zenji [says] in this *Bendowa*.
 
@@ -217,9 +217,7 @@ No way. But if you keep your mouth shut and just do it, very naturally, you are 
 
 > Still less can it be known by a man of disbelief or inferior intelligence. Only a person of great capacity based on right faith is able to enter here. 
 
-Only the person of great capacity based on right faith is able to enter here. So you should have great faith. 
-
-Who has this great faith? 
+Only the person of great capacity based on right faith is able to enter here. So you should have great faith. Who has this great faith? 
 
 Great faith is something [you are] gifted with already. So you [...] have already great capacity, [you are] gifted with great faith – great opportunity, great working. 
 
@@ -229,7 +227,11 @@ But here it says, “Only a person of great capacity based on right faith is abl
 
 > Even were a person of disbelief given teachings of it, he would find it difficult to receive them. 
 
-But that difficulty is just the conceptual word, you are going astray. That’s it. But actually, you are right there – which is very simple, [like] blooming flowers in the spring. But what makes it possible for you to go astray, that is the conceptual word, so-called “I am not a great person.” So what is the not-great person? That is a concept, fabricated by you. But originally, or in the underlying essence, you are a great person, gifted with great faith. So why not accept? Don’t be irritated. Don’t be agitated. [It’s] not [being] lazy, idle – but not irritated in order to get the satori or happiness, etc. Beyond getting the *satori* or not, anyway, be present right here, right now, with thoroughgoing effort, that’s all we can do. 
+But that difficulty is just the conceptual word. You are going astray; that’s it. But actually, you are right there – which is very simple, [like] blooming flowers in the spring. 
+
+But what makes it possible for you to go astray, that is the conceptual word, so-called “I am not a great person.” What is the not-great person? That is a concept, fabricated by you. But originally, or in the underlying essence, you are a great person, gifted with great faith. 
+
+So why not accept? Don’t be irritated. Don’t be agitated. [It’s] not [being] lazy, idle – but not irritated, in order to get the satori or happiness, etc. Beyond getting the *satori* or not, anyway, be present right here, right now, with thoroughgoing effort. That’s all we can do. 
 
 > Even on Vulture Peak, there were some the Buddha allowed to leave. 
 
@@ -239,7 +241,9 @@ But still they don’t understand, because they don’t believe, they don’t tr
 
 This is a story in *Saddharma Pundarika Sutra*, when Buddha Shakyamuni preached at Vulture Peak in India – Vulture Peak means Himalaya Mountains. And he started to preach about the *Avatamsaka Sutras*. And there were many people, hundreds and thousands of people there. [...] Buddhist monks and Buddhist nuns and laymen, *bhikshuni*, et cetera. But it says, five hundred people tried to leave. One of the main disciples asks Shakyamuni Buddha, “Is it alright for them to leave?” Because that disciple wants them to stay there, because it is Buddha’s compassion. So, “Buddha Shakyamuni, why don’t you stop them leaving?” But Buddha says, let them go. 
 
-So, then later, Dogen Zenji mentions, if you don’t like zazen, if you really hate zazen, you can quit. You can quit zazen for a while. But don’t just quit, okay? *[He chuckles.]* Please reflect upon yourself. How can you reflect upon yourself? It means you miss the opportunity to participate in the bigger scale of the universe – that is your reflection, looking at yourself. Not *regret* – just looking at yourself. [What a pity it is] to miss the opportunity to participate in the Buddha’s world, or the great universe. But now, I am enjoying myself because I am taking care of my *own* world, that’s all, not universal Buddha’s world. So, I don’t like zazen, I don’t want to listen to Buddha’s teaching, et cetera. So at that time, you can quit. Just like Buddha Shakyamuni saying, “Let them go.”
+So, then later, Dogen Zenji [says], if you don’t like zazen, if you really hate zazen, you can quit. You can quit zazen for a while. But don’t just quit, okay? *[He chuckles.]* Please reflect upon yourself. How can you reflect upon yourself? It means you miss the opportunity to participate in the bigger scale of the universe – that is your reflection, looking at yourself. Not *regret* – just looking at yourself. [What a pity it is] to miss the opportunity to participate in the Buddha’s world, or the great universe. 
+
+But now, I am enjoying myself because I am taking care of my *own* world, that’s all – not universal, Buddha’s world. So, I don’t like zazen, I don’t want to listen to Buddha’s teaching, et cetera. So at that time, you can quit. Just like Buddha Shakyamuni saying, “Let them go.”
 
 So, that’s why Dogen Zenji mentions here, “Even on Vulture Peak, there were some the Buddha allowed to leave.”
 
@@ -249,11 +253,11 @@ Here it says, if you don’t want to do it, you can cease.
 
 > ... and regret the fact of not receiving the benefits of the dharma from the past. 
 
-Here it says “regret,” but not regret, okay? Not regret, because from regret I think you can have a certain [...] restlessness, and remorse. You know, if you are so excited in the meaning of either good or bad, [...] after that you reflect upon yourself and you don’t feel peaceful, [you are] uneasy [...] So I think here it [...] doesn’t mean *regret*, it means *reflect upon yourself*. [What a] pity it is that you have missed a great opportunity to participate in the universal world. That’s all we can do. 
+Here it says “regret,” but not regret, okay? Not regret, because from regret I think you can have a certain [...] restlessness, and remorse. You know, if you are so excited in the meaning of either good or bad, [...] after that you reflect upon yourself and you don’t feel peaceful, [you are] uneasy. [...] So I think here it [...] doesn’t mean *regret*, it means *reflect upon yourself*. “[What a] pity it is that you have missed a great opportunity to participate in the universal world.” That’s all we can do. 
 
-Because we are supported by the dharma, so I think we should connect, we should join the dharma world, in many ways. That is the practice of *mindfulness*. In many ways, we can practice mindfulness. We can participate in the dharma world practically. But if you cannot, you can quit. But still there is the opportunity to participate in the dharma world: that is reflecting upon ourselves. Thinking of Buddha’s world, universal world. 
+Because we are supported by the dharma, so I think we should connect, we should join the dharma world, in many ways. That is the practice of *mindfulness*. In many ways, we can practice mindfulness, we can participate in the dharma world practically. If you cannot, you can quit. But still there is the opportunity to participate in the dharma world: that is reflecting upon ourselves, thinking of Buddha’s world, universal world. 
 
-That is what Dogen Zenji [says] here. If it doesn’t arise, you should cease for a while and regret the fact of not receiving the benefits of the dharma from the past.
+That is what Dogen Zenji [says] here: if it doesn’t arise, you should cease for a while and regret the fact of not receiving the benefits of the dharma from the past.
 
 #### 1:04:48 end of recording
 
@@ -261,4 +265,4 @@ That is what Dogen Zenji [says] here. If it doesn’t arise, you should cease fo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [Fundamentals](fundamentals)
+#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
