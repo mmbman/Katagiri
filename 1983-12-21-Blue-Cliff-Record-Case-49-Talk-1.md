@@ -170,11 +170,11 @@ So, in the commentary, it says:
 
 > When these adepts met, there was one capture and one release ...
 
-You have to capture, you have to take something, when you have to teach, [when] you have to give. [...] In order to give, you have to take people – grasp him or her, and give. Simultaneously, you have to release, let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” You can do it. 
+You have to capture, you have to take something, when you have to teach, [when] you have to give. [...] In order to give, you have to take people – grasp him or her, and give. Simultaneously, you have to release, let it go. That [is the meaning of], “When these adepts met, there was one capture and one release.” 
 
-For instance, a friend of mine, Yokoi Roshi (Kakudo Yokoi, d. 1975), always taught me many things. One side of his life toward me was very, what would you say, strict; always he captured me. When he captured me, he never released me; he immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go, because I could see his really deep compassion in his life toward me. 
+You can do it. For instance, a friend of mine, Yokoi Roshi (Kakudo Yokoi, d. 1975), always taught me many things. One side of his life toward me was very, what would you say, strict; always he captured me. When he captured me, he never released me; he immediately captured [me]. But on the other hand, he released me – he let me free, always. That means compassion, always there is compassion. So, I was pretty mad at him, but simultaneously I cannot escape from this, because there is a release. He didn’t actually let me go, but I myself let go, because I could see his really deep compassion in his life toward me. 
 
-So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise, you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic: you have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
+So, that’s why, if you educate somebody or if you teach, if you see somebody, if you meet somebody, anyway, you have to always take somebody, otherwise you cannot devote yourself to do something initiatively. So, you should take something, anyway, grasp it. But it’s not egoistic: you have to release it, let it go. [...] It requires you [to have] very deep understanding. That is compassion. And then you can feel, you can take a deep breath there, and also you can let others take a deep breath. That is simultaneously there, and then you can teach. 
 
 *[Tape change.]*
 
@@ -190,7 +190,7 @@ I experienced that [...] seven years ago, when I was on Fifth Street Southeast. 
 
 So if you fight with this kind of words, you become mean. So [there is] no end of fighting. 
 
-[As] I said, there are two things simultaneously exist[ing] in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? But, [if] some person is pretty weak, sometimes you should push; push him or push her. Do something initiatively. 
+[As] I said, there are two things simultaneously exist[ing] in your life, defense and offense. But, there is no sense of victory or defeat. That means you shouldn’t fight, anyway. When somebody really attacks strongly, well, you should withdraw. Withdraw is [...] not to lose. Okay? But, [if] some person is pretty weak, sometimes you should push him or her: do something initiatively. 
 
 If somebody really puts you down, well, you should be noble. Anyway, you should be really noble: gentle, compassionate, and patient. In your life, there are always many people who put you down, don’t you think? With words, with actions. At that time, you shouldn’t “bark” at him or her always. Don’t bark back. Even though people bark at you, don’t bark back [at them]. You should be always noble. 
 
