@@ -110,7 +110,7 @@ Well, *gain and loss* is just like pros and cons, success and failure. Loss and 
 
 You know pretty well *defamation*. *Eulogy*: if people say something wonderful to you, very naturally you smile. 
 
-My teacher Yokoi Roshi always scolded me: I smiled after he said something wonderful to me; and then [...] immediately he said, "How stupid you are." I didn't understand why he said so. But that's pretty good for us. For me, anyway; not for you. For me it [was] very nice. But at that time, I didn't understand. 
+My teacher Yokoi Roshi always scolded me: I smiled after he said something wonderful to me; and then [...] immediately he said, "How stupid you are." I didn't understand why he said so. But that's pretty good for us. For me, anyway; not for you. For me it [was] very nice. But at the time, I didn't understand. 
 
 So, eulogy and praise: very naturally after doing something, there are lots of pros, and praise, [and] lots of nice criticism, and ridicule. And also sorrow and joy. Those eight winds – always get you into trouble. 
 
