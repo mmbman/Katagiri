@@ -8,7 +8,7 @@ This series of transcripts is in draft stage.
 
 - [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 - [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
-- *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2
+- [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
 - *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 3
 - *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4
 - *Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5

@@ -3,7 +3,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1"
 ---
 ## March 11, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendowa*](bendowa)
 
 ### Transcript
 
@@ -27,7 +27,7 @@ I think in those days there were many questions about the zazen he emphasized. S
 > 
 > Answer 2: The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted it from one to another as the right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through Zazen. Therefore, I now point it out to men and devas as the right entrance. 
 > 
-> Question 3: It may be that zazen as the right entrance derives from the right transmission of the tathagatas’ wonderful means or from following in the path of the patriarchs. It is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes effecting *satori*. But to sit idly doing nothing, how can that be of help in gaining *satori*? 
+> Question 3: It may be that zazen as the right entrance derives from the right transmission of the Tathagata’s wonderful means or from following in the path of the patriarchs – it is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes effecting *satori*. But to sit idly doing nothing, how can that be of help in gaining *satori*? 
 > 
 > Answer... 
 
@@ -265,4 +265,4 @@ That is what Dogen Zenji [says] here: if it doesn’t arise, you should cease fo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendowa*](bendowa)
