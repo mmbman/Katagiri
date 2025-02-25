@@ -15,7 +15,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendowa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendowa* first – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [the] first work of Dogen Zenji. It’s a very interesting article, this one. 
+**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendowa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendowa* – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [one of the first works] of Dogen Zenji. It’s a very interesting article, this one.
 
 I think in those days there were many questions about the zazen he emphasized. So he made eighteen questions and answered those questions. It’s a very interesting question and answer. 
 
