@@ -99,15 +99,15 @@ Do you have some questions about this *sho*? So, practice and realization. Other
 
 **Question:** But, even if there’s no... there’s *sho*, even if you don’t experience *kaku* or *satori*, isn’t there?
 
-**Katagiri Roshi:** Yeah, kaku and satori...
+**Katagiri Roshi:** Yeah, *kaku* and *satori*...
 
 **Question:** How important are they? 
 
-**Katagiri Roshi:** Kaku and satori? 
+**Katagiri Roshi:** *Kaku* and *satori*? 
 
 **Question:** Yeah.
 
-**Katagiri Roshi:** Well, important. But people really try to hold on [to] kaku and satori, which seems to be a best experience. That’s why Dogen Zenji mentions, that’s why people are proud of themselves very much. They  are proud of their understanding, their own experience. But this is nothing but escalading, you know, for the sky. *[He laughs.]* Going up to the sky, that’s it. So that’s why under the beautiful flag of religions, we are always fighting. If you experience God, then you are proud of your experience and understanding of God. And then we become really high. That is really a problem for us. Finally, fighting. 
+**Katagiri Roshi:** Well, important. But people really try to hold on [to] *kaku* and *satori*, which seems to be a best experience. That’s why Dogen Zenji mentions, that’s why people are proud of themselves very much. They  are proud of their understanding, their own experience. But this is nothing but escalading, you know, for the sky. *[He laughs.]* Going up to the sky, that’s it. So that’s why under the beautiful flag of religions, we are always fighting. If you experience God, then you are proud of your experience and understanding of God. And then we become really high. That is really a problem for us. Finally, fighting. 
 
 So most important point is, you must be liberated from that pride of your understanding of God, and Buddha, or enlightenment, or whatever. And then, you really become humble. You know? And also majestic. Very majestic and humble. And then you can help people. Otherwise, you create problems. That’s what Dogen Zenji mentions here.
 
