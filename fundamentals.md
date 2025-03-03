@@ -22,7 +22,7 @@ Katagiri Roshi discusses the meaning of the phrases “dropping off body and min
 
 Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “Negotiating the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and the meaning of *shinjin dotsuraku*, “dropping off body and mind.”
 
-(This talk is also part of the *Bendowa* series.)
+(This talk is also part of the [*Bendowa*](bendowa) series.)
 
 ---
 
