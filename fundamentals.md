@@ -36,5 +36,5 @@ Katagiri Roshi introduces a series of talks on the question-and-answer section o
 
 ##### [What Is Buddhist Faith?](1985-06-22-Introduction-to-Buddhism)
 
-The word may be problematic for some, but what does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
+The word may be problematic for some people, but what does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
 

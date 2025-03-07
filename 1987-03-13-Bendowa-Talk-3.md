@@ -3,7 +3,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 3"
 ---
 ## March 13, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-12-Bendowa-Talk-2) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-12-Bendowa-Talk-2) \| [Next](1987-03-14-Bendowa-Talk-4) | Series: [*Bendowa*](bendowa)
 
 ### Transcript
 
@@ -98,7 +98,7 @@ It is not a matter of discussion intellectually, but [rather] it is matter of pr
 
 So very naturally, Dogen Zenji [states] in the beginning of *Bendowa* [...] the key point of the zazen we are practicing. In the first paragraph, Dogen Zenji says:
 
-> Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi* which is its touchstone.
+> Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi*, which is its touchstone.
 
 So the zazen we do is based on *jijiyu samadhi*. I think [there is an] explanation here [in the note]:
 
@@ -372,4 +372,4 @@ But we still have to respect individual lives in their own characteristics, okay
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-12-Bendowa-Talk-2) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-12-Bendowa-Talk-2) \| [Next](1987-03-14-Bendowa-Talk-4) | Series: [*Bendowa*](bendowa)
