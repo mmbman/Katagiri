@@ -26,7 +26,7 @@ of Dharma.
 >
 >  The Great Master said to the assembly, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish Buddhahood. Good Knowing Advisors, listen while I tell you about the actions and intentions by which Hui Neng obtained the Dharma.”
 > 
-> Once a customer bought firewood and ordered it delivered to his shop. When the delivery had been made, and Hui Neng had received the money, he went outside the gate, where he noticed a customer reciting a Sutra. Upon once hearing the words of this Sutra: “One should produce that thought which is nowhere supported.” Hui Neng’s mind immediately opened to enlightenment.
+> Once a customer bought firewood and ordered it delivered to his shop. When the delivery had been made, and Hui Neng had received the money, he went outside the gate, where he noticed a customer reciting a Sutra. Upon once hearing the words of this Sutra: “One should produce that thought which is nowhere supported” – Hui Neng’s mind immediately opened to enlightenment.
 > 
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
@@ -70,11 +70,11 @@ And in the “Sutra of the Mountains and Waters”, Dogen Zenji [says] also,
 >
 > (From *Shobogenzo: Zen Essays by Dogen*, translated by Thomas Cleary, page 91.)
 
-So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
+So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
 
 So by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always, because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
 
-But Dogen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dogen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajnaparamita* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha, so we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
+But Dogen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dogen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajnaparamita* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
 
 #### 11:00
 
@@ -82,11 +82,9 @@ I think if you read the “Buddha Nature” [chapter] of *Shobogenzo* (“Bussh�
 
 So according to [Dogen in] “Buddha Nature,” there are two points. He [talks] about buddha-nature [according to *Nirvana Sutra*]; he quotes a sentence of *Nirvana Sutra* and comments on this. So there are two points he mentioned.
 
-One point is: “All beings without exception are buddha.” This is one point. All beings, without exception at all, are buddha, [or] buddha-nature. 
+One point is: All beings without exception are buddha. This is one point. All beings, without exception at all, are buddha, [or] buddha-nature. 
 
-And second: “Buddha-nature is”... how can I say *[unintelligible Japanese phrase]*... “time and occasion, and cause and conditions.” [This is a] literal translation. “Buddha-nature is time and occasion, cause and conditions.”
-
-(*Transcriber’s Note:* This may be a rendering of the initial lines in “Busshō,” which are noted in the Nishijima-Cross translation of *Shobogenzo* as being from *Mahaparinirvana-sutra*, Chapter 27. If so, this translation differs from that one.)
+And second: Buddha-nature is... how can I say *jisetsu innen*... “time and occasion, and cause and conditions.” [That is a] literal translation. “Buddha-nature is time and occasion, cause and conditions.”
 
 So two meanings. All beings, without exception, are buddha-nature. That means whatever you may be, whatever you think, whatever you don’t think, all beings are completely buddha. So [there is] nothing else to compare with; all are completely buddha. So there is nothing “wrong,” nothing “good” – it’s perfectly buddha. 
 
