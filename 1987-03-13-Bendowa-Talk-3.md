@@ -66,7 +66,11 @@ And also next [...] he emphasizes the primary events [...] of Buddhist meditatio
 
 > It is altogether clear this is the legitimate idea of the buddha-dharma that has been directly transmitted. Many years ago, during the ceremony on Vulture Peak, the Tathagata entrusted the right dharma eye, wondrous mind of nirvana, to Mahakashyapa alone. 
 
-Well, you know this story pretty well. I think in the note he says that on Vulture Peak, Brahma came and implored the Buddha to preach for the benefit of sentient beings. The Buddha held out a lotus flower before the assembly of devas and men, but none of them understood him except Mahakashyapa, who smiled. Then the Buddha exclaimed, “I have the right Dharma eye, the wondrous mind of nirvana. This I entrust to you, Kashyapa.” According to the Zen school, this marks the beginning of the Zen transmission. This account, together with those telling of the dharma transmission up to Hui Neng, may be found in the *[unintelligible]*, so it is said this story is the beginning of Zen dharma transmissions. 
+Well, you know this story pretty well. I think in the note he says:
+
+> On Vulture Peak, Brahma came and implored the Buddha to preach for the benefit of sentient beings. The Buddha held out a lotus flower before the assembly of devas and men, but none of them understood him except Mahakashyapa, who smiled. Then the Buddha exclaimed, “I have the right Dharma eye, the wondrous mind of nirvana. This I entrust to you, Kashyapa.” According to the Zen school, this marks the beginning of the Zen transmission. This account, together with those telling of the dharma transmission up to Hui Neng, may be found in the *Lianteng Huiyao* (聯燈會要).
+
+So it is said that story is the beginning of Zen dharma transmissions. 
 
 [...] In other words, Dogen Zenji tried to give historical proof. If we don’t understand something now, I think we should learn the historical proof – we have to follow the historical events. In other words, I mentioned the other day that we have to emulate the historical customs [...] fabricated by humans. 
 
