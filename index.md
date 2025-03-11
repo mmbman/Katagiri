@@ -32,6 +32,8 @@ Please note that these transcripts are a continuing work in progress. Correction
 
 ## Latest Updates
 
+**March 11, 2025:** Posted all drafts in the [*Bendowa*](bendowa) series.
+
 **February 19, 2025:** Working on the [*Bendowa*](bendowa) series.
 
 **February 11, 2025:** Posted [“*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2.”](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)

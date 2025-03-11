@@ -2182,12 +2182,10 @@ So where can the dust alight?
 
 Nothing can be brought into this Emptiness or dynamical working from the outside. If you bring even the slightest thing into it, then that thing is already conceptualized, fabricated by your consciousness.
 
-That is why Hui-neng said that there is no Bodhi-tree nor stands of mirror bright. No enlightenment, no ultimate nature of being.
-Hui-neng passed through the net of enlightenment and works his human life in his everyday life. Forgetting that stage of enlightenment which deals with purity and impurity. Forgetting it and going on working. As a Buddha, as a pure being.
+That is why Hui-neng said that there is no Bodhi-tree nor stands of mirror bright. No enlightenment, no ultimate nature of being. Hui-neng passed through the net of enlightenment and works his human life in his everyday life. Forgetting that stage of enlightenment which deals with purity and impurity. Forgetting it and going on working. As a Buddha, as a pure being.
 
 Historically we use the terms Sudden and Gradual to describe the Southern and Northern Schools. The school of Hui-neng is Sudden Zen Buddhism. Sudden means you are already Buddha, so there is a
-Sudden realization. The school of Shen-hsiu is called Gradual
-Zen Buddhism. Because you must practice to gradually attain enlightenment, to purify body and mind. So this sutra says there are sudden and gradual, in connection with which are set up basic approaches.
+Sudden realization. The school of Shen-hsiu is called Gradual Zen Buddhism. Because you must practice to gradually attain enlightenment, to purify body and mind. So this sutra says there are sudden and gradual, in connection with which are set up basic approaches.
 
 Basic approaches means that we should understand the real meaning of the teachings given by Shen-hsiu, founder of the Northern School, and that we should understand through and through the teachings of the Sixth Patriarch, Hui-neng, founder of the Southern School.
 

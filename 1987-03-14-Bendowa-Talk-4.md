@@ -3,7 +3,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 4"
 ---
 ## March 14, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-15-Bendowa-Talk-5) | Series: [*Bendowa*](bendowa)
 
 ### Transcript
 
@@ -506,4 +506,4 @@ So I don’t mean that what you mention is something wrong; it’s all right. Bu
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-15-Bendowa-Talk-5) | Series: [*Bendowa*](bendowa)
