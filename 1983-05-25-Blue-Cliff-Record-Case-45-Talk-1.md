@@ -135,15 +135,13 @@ But faith, security, confidence is not something you can [just] talk [about]. Ev
 
 > He is like sparks struck from stone, like the brilliance of a flash of lightning, ...
 
-[It’s] just like there is no gap between you and universal expression, expression of the universe. That’s why it’s just a like a spark of lightning: immediate, simultaneous. When you do gassho, immediately there [it] is. 
+There is no gap between you and universal expression, expression of the universe. That’s why it’s just a like a spark of lightning: immediate, simultaneous. When you do gassho, immediately [it is there]. 
 
-Zen history says Soto Zen is gradual enlightenment, Rinzai Zen is sudden enlightenment. It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much. *[He chuckles.]*
+Zen history says Soto Zen is “gradual enlightenment,” Rinzai Zen is “sudden enlightenment.” It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much. *[He chuckles.]*
 
-So human life is exactly like... I say, [living is like] a leaping fish. Leaping fish is exactly just like a spark of lightning. 
+So [...] I say, [living is like] a leaping fish. “Leaping fish” is exactly like a [flash of] lightning. Because you don’t know what it is. If you say fish, *fish* already becomes a concept, you know? But fish is not fish, fish is moving. So you say [it’s] movement? No. It’s not movement; it’s a fish. But it’s not a fish; it’s movement. What can you call this? Movement? No. Movement means energy, inherent to everything. So can you say energy? No. It’s a fish. [So] you can say fish – but it’s not. So how can you say it, the total leaping fish? 
 
-Because you don’t know what it is. If you say fish, *fish* already becomes a concept, you know? But fish is not fish, fish is moving. So you say [it’s] movement? No. It’s not movement; it’s fish. But it’s not fish; it’s movement. How can you call this? Movement? No. Movement means energy, inherent to everything. So you can say energy? No. It’s fish. [So] you can say fish – but it’s not. How can you say the total leaping fish? 
-
-That total leaping fish is something you can *learn*. You can learn, you can express yourself, right in the middle of... what? Pure sincerity, pure heart. That is *wholeheartedness*. And then you can express. That is called the universe. So that’s why the leaping fish is very beautiful. Very active, very impressive. 
+That total leaping fish is something you can *learn*. You can learn, you can express yourself, right in the middle of... what? Pure sincerity, pure heart. That is *wholeheartedness*. And then, you can express. That is called the universe. So that’s why the leaping fish is very beautiful, very active, very impressive. 
 
  > ... like a raging fire fanned by the wind, like a rushing torrent crossing a sword edge.
  

@@ -2172,7 +2172,7 @@ This is supreme purity.
 
 “No stand of mirror bright:” Mind is also supreme purity. “Since all is Void” means that it is purity beyond perception of purity or impurity: no form, no colors, no smell; nothing to grasp. If you can grasp it through your consciousness then you have fallen into the dualistic view.
 
-No form, no colors, no smell means that something is constantly working dynamically. Atoms and particles do not arise and become matter by themselves; there must be energy to make them come together and take a specific form. So me give a scientific explanation and say that matter and energy are the same. Energy has no form, no colors, but still it is constantly working everywhere. When energy arises then particles appear and come together and make trees and birds, thoughts and Winter, many things. Forms you can perceive through your six senses.
+No form, no colors, no smell means that something is constantly working dynamically. Atoms and particles do not arise and become matter by themselves; there must be energy to make them come together and take a specific form. So we give a scientific explanation and say that matter and energy are the same. Energy has no form, no colors, but still it is constantly working everywhere. When energy arises then particles appear and come together and make trees and birds, thoughts and Winter, many things. Forms you can perceive through your six senses.
 
 That is why supreme purity is a Void, Nothingness.
 
