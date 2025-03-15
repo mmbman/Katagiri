@@ -261,19 +261,23 @@ And on the other hand, the other aspect of practice is to descend to the human w
 
 So [we need] both. Both work together in our practice. 
 
-Okay. Do you have questions?
+Okay. *Hai.* Do you have questions?
 
 #### 54:25
 
 **Question:** So, Dogen considered this a forgery?
 
-**Katagiri Roshi:** Uh, not only Dogen. I think the introduction, written by *[unintelligible]*, who was one of Hui Neng’s disciples, [talks about this.] Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it. And then other monks, other disciples carried it always, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] mixed up. 
+**Katagiri Roshi:** Uh, not only Dogen. I think the introduction written by Echū, who was one of Hui Neng’s disciples, [talks about this]. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it, and then other monks, other disciples, always carried it, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] “mixed up.”
 
-That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
+(*Transcriber’s Note:* It’s not clear what introduction is referred to above, but there is a reference to Echū, also known as National Master Daishō, in *Shobogenzo* *Soku-shin-ze-butsu* – “Mind Here and Now Is Buddha” – where ostensibly he discusses *The Platform Sutra*.)
+
+That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. 
+
+We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
 
 So that’s why Dogen Zenji criticizes [it]... [Although] criticism is [not the right word]. Dogen Zenji tries to let us know what the *real* teaching of the Sixth Patriarch is, instead of putting it down. 
 
-So that’s why the most important point is always Zen. But “the key point of Zen practice is to see into one’s own nature and become buddha” – [...] that is pretty dualistic. That is the point Dogen Zenji tries to [say] in the *Shobogenzo*.
+So that’s why a key point of Zen practice is “to see into one’s own nature and become buddha.” But that is pretty dualistic; that is the point Dogen Zenji tries to [say] in *Shobogenzo*.
 
 Another question? 
 
