@@ -9,11 +9,13 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 **Series of Talks:**
 
-- [**Fundamentals of Zen**](fundamentals) (this is a good starting point)
+For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals of Zen](fundamentals) series.
+
 - [***Awakening of Faith***](awakening-of-faith)
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
 - [***Fukanzazengi*: Universal Recommendation for Zazen**](fukanzazengi)
+- [**Fundamentals of Zen**](fundamentals)
 - [**Karma**](karma)
 - [**Mindfulness**](mindfulness)
 - [***Platform Sutra***](platform-sutra)
