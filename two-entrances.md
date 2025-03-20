@@ -4,7 +4,7 @@ title: "Two Entrances"
 
 This is a study of the brief treatise attributed to Bodhidharma. Comparison translations are: 
 
-G: Google Translate, with the block print from the Red Pine book as source.
+G: Google Translate, with the block print from the Red Pine book as source.  
 A. Cleary, *Manual of Zen Buddhism*, 1935.  
 B. Broughton, *The Bodhidharma Anthology*, 1979.  
 C. Jorgensen, 1979.  
