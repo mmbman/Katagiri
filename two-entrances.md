@@ -51,23 +51,32 @@ D: To enter by reason means to realize the essence through instruction and to be
 
 ---
 
-堅住不移更不隨交教此卽與理冥符、無有分別寂然無為名之理入行入謂四行其餘諸行悉入此中。
+堅住不移、更不隨交教、此卽與理冥符。無有分別寂然 無為、名之理入。
 
-G: Staying firmly and unmovable and not following other teachings, this is the harmony with the principles. It is without distinction, stillness and inaction, and is called the principle of entering into practice. The four practices are the entry into practice, and all other practices are included in this.
+
+G: Stay firm and do not move, and do not follow other teachings. This is in harmony with the principles. Without any distinction, in silence, inaction, and the principle of name.
 
 A: ... and he firmly holds on to this belief and never moves away therefrom. He will not then be a slave to words, for he is in silent communion with the Reason itself, free from conceptual discrimination; he is serene and not-acting. This is called "Entrance by Reason".  
-By "Entrance by Conduct" is meant the four acts in which all other acts are included...
 
 B: ... firmly abiding without shifting, in no way following after the written teachings—this is mysteriously tallying with principle. It is nondiscriminative, quiescent, and inactive; we call it entrance by principle.  
-Entering by practice means the four practices, for all other practices are included within these.
 
 C: If one stands firm and does not shift, and moreover is not influenced by literary teachings, this is to be merged with principle, to lack discrimination, to be quiet and inactive, which is called entering via principle.
-Entry via practice is the so-called Four Practices. All other practices are included in these practices.
 
 D: ... and who remain unmoved even by scriptures are in complete and unspoken agreement with reason. Without moving, without effort, they enter, we say, by reason.  
-To enter by practice refers to four all-inclusive practices:
 
 ---
+
+行入謂四行、其餘諸行悉入此中。
+
+By "Entrance by Conduct" is meant the four acts in which all other acts are included...
+
+Entering by practice means the four practices, for all other practices are included within these.
+
+Entry via practice is the so-called Four Practices. All other practices are included in these practices.
+
+To enter by practice refers to four all-inclusive practices:
+
+
 
 何等四那。
 
