@@ -38,7 +38,7 @@ D: Many roads lead to the Path, but basically there are only two: reason and pra
 
 理入者、謂藉教悟宗。深信含生同一真性。但為客塵妄想所覆。不能顯了。若也捨妄歸真。凝住壁觀。無自無他凡聖等一。
 
-G: To enter into the principle is to understand the essence of the doctrine through teachings. Deeply believe that all living beings have the same true nature. But it is covered by external dust and delusion and cannot be revealed. If one abandons delusion and returns to the truth, concentrating on the wall and observing that there is no self or other, then the ordinary person or the sage is one.
+G: To enter into the principle is to understand the essence of the doctrine through teachings. Deeply believe that all living beings have the same true nature, but it is covered by external dust and delusion and cannot be revealed. If one abandons delusion and returns to the truth, concentrating on the wall and observing that there is no self or other, then the ordinary person or the sage is one.
 
 A: By "Entrance by Reason" we mean the realization of the spirit of Buddhism by the aid of the scriptural teaching. We then come to have a deep faith in the True Nature which is the same in all sentient beings. The reason why it does not manifest itself is due to the overwrapping of external objects and false thoughts. When a man, abandoning the false and embracing the true, in singleness of thought practises the Pi-kuan he finds that there is neither self nor other, that the masses and the worthies are of one essence, ...
 
@@ -51,10 +51,9 @@ D: To enter by reason means to realize the essence through instruction and to be
 
 ---
 
-堅住不移、更不隨交教、此卽與理冥符。無有分別寂然 無為、名之理入。
+堅住不移、更不隨交教、此卽與理冥符。無有分別寂然 無為 名之理入。
 
-
-G: Stay firm and do not move, and do not follow other teachings. This is in harmony with the principles. Without any distinction, in silence, inaction, and the principle of name.
+G: Stay firm and do not move, and do not follow other teachings. This is in harmony with the principles. There is no distinction, there is stillness and inaction, this is called entering into the principle.
 
 A: ... and he firmly holds on to this belief and never moves away therefrom. He will not then be a slave to words, for he is in silent communion with the Reason itself, free from conceptual discrimination; he is serene and not-acting. This is called "Entrance by Reason".  
 
@@ -66,29 +65,24 @@ D: ... and who remain unmoved even by scriptures are in complete and unspoken ag
 
 ---
 
-行入謂四行、其餘諸行悉入此中。
+行入謂四行。其餘諸行悉入此中。何等四那。
 
-By "Entrance by Conduct" is meant the four acts in which all other acts are included...
+G: The four actions are called the practice. All other actions fall into this category. What are [those] four?
 
-Entering by practice means the four practices, for all other practices are included within these.
+A: By "Entrance by Conduct" is meant the four acts in which all other acts are included...
 
-Entry via practice is the so-called Four Practices. All other practices are included in these practices.
+B: Entering by practice means the four practices, for all other practices are included within these.
 
-To enter by practice refers to four all-inclusive practices:
+C: Entry via practice is the so-called Four Practices. All other practices are included in these practices.
 
-
-
-何等四那。
-
-G: What are the four [that]?
-
+D: To enter by practice refers to four all-inclusive practices:
 
 ---
 
 
 
 
-一報宽行二隨行三無所求行四稱法行云何
+一報宽行。二隨行三無所求行。四稱法行云何
 報寃行謂修道行人若受苦時當自念言我往昔無數劫中。
 
 棄本從未流諸有多起冤憎違害無限今雖無
