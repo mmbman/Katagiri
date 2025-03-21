@@ -22,38 +22,62 @@ D: Outline of Practice
 
 -------
 
-夫入道多途要而言之不出二種。
+夫入道多途、要而言之、不出二種。一是理入。二是行入。
 
-G: There are many ways to enter the Tao, but in short, they can be summarized into two types.
+G: There are many ways to enter the Tao, but in essence, they fall into two categories. The first is to enter through reason. The second is to [enter through correct conduct].
 
-A: There are many ways to enter the Path, but briefly Speaking they are of two sorts only. 
+A: There are many ways to enter the Path, but briefly Speaking they are of two sorts only. The one is "Entrance by Reason" and the other "Entrance by Conduct". 
  
-B:	Now, in entering the path there are many roads. To summarize them, they reduce to two types.  
+B:	Now, in entering the path there are many roads. To summarize them, they reduce to two types. The first is entrance by principle and the second entrance by practice. 
 
-C: The entrances to the Way are many, but essentially speaking there is no more than two sorts.
+C: The entrances to the Way are many, but essentially speaking there is no more than two sorts. The first is the entrance via principle, and the second is the entrance via practice.
 
-D: Many roads lead to the Path, but basically there are only two: ...
+D: Many roads lead to the Path, but basically there are only two: reason and practice.
 
 ---
 
-是理入是行入理入者謂藉教悟宗深信含生同一真性但為客塵妄想所覆不能顯了若也捨妄歸真凝住壁觀無自無他凡聖等一。
+理入者、謂藉教悟宗。深信含生同一真性。但為客塵妄想所覆。不能顯了。若也捨妄歸真。凝住壁觀。無自無他凡聖等一。
 
-G: This is the entry into principle and the entry into practice. The entry into principle means to realize the doctrine through the teachings. To have a deep belief that all living beings have the same true nature, but it is covered by external dust and delusion and cannot be revealed. If one abandons delusion and returns to the true nature, and concentrates on the wall and observes that there is no self or other, then the ordinary people and sages are all one.
+G: To enter into the principle is to understand the essence of the doctrine through teachings. Deeply believe that all living beings have the same true nature. But it is covered by external dust and delusion and cannot be revealed. If one abandons delusion and returns to the truth, concentrating on the wall and observing that there is no self or other, then the ordinary person or the sage is one.
 
-A: The one is "Entrance by Reason" and the other "Entrance by Conduct". By "Entrance by Reason" we mean the realization of the spirit of Buddhism by the aid of the scriptural teaching. We then come to have a deep faith in the True Nature which is the same in all sentient beings. The reason why it does not manifest itself is due to the overwrapping of external objects and false thoughts. When a man, abandoning the false and embracing the true, in singleness of thought practises the Pi-kuan he finds that there is neither self nor other, that the masses and the worthies are of one essence, ...
+A: By "Entrance by Reason" we mean the realization of the spirit of Buddhism by the aid of the scriptural teaching. We then come to have a deep faith in the True Nature which is the same in all sentient beings. The reason why it does not manifest itself is due to the overwrapping of external objects and false thoughts. When a man, abandoning the false and embracing the true, in singleness of thought practises the Pi-kuan he finds that there is neither self nor other, that the masses and the worthies are of one essence, ...
 
-B:	 The first is entrance by principle and the second entrance by practice. Entering by principle means that one awakens to the thesis by means of the teachings, and one deeply believes that all living beings, common and sagely, are identical to the True Nature; that it is merely because of the unreal covering of adventitious dust that the True Nature is not revealed. If one rejects the false and reverts to the real and in a coagulated state abides in wall-examining, then self and other, common man and sage, are identical; ...
+B:	 Entering by principle means that one awakens to the thesis by means of the teachings, and one deeply believes that all living beings, common and sagely, are identical to the True Nature; that it is merely because of the unreal covering of adventitious dust that the True Nature is not revealed. If one rejects the false and reverts to the real and in a coagulated state abides in wall-examining, then self and other, common man and sage, are identical; ...
 
 C: Entrance via principle means to rely on the teaching to awake to the doctrine. Believe deeply that life, both ordinary people and saints, share an identical true nature, but due to adventitious contamination it
 is covered in falsity and cannot shine forth. If one rejects the false and returns to the true, stabilizing oneself in wall-contemplation, self and other, ordinary person and saint, will be equal, one. 
 
-D: ... reason and practice. To enter by reason means to realize the essence through instruction and to believe that all living things share the same true nature, which isn’t apparent because it’s shrouded by sensation and delusion. Those who turn from delusion back to reality, who meditate on walls, the absence of self and other, the oneness of mortal and sage...
+D: To enter by reason means to realize the essence through instruction and to believe that all living things share the same true nature, which isn’t apparent because it’s shrouded by sensation and delusion. Those who turn from delusion back to reality, who meditate on walls, the absence of self and other, the oneness of mortal and sage...
 
 ---
 
 堅住不移更不隨交教此卽與理冥符、無有分別寂然無為名之理入行入謂四行其餘諸行悉入此中。
 
+G: Staying firmly and unmovable and not following other teachings, this is the harmony with the principles. It is without distinction, stillness and inaction, and is called the principle of entering into practice. The four practices are the entry into practice, and all other practices are included in this.
+
+A: ... and he firmly holds on to this belief and never moves away therefrom. He will not then be a slave to words, for he is in silent communion with the Reason itself, free from conceptual discrimination; he is serene and not-acting. This is called "Entrance by Reason".  
+By "Entrance by Conduct" is meant the four acts in which all other acts are included...
+
+B: ... firmly abiding without shifting, in no way following after the written teachings—this is mysteriously tallying with principle. It is nondiscriminative, quiescent, and inactive; we call it entrance by principle.  
+Entering by practice means the four practices, for all other practices are included within these.
+
+C: If one stands firm and does not shift, and moreover is not influenced by literary teachings, this is to be merged with principle, to lack discrimination, to be quiet and inactive, which is called entering via principle.
+Entry via practice is the so-called Four Practices. All other practices are included in these practices.
+
+D: ... and who remain unmoved even by scriptures are in complete and unspoken agreement with reason. Without moving, without effort, they enter, we say, by reason.  
+To enter by practice refers to four all-inclusive practices:
+
+---
+
 何等四那。
+
+G: What are the four [that]?
+
+
+---
+
+
+
 
 一報宽行二隨行三無所求行四稱法行云何
 報寃行謂修道行人若受苦時當自念言我往昔無數劫中。
