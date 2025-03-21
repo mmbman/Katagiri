@@ -10,7 +10,7 @@ Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March 
 
 ##### [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 
-Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature and achieve Buddhahood.” 
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature (*kenshō*) and achieve Buddhahood.”
 
 ---
 
@@ -28,7 +28,7 @@ Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* fu
 
 ##### [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
 
-Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism, including the one we usually subscribe to. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
+Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature (*kenshō*) and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
 
 ---
 
