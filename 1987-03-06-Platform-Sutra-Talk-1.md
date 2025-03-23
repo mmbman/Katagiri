@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 1"
 
 ### Summary
 
-Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature (*kenshō*) and achieve Buddhahood.”
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature” (*kenshō*) to achieve Buddhahood.
 
 ### Transcript
 
@@ -32,11 +32,11 @@ of Dharma.
 
 (*Transcriber’s Note:* The recording begins in mid-sentence.)
 
-**Katagiri Roshi:** ... [the] mind which is clear and pure, originally. So one should produce the mind which is nowhere supported because the truth is not something [like] stagnant water, the truth is something moving and active. 
+**Katagiri Roshi:** [...] “One should produce the mind which is nowhere supported”: because the truth is not something [like] stagnant water, the truth is something moving and active. So there is nothing to hold in your hand, there is nothing to support. [...] *Nowhere attached*: this [is the meaning of] “one should produce the mind which is nowhere supported.” 
 
-So there is nothing to hold in your hand, there is nothing to support. “Nowhere supported”: nowhere attached; this [is the meaning of] “one should produce the mind which is nowhere supported.” And then Hui Neng attained enlightenment at that time. 
+And then, Hui Neng attained enlightenment at that time. 
 
-Next,
+Next:
 
 > Thereupon he asked the customer what Sutra he was reciting. The customer replied, “*The Diamond Sutra*.”
 >
@@ -233,9 +233,9 @@ So next, the verse is:
 >
 > In his room he thought it over and could not sit or sleep peacefully right through to the fifth watch.
 
-So, anyway, he couldn’t sleep because he was very concerned about his poem written on the wall. 
+So he couldn’t sleep because he was very concerned about his poem written on the wall. 
 
-His poem is pretty well-known by everyone as one of the Zen stories:
+His poem is pretty well-known by everyone, as one of the Zen stories:
 
 >> The body is a Bodhi tree,  
 >> The mind like a bright mirror stand.  
@@ -251,13 +251,15 @@ And later Hui Neng also wrote his poem. [...] His poem is:
 
 Sometimes people deal with the two poems separately, and evaluate which is right, which is wrong. But I don’t think [that] is the right understanding. Both poems work together in our practice. I think you cannot separate them.
 
-So, according to Shen Hsiu, I think he stands always in the dualistic world, looking at himself and [trying] to reach the buddha-nature. 
+So, according to Shen Hsiu, I think he stands always in the dualistic world, looking at himself and [trying] to reach the buddha-nature. So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature. So we have to realize, we have to see into our own nature. 
 
-So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. So “the body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana. So, we are buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty,” that’s why we have to always brush it clean, “And let no dust alight.” This is a point of our practice. So, constantly practice. 
+So “the body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana; so, we are buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty.” That’s why we have to always brush it clean: “And let no dust alight.” This is a point of our practice. So, constantly practice. 
 
 This is one aspect of the practice: seeking for the truth, constantly. “From the beginning to end”: even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
 
-And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings, because there is no particular [thing]. [This is the spirit of Hui Neng’s poem]: “Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature, so there is no particular thing to discuss [or] to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
+And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings. Because there is no particular [thing]. [This is the spirit of Hui Neng’s poem.]
+
+“Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature, so there is no particular thing to discuss [or] to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
 
 So [we need] both. Both work together in our practice. 
 
