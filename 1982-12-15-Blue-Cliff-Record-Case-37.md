@@ -19,7 +19,7 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 
 #### 0:00
 
-[...] that’s why there is no longer anything else. So,
+**Katagiri Roshi:** [...] that’s why there is no longer anything else. So,
 
 > P’an Shan imparted the words which said, “There is nothing in the triple world; where can mind be found?”
 > 
