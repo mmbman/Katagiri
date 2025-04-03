@@ -28,8 +28,10 @@ Yesterday I mentioned that *sanzen* usually is translated as “the practice,”
 
 In *Gakudo Yojinshu*, “Points to Watch in the Buddhist Training,” page 48 of the book *Zen Master Dogen*, he said first of all:
 
-> The Bodhi-mind is known by many names; but they all refer to the One Mind of the Buddha. The Venerable Nagarjuna said, “The mind that sees into the flux of arising and decaying and recognizes the transient nature of the world is also known as the Bodhi-mind.” Why, then, is temporary dependence on this mind called the
-Bodhi-mind? When the transient nature of the world is recognized, the ordinary selfish mind does not arise; neither does the mind that seeks for fame and profit.
+> The Bodhi-mind is known by many names; but they all refer to the One Mind of the Buddha. The Venerable Nagarjuna said, “The mind that sees into the flux of arising and decaying and recognizes the transient nature of the world is also known as the Bodhi-mind.” Why, then, is temporary dependence on this mind called the Bodhi-mind? When the transient nature of the world is recognized, the ordinary selfish mind does not arise; neither does the mind that seeks for fame and profit.
+>
+> (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
+
 
 This is chapter one of the *Gakudo Yojinshu*. The title is “The Need to Awaken to the Body-Mind,” or “to Arouse Bodhi-Mind.” The need to arouse bodhi-mind, to awaken to the bodhi-mind. 
 
@@ -61,7 +63,7 @@ So in the *Record of Things Heard*, Book 2, Number 14, Dogen Zenji [talks] about
 
 > “First is only that the aspiration of joyful longing be earnest. For example, suppose a person has a conscious desire to steal a precious jewel, a desire to defeat a powerful enemy, or a desire to embrace a distinguished beauty; while traveling, abiding, sitting and reclining, in the midst of affairs as they pass, though various different events come up, he goes along seeking an opening, his mind occupied [with his quest]...”
 >
-> (From ... translated by Thomas Cleary)
+> (From *Record of Things Heard: From the Treasury of the Eye of the True Teaching*, translated by Thomas Cleary.)
 
 So to arouse is, you must be continually mindful of the truth that we are Buddha. Under all circumstances – walking, sitting, standing, reading, wherever you may go, or whatever kind of situation occurs in your life, favorable situation or unfavorable condition – we have to continually be mindful of this truth that we all are Buddha. We doesn’t mean only human beings. All are Buddha. 
 
