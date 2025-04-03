@@ -144,7 +144,7 @@ And impermanence begets suffering. Suffering begets egolessness, naturally. That
 
 Because yesterday I mentioned, human beings always forget returning to the source of *samsara*. And always stirring up the world created after second thought. So this is real suffering, constantly. That’s why Buddha gives pity, Buddha gives sympathy to all human beings like this. Because human beings completely forget.
 
- That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of *Lotus Sutra*, teaching of *Prajnaparamita*, teaching of the *Vimalakirti Sutra*. Anyway, let’s go back. 
+That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of *Lotus Sutra*, teaching of *Prajnaparamita*, teaching of the *Vimalakirti Sutra*. Anyway, let’s go back. 
  
  And then if you go back to that source, you don’t know what it is, but there is really a kind of astonishment, enormous astonishment. Then from this astonishment, you can build up philosophy, psychology, Buddha’s teaching. 
  
