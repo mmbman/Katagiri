@@ -19,17 +19,17 @@ title: "The Awakening of Faith – Talk 6"
 
 In the previous chapter, I think, what kind of truth? We studied this kind of truth. Do you remember? 
 
-**Someone:** The absolute?
+**Someone:** You mean the absolute?
 
 **Katagiri Roshi:** Absolute? Yes. What kind of absolute?
 
-**Someone:** The truth is one?
+**Someone:** “The truth is one”?
 
 **Katagiri Roshi:** Yes, one. But the chapter we are studying today is a different truth than before. Do you remember?
 
 **Someone:** The truth that can’t be put in words?
 
-**Katagiri Roshi:**  Right. Last time we studied the truth we cannot put the words [on]. 
+**Katagiri Roshi:** Right. Last time we studied the truth we cannot put the words [on]. 
 
 Do you remember what I said? What kind of truth? 
 
@@ -37,9 +37,9 @@ Page 32?
 
 **Someone:** Absolute truth? 
 
-**Katagiri Roshi:** Absolute, yes. But the truth is also absolute we are studying today, but quite different. 
+**Katagiri Roshi:** Absolute, yes. But the truth we are studying today is also absolute, but quite different. 
 
-**Someone:** You mean the truth can be put in words?
+**Someone:** You mean the truth that can be put in words?
 
 **Katagiri Roshi:** Mm-hmm. I don’t know if it is the correct English...
 
@@ -47,13 +47,13 @@ Page 32?
 
 **Katagiri Roshi:** I said, “the truth independent from words.” Do you remember? I don’t know if that is correct [English] or not. 
 
-**Someone:** Is *[unintelligible]* behind the words? 
+**Someone:** Is *[unintelligible]* the words...
 
-**Katagiri Roshi:** Mmm-hm. So, that absolute is quite different from the absolute dependent on words. Do you understand? 
+**Katagiri Roshi:** Mmm-hm. So, that absolute is quite different from the absolute *dependent* on words. Do you understand? 
 
-Today we will study the truth depending on words. In the previous chapter, the absolute is completely absolute, keeping away from the words, and then we need to understand what is the truth. And then what is the truth, if it is completely kept away from the words?
+Today we will study the truth depending on words. In the previous chapter, the absolute is completely absolute – keeping away from the words, and then we need to understand what is the truth. And then what is the truth, if it is completely [keeping] away from the words?
 
-Well, look at page 32. What is it?
+Look at page 32. What is it?
 
 **Someone:** I think you were talking about that that truth includes the phenomenal world and includes that engagement with that world. You talked about Nirvana being...
 
@@ -77,11 +77,11 @@ Have you ever thought about that? Why do you call truth *mind*? Or mind [can be]
 
 Don’t you think it’s funny? *[He chuckles]* Truth is mind. *Why?* 
 
-**Someone:** Because there is no difference between subject and object. If object is truth, then it must also be mind. Right?
+**Someone:** Because there is no difference between subject and object. If object is truth, then it must also be mind. [...]
 
 **Katagiri Roshi:** Mm-hmm. The object and subject are different?
 
-**Someone:** They are the same. 
+**Someone:** They’re the same. 
 
 **Katagiri Roshi:** The same. Mm-hmm.
 
@@ -95,11 +95,9 @@ Don’t you think it’s funny? *[He chuckles]* Truth is mind. *Why?*
 
 **Someone:** [Could it be] because we can’t experience anything outside of mind? 
 
-**Katagiri Roshi:** Sure, that’s true. That’s pretty good. Yes...
+**Katagiri Roshi:** Sure. That’s true. That’s pretty good. Yes.
 
-But you can say, maybe... If you look at this situation, or if you look at Minnesota, maybe you can say Minnesota is present in your thoughts. From this point, maybe, we may call Minnesota the mind. Because object and subject are not different. 
-
-But the *whole things*, even though you don’t see or you can see, visibly and invisibly, the whole world is called mind. *Why?* 
+But you can say, maybe... If you look at [...] Minnesota, maybe you can say Minnesota is present in your thoughts. From this point, maybe, we may call Minnesota the mind. Because object and subject are not different. But the *whole things*, [whether] you don’t see or you can see, visibly and invisibly, the whole world is called mind. *Why?* 
 
 **Someone:** Does it have to do with us being alive or dynamic?
 
@@ -107,23 +105,23 @@ But the *whole things*, even though you don’t see or you can see, visibly and 
 
 **Someone:** It has no form or shape. 
 
-**Katagiri Roshi:** So I am talking about the real doubt, you know, not real [but] quite big doubt, why do we have to [say] the whole world is mind. Visibly, invisibly. 
+**Katagiri Roshi:** So I am talking about the real doubt, you know... not real [but] quite big doubt. Why do we have to [say] the whole world is mind. Visibly, invisibly. 
 
 **Someone:** How about because we’re Buddha?
 
 **Katagiri Roshi:** Mm-hmm. Yes it is – but it doesn’t hit the mark. 
 
-**Someone:** [Could you say the interdependence] of all objects, and then subject and object being one, even if you can’t see it or even if ww can see it. In one object, all the other things are there. So if we pick up one object, we pick up everything. 
+**Someone:** [Can you say the interdependence] of all objects, and then subject and object being one, even if you can’t see it or even if we can see it. In one object, all the other things are there. So if we pick up one object, we pick up everything. 
 
 **Katagiri Roshi:** Right. 
 
-Is that alright? [Tai] says, the subject and object are not completely different, exactly they are the same. That means the visible world can be understood because [...] the visible world is present in your own thoughts. Sort of in the realm of the *epistemology*. *[He chuckles.] 
+Is that alright? [Tai] says, the subject and object are not completely different, exactly they are the same. That means the visible world can be understood because [...] the visible world is present in your own thoughts. Sort of in the realm of the *epistemology*. *[He chuckles.]* So, pretty understandable. 
 
-So, pretty understandable. So it is possible we call it mind. But the *invisible* world is also called mind. This questionable, don’t you think so? 
+So it is possible we call it mind. But the *invisible* world is also called mind. This questionable, don’t you think so? 
 
 For instance, if you think *United States*, you have to think of United States with any other countries, the whole world, visibly [and] invisibly. And then the whole world is called *mind*. This is a little bit not understandable. Have you ever thought of that? 
 
-So in Buddhism, anyway, even though you don’t see [it], [even though] you have never been in heaven or hell, or even though you have never been in Europe, etc., [still] the whole world is present in the realm of your knowing, or of your thoughts. Okay? So you cannot ignore. That’s why the whole world is called *mind*. 
+So in Buddhism, even though you don’t see [it], [even though] you have never been in heaven or hell, or even though you have never been in Europe, et cetera, [still] the whole world is present in the realm of your knowing, or of your thoughts. Okay? So you cannot ignore. That’s why the whole world is called *mind*. 
 
 *Mind* is soul, spirit, psyche, or whatever you call it. So in Buddhism we cannot say *all* if it was not in your thoughts. No. So if you say *all*, *all* are exactly connected with your mind, with your life. This is a most important point. 
 
