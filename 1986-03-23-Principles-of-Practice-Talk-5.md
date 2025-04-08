@@ -350,13 +350,15 @@ Is that okay? Is that okay, [name]-san? *[He laughs.]* Do you have a question?
 
 **Question:** Yes... My question [is about] how desire is connected with ignorance. *[Inaudible]* ... comes from ignorance?
 
-**Katagiri Roshi:** [...] Yes, they come from, anyway, ignorance. But *desire* is already... what would you say... an unfolded parachute, okay? *Ignorance* is still the folded parachute. Desire is the unfolded parachute, and you are enjoying very much flying in the sky. *[He laughs.]* Okay? But no guarantee, you know? Can you continue to fly in the sky? No way. But many people enjoy individually their own parachute. But always bumping into each other, and making a hole in the parachute, and fighting, and crashing down on the ground, and crying, screaming, always. This is *samsara*. Do you understand? *[He laughs.]*
+**Katagiri Roshi:** [...] Yes, they come from, anyway, ignorance. But *desire* is already... what would you say... an unfolded parachute, okay? *Ignorance* is still the folded parachute. 
+
+Desire is the unfolded parachute, and you are enjoying very much flying in the sky. *[He laughs.]* Okay? But no guarantee, you know? Can you continue to fly in the sky? No way. But many people enjoy individually their own parachute. But always bumping into each other, and making a hole in the parachute, and fighting, and crashing down on the ground, and crying, screaming, always. This is *samsara*. Do you understand? *[He laughs.]*
 
 So desire is an unfolded parachute. Okay? That’s wonderful, anyway. That’s why we enjoy very much.
 
 That’s a good idea, unfolded parachute. *[He laughs.]* Or a balloon – if you ride on a balloon. A parachute is more fun than a balloon. You can feel many things: air, skies, and the people. 
 
-Uchiyama Roshi took the example of the helicopter. Individual life is just like a helicopter, you know: three propellers, and three poisonous desires. And flying in the sky, and bumping each other, you know, and hurting each other, crying, screaming, crashing on the ground. And fixing again and fly again. *[He laughs.]* That’s what Uchiyama-roshi said. That’s an interesting world, don’t you think? That’s fun. 
+Uchiyama Roshi took the example of the helicopter. Individual life is just like a helicopter, you know: three propellers, and three poisonous desires. And flying in the sky, and bumping each other, you know, and hurting each other, crying, screaming, crashing on the ground. And fixing again and fly again. *[He laughs.]* That’s what Uchiyama Roshi said. That’s an interesting world, don’t you think? That’s fun. 
 
 *[He laughs]* Parachute. *[The audience laughs.]*
 
