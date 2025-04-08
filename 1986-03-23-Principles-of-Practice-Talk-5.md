@@ -334,15 +334,15 @@ Anyone?
 
 **Katagiri Roshi:** Sure. Mm-hmm.
 
-You can be present, but you cannot... It can appear in the conscious level, but you can pass through, you can go through this one. But, it is something more than the experience and discriminating thought. So you just pass through.
+You can be present, but... [...] It can appear in the conscious level, but you can pass through [...] this one. [...] It is something more than the experience and discriminating thought. So you just pass through.
 
 So the other day, [someone] asked me, “Do you experience that one?” *[He laughs.]* Do you remember? 
 
-The *main* point is that it is not important whether you can experience it or not, because *anyone* can experience. The main point is *how can you live to the full*, without being caught by experience. That is our practice, the final goal every day. Under the guidance of a teacher; that’s why we need a *real* person there. Is that clear? 
+The *main* point is that it is not important whether you can experience it or not, because *anyone* can experience [it]. The main point is *how can you live to the full*, without being caught by experience. That is our practice, the final goal every day. Under the guidance of a teacher – that’s why we need a *real* person there. Is that clear? 
 
 Usually we are always interested in the *experience*. So we are always checking everyone: “Have they ever had [that experience]?” Et cetera. And then if you say, “*Yes!* I know. I have [experienced it],” then the people really admire you. But life is not something like that. *[He laughs.]* 
 
-Life is not something you can “mold” into a certain form, so-called *experience*. No. Of course experience is a *part* of your life, but life as a whole is constantly moving – with the whole world, past, present, future. So we don’t know – we still don’t know what it is. But actually you have to deal with that life as a whole. That’s why experience is just a speck of dust. *[He laughs.]* I’m sorry – for us – but it is true. 
+Life is not something you can “mold” into a certain form, so-called *experience*. No. Of course experience is a *part* of your life, but life as a whole is constantly moving – with the whole world, past, present, future. So we don’t know – we still don’t know what it is – but actually you have to deal with that life as a whole. That’s why experience is just a speck of dust. *[He laughs.]* I’m sorry – for us – but it is true. 
 
 So finally, [...] experience is very important, but we cannot be caught by individual experience. So the point is, *how do you live to the full* – without being caught by individual experience, individual ideas, and *isms*, et cetera. 
 
@@ -352,13 +352,13 @@ Is that okay? Is that okay, [name]-san? *[He laughs.]* Do you have a question?
 
 **Katagiri Roshi:** [...] Yes, they come from, anyway, ignorance. But *desire* is already... what would you say... an unfolded parachute, okay? *Ignorance* is still the folded parachute. 
 
-Desire is the unfolded parachute, and you are enjoying very much flying in the sky. *[He laughs.]* Okay? But no guarantee, you know? Can you continue to fly in the sky? No way. But many people enjoy individually their own parachute. But always bumping into each other, and making a hole in the parachute, and fighting, and crashing down on the ground, and crying, screaming, always. This is *samsara*. Do you understand? *[He laughs.]*
+Desire is the unfolded parachute, and you are enjoying very much flying in the sky. *[He laughs.]* Okay? But no guarantee, you know? Can you continue to fly in the sky? No way. Many people enjoy individually their own parachute – but always bumping into each other, and making a hole in the parachute, and fighting, and crashing down on the ground, and crying, screaming... always. This is *samsara*. Do you understand? *[He laughs.]*
 
 So desire is an unfolded parachute. Okay? That’s wonderful, anyway. That’s why we enjoy very much.
 
 That’s a good idea, unfolded parachute. *[He laughs.]* Or a balloon – if you ride on a balloon. A parachute is more fun than a balloon. You can feel many things: air, skies, and the people. 
 
-Uchiyama Roshi took the example of the helicopter. Individual life is just like a helicopter, you know: three propellers, and three poisonous desires. And flying in the sky, and bumping each other, you know, and hurting each other, crying, screaming, crashing on the ground. And fixing again and fly again. *[He laughs.]* That’s what Uchiyama Roshi said. That’s an interesting world, don’t you think? That’s fun. 
+Uchiyama Roshi took the example of the helicopter. Individual life is just like a helicopter, you know: three propellers, and three poisonous desires. And flying in the sky, and bumping each other, you know, and hurting each other, crying, screaming, crashing on the ground. And fixing [the helicopter] again and fly again. *[He laughs.]* That’s what Uchiyama Roshi said. That’s an interesting world, don’t you think? That’s fun. 
 
 *[He laughs]* Parachute. *[The audience laughs.]*
 
