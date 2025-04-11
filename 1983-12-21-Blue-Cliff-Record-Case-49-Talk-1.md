@@ -54,13 +54,13 @@ The first one, “piercing, penetrating, one takes the drum and captures the fla
 
 [...] Defense and offense, both exist simultaneously in our lives. 
 
-“Piercing, penetrating”: when you try to educate, when you try to teach somebody, you have to “pierce.” “You have to pierce” means you have to hit the drum, and take away the flag of [the] egoistic sense. The word “piercing” means, even if you use [only] one word, [that] one word must be piercing into the human heart. And also, that education must be “penetrating” others: that means your education – with words, with mind, with attitude – must be based on *compassion*. Otherwise, you cannot penetrate. 
+“Piercing, penetrating”: when you try to educate, when you try to teach somebody, you have to “pierce.” “You have to pierce” means you have to hit the drum and take away the flag of [the] egoistic sense. The word “piercing” means even if you use [only] one word, [that] one word must be piercing into the human heart. And also, that education must be “penetrating” others. That means your education – with words, with mind, with attitude – must be based on *compassion*. Otherwise, you cannot penetrate. 
 
 So, here it says, “one takes the drum.” That means using the expedient ways, expedient methods – words, physical actions, and also thinking. Anyway, we can approach to the people and teach, and educate; simultaneously that expedient method must penetrate the other’s life. So that is “offense,” offense of the fortress. 
 
-When you teach, positively you have to teach, you have to educate. Initiatively, you have to move toward. For this, that education or teaching requires kindness, compassion. In other words, true heart: looking [at] human life for the long run, and *then* you have to teach. Even though you use one word which is very piercing into other people’s hearts, it is not something “piercing,” because it is based on compassion. Compassion lets you see human life, your life and others’ life, for the long run; otherwise, your education, your teaching, and your presence doesn’t penetrate others. So that’s why positively you have to take care of your life, and also you have to teach others’ lives. 
+When you teach, positively you have to teach, you have to educate. You have to move toward initiatively. For this, that education or teaching requires kindness, compassion. In other words, *true heart*: looking [at] human life for the long run, and *then* you have to teach. Even though you use one word which is very piercing into other people’s hearts, it is not something “piercing,” because it is based on compassion. Compassion lets you see human life, your life and others’ life, for the long run; otherwise, your education, your teaching, and your presence doesn’t penetrate others. So that’s why positively you have to take care of your life, and also you have to teach others’ lives. 
 
-In order to teach others, simultaneously you have to “defend” yourself, against external [and] internal attacks. That means, externally, internally, there are *many* things, so you have to know the many things externally, you have to know many things internally. That means you have to know yourself, your past life, and present life, future life, and also front and back, and to the right, to the left – you have to know many things. And then you can defend yourself against external and internal attack.
+In order to teach others, simultaneously you have to “defend” yourself, against external [and] internal attacks. That means, externally, internally, there are *many* things, so you have to know the many things externally, you have to know many things internally. That means you have to know yourself – your past life, and present life, future life, and also front and back, and to the right, to the left – you have to know many things. And then you can defend yourself against external and internal attack.
 
 If you read the *Diamond Sutra*, it always [talks about] a bodhisattva’s life, [in] which they always are careful to take care of their life, watching over the many things externally and internally, so they don’t fall into a pitfall on purpose or consciously. 
 
@@ -72,9 +72,9 @@ But many people believe that you should experience *everything*. No, you cannot 
 
 So, if you know something very clearly [is] dangerous or something unwholesome, I don’t think it’s necessary to go there. If you go there, sometimes you become [like] the insect in the summer jumping into the fire – so, committing suicide. It’s very common. That’s why people are [...] suffering from their life very much. 
 
-So, “fortified, entrenched, one inspects the front and oversees the rear” – that is a bodhisattva life, to watch over many things in front and in the back of your life. And then, nevertheless, there are lots of obstacles, dangerous situations there. 
+So, “fortified, entrenched, one inspects the front and oversees the rear” – that is a bodhisattva life, to watch over many things in front and in back of your life. And then, nevertheless, there are lots of obstacles, dangerous situations there. 
 
-So, if you know pretty well human life, [you have to know] not only the many things you can see objectively or externally – you have to learn yourself, surrounded by the countless number of feelings, emotions going on inside of your life. That is a human being. And those feelings are acting very subtly, and also sometimes very [greatly]; sometimes very wonderfully, or sometimes painfully. So, you should know the human feelings, human emotions. Many things going on inside. 
+So, [to] know human life pretty well, [you have to know] not only the many things you can see objectively or externally, you have to learn yourself, surrounded by the countless number of feelings [or] emotions going on inside of your life. That is a human being. And those feelings are acting very subtly, and also sometimes very [greatly]; sometimes very wonderfully, or sometimes painfully. So, you should know the human feelings, human emotions. Many things going on inside. 
 
 That’s why, “fortified, entrenched, one inspects the front and oversees the rear.” And then, if you understand yourself, at that time you can accept yourself as a human being, looking at yourself for the long run. And then you understand others, too. 
 
@@ -82,21 +82,21 @@ So very naturally, you can accept yourself smoothly. And if you accept yourself,
 
 #### 14:12
 
-When I was a child, I had a very bad habit. Particularly in the winter, I went to school, but it was cold – not like in Minneapolis, it was pretty mild, but lots of snow. And on the way to school [my feet felt cold], so I quit going to school, and cried and went back home. I was always scolded by my father. 
+When I was a child, I had a very bad habit. Particularly in the winter, I went to school but it was cold – not like in Minneapolis; it was pretty mild, but lots of snow. And on the way to school [my feet felt cold], so I quit going to school, and cried and went back home. I was always scolded by my father. 
 
-That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed, loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
+That was one point. The second point was that I always felt tired [...] when I came back from school, so I sat down at the bottom of the stairs, and then always I sighed loudly. So my father scolded me: “Don’t sigh! Stop sighing.” *[He laughs.]*
 
-And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively. Instead of waiting for something to do, or always accepting myself not initiatively – always withdrawing, looking at myself objectively. That’s why consciously or unconsciously I criticized myself, [and that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much; but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. [...] I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
+And then after that, when I went to high school, I practiced *judo*. That practice of *judo* was pretty good for me, because I could use myself very initiatively, instead of waiting for something to do, or always accepting myself not initiatively. Always withdrawing, looking at myself objectively – that’s why consciously or unconsciously I criticized myself, [and that] criticism made me tired. Even a child does in that way. So, that’s why my father scolded me very much; but I didn’t understand. [But] when I went to high school, we had to practice *judo* with no excuse. That was pretty good medicine for me, because I did something positively, initiatively, using my life. There was no chance to look at myself objectively, criticizing myself. [...] I realized I can do something positively, I can do something pretty good. So [after that], I didn’t feel tired so much. The practice of judo was very hard work, physically, but I didn’t feel tired. 
 
-So, since then, I really understand myself, that I should do something positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
+So since then, I really understand myself, that I should do something positively or initiatively – moving towards something, by myself. Concentrating on jumping in there, and finish, achieve something. Even if I cannot do it. 
 
-Well, before you do [something], always there [is a question]: “I can do,” “I cannot do.” But anyway, let’s do it. Don’t do it blindly – as best as you can, you have to know, you have to understand something, as much as possible. But still you cannot see the clear answer [of whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
+Before you do [something], always there [is a question]: “I can do” or “I cannot do.” But anyway, let’s do it. Don’t do it blindly – as best as you can, [...] you have to understand something, as much as possible. But still you cannot see the clear answer [of whether] you can do [it] or you cannot do [it]. But you should start to do [it]. And then, it’s pretty good for us. 
 
 But most people don’t do this. [They] always criticize, because [they] always try to get some clear answer, “I can do” or “I cannot do.” Sometimes you can see [whether you can do it]; sometimes there is something you cannot know. 
 
-So, since then, [I always answered] loudly “yes,” very positively. Even the answer is very important. If you say [hesitantly] “yes” – that’s it, you know? Very naturally your life is something like that. But if you say “*yes*” – very positively and loudly, with confidence – you can do it, [or] you can do something. So that spirit is very important. 
+So, since then, [I always answered] loudly, “*yes*,” very positively. Even the answer is very important. If you say [hesitantly] “yes” – that’s it, you know? Very naturally your life is something like that. But if you say “*yes*” – very positively and loudly, with confidence – you can do it, [or] you can do something. So that spirit is very important. 
 
-So, for this, you should accept totally yourself, who you are. Human beings are pretty weak, and human beings possess lots of karmic life you don’t know. Karmic life leads you to go in a completely different direction which you have never thought before. That is karmic life. When you are born, immediately there is a karmic life with you. From this point, you cannot escape from your karmic life, which something set up, exactly. [For this,] you have to totally accept karmic life. At that time, you can defend yourself against attack, externally or internally. And then, simultaneously to defend yourself means to do something positively. 
+So, for this, you should accept totally yourself, who you are. Human beings are pretty weak, and human beings possess lots of karmic life you don’t know. Karmic life leads you to go in a completely different direction which you have never thought before. That is karmic life. When you are born, immediately there is a karmic life with you. From this point, you cannot escape from your karmic life, which is something set up, exactly. [For this,] you have to totally accept karmic life. At that time, you can defend yourself against attack, externally or internally. And then, simultaneously, to defend yourself means to do something positively. 
 
 So that is, it says here, “Piercing, penetrating, one takes the drum and captures the flag. Fortified, entrenched, one inspects the front and oversees the rear.” Defense and offense are not two; [they are] simultaneously there. If you defend yourself, it is simultaneously [that] you do something positively. But if you do something positively, well, that is simultaneously you defend yourself. In other words, you protect yourself, [...] looking at your life for long run [...]. 
 
@@ -122,7 +122,7 @@ Well, you can see such a person. Baker Roshi in San Francisco: he is very smart,
 
 If you read this koan, you have to give the words, you have to act, very quickly, rapidly. [...] It is perfect; it can really pierce into peoples’ hearts. 
 
-But here it says, nevertheless, it is not good enough. 
+But here it says: nevertheless, it is not good enough. 
 
 > But say, how is it when a man who has passed beyond measurements comes? To test I am citing this old case: look!
 
@@ -152,7 +152,7 @@ So, the same applies to [this case] too. [San Sheng] experienced that wonderful 
 
 #### 34:03
 
-And then,
+And then:
 
 > Sheng said, “The teacher of fifteen hundred people and you don’t even know what to say!”
 
@@ -240,9 +240,11 @@ Sometimes people attain [a] kind of enlightenment by taking marijuana, of course
 
 Is that okay?
 
-**Questioner:** ... Maybe this is a kind of stupid question, but about marijuana and, well, maybe there are some drugs. Assuming if you take that drug, you can attain enlightenment. And if you have enough of that drug through your whole life, so you can keep up your enlightenment the rest of your life...
+**Questioner:** ... Maybe this is a kind of stupid question, but about marijuana and, well, maybe there are some drugs. Assuming if you take that drug you can attain enlightenment. And if you have enough of that drug through your whole life, so you can keep up your enlightenment the rest of your life...
 
-**Katagiri Roshi:** Mm-mm. (No.) *[Laughter.]* There is no guarantee. *[He laughs.]* 
+**Katagiri Roshi:** Mm-mm. (No.) *[Laughter.]* 
+
+There is no guarantee. *[He laughs.]* 
 
 **Questioner:** Yeah, but I was just wondering, is that enlightenment and the enlightenment by yourself, could it be different? 
 
@@ -252,13 +254,13 @@ Is that okay?
 
 **Katagiri Roshi:** Um... kind of... pretty close, but not *exactly*. Pretty close. 
 
-I know there are some people who attain enlightenment [that way]. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is, everything is changing.]
+I know there are some people who attain enlightenment [that way]. I don’t know whether we should call it enlightenment or not, you know? Maybe there is some appropriate term, but I don’t know exactly, so let me say enlightenment. So, I know there are some people who attain actually enlightenment through that. The point is that, I [always say], whatever it is, you cannot sit on the chair of something always. [Because “always” is [that] everything is changing.]
 
 #### 56:05
 
 **Question:** Hojo-san, I’m still confused by the question... well, not necessarily marijuana or drugs, but just the thing of... how can you know about something before you’re dealing with it or have experience with it?
 
-**Katagiri Roshi:** Through a book... Through your common sense... You can know many ways. Can’t you?
+**Katagiri Roshi:** Through a book... through your common sense... you can know many ways. Can’t you?
 
 **Questioner:** Sure. But then you can say, many people read about Zen before they come to Zen center or get involved. But when they’re reading, it’s not exactly it, when you’re coming and are practicing. 
 
