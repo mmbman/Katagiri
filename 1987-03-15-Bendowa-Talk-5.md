@@ -53,11 +53,23 @@ So that's why ... even though you don't experience this *sho*, the actualizing t
 
 And then, [...] to touch directly the ultimate nature of [your self] is your responsibility, your business. Your responsibility, so-called ... flow of activities – when you are exactly in the continuous flow of activities, and then you are there, exactly. [But] consciousness always slips off this flow of activities, and analyzes, synthesizes, so that's why it's pretty hard to touch directly. 
 
-So that's [where] in *Fukanzazengi*, [...] Dogen Zenji [says], “Suppose one gains pride of understanding and influences one’s own enlightenment.” So, by zazen, you can attain awakening and enlightenment, *satori*, and then you are proud of yourself. Then he says, that’s fine, but, “Suppose you gain pride of understanding and influence your own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky.” *[He laughs.]* Do you understand? That always happens in the religious world. Always you really go up to the sky, pretty high. And then you completely forget to come down to earth. *[Laughter.]* But the more you try to stay high in the sky, impermanence ... lets you fall down to the earth, and then at that time you hurt so much. *[He laughs.]* Because you are too high to come down, so you hurt so much. 
+So that's [where] in *Fukanzazengi*, [...] Dogen Zenji [says], 
+
+> Suppose one gains pride of understanding and influences one’s own enlightenment...
+
+So, by zazen, you can attain awakening and enlightenment, *satori*, and then you are proud of yourself. Then he says, that’s fine, but:
+
+> Suppose you gain pride of understanding and influence your own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky.
+
+*[He laughs.]* Do you understand? That always happens in the religious world. Always you really go up to the sky, pretty high. And then you completely forget to come down to earth. *[Laughter.]* But the more you try to stay high in the sky, impermanence ... lets you fall down to the earth, and then at that time you hurt so much. *[He laughs.]* Because you are too high to come down, so you hurt so much. 
 
 Just like a helicopter, you know? *[Laughter.]* Each person is flying a helicopter, with three propellers: [...] *suffering* and *karma* and also *self-centeredness*. The three propellers run pretty fast, and then finally, everyone can fly in the sky. Each person can fly, and then he likes it, you know? Because he [doesn’t bother himself], he always keeps himself in peace and harmony, keeping away from the people. So he tries to do many things as he likes; that’s [what] everyone does in the sky, in the world. And then – they bump into each other, by chance. And then it hurts very much, you know? Sometimes one propeller is broken and then, boom, they fall to earth, and then it hurts so much. This is suffering; always we do [this]. 
 
-That’s why Dogen Zenji says here, “... raising an aspiration to escalade the very skies. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.” So still a little far, a little far. 
+That’s why Dogen Zenji says here, 
+
+> ... raising an aspiration to escalade the very skies. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.
+
+So still a little far, a little far. 
 
 So, very naturally, the important point is, [...] practice must be total manifestation of ultimate nature of existence, and ultimate nature of existence is simultaneously present with your practice. Because ultimate nature of existence is not your business. It is not something *you* try to manifest. No. You have to arrange circumstances, [arrange] your body and mind to be in peace and harmony, and then, ultimate nature of existence comes out naturally. Like the moon comes out from the clouds. Like this. 
 
