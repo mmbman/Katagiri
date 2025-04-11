@@ -3,7 +3,7 @@ title: "Principles of Practice, Talk 3: High Resolve"
 ---
 ## March 21, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Precepts](precepts)
+#### [List](list#1986) \| [Previous](1986-03-20-Principles-of-Practice-Talk-2) \| [Next](1986-03-22-Principles-of-Practice-Talk-4) \| Series: [Principles of Practice](principles-of-practice)
 
 
 ### Transcript
@@ -210,13 +210,13 @@ So there are lots of examples in the histories.
 
 **Katagiri Roshi:** Yes, that’s true. 
 
-**Questioner:** So you open to... maybe some time of experience, you might have?
+**Questioner:** So you open to... maybe some [kind] of experience you might have?
 
 **Katagiri Roshi:** Yes. But there is no guarantee. *[Laughter.]*
 
-I tell you ... your freedom. I don’t want to “quote” a certain, you know... promise. I don’t want that. I’m not talking about some [interruptions]. I always want you to be free from anything. 
+I tell you [about] your freedom. I don’t want to “quote” a certain, you know... promise. I don’t want that. I’m not talking about some [interruptions]. I always want you to be free from anything. 
 
-Otherwise you cannot continue to practice *shikantaza*. If I say, “Yes you can get a complete attainment if you practice this one,” you are already caught by suffering. So you never attain enlightenment. 
+Otherwise you cannot continue to practice *shikantaza*. If I say, “Yes, you can get a complete attainment if you practice this [way],” you are already caught by suffering. So you never attain enlightenment. 
 
 So that’s why I say there is no guarantee. Because it depends on the karmic life, *[he laughs,]* your karmic life.
 
@@ -226,7 +226,7 @@ So that’s why I say there is no guarantee. Because it depends on the karmic li
 
 *[Some laughter.]*
 
-That depends on you anyway. I already said, you know, four things, you know: completely open, whether I attain enlightenment or not, I already mentioned, you know, open. And then you ask me; this is already you and I getting into the dualistic world and then talking about the “did you”? *[Laughter.]* *[Katagiri Roshi laughs.]* And then I give an answer: “Yes, I did.” If I say so, you say, “Are you sure?” Already you are playing hide and seek. Do you understand? 
+That depends on you anyway. I already said, you know, four things, you know: completely open, whether I attain enlightenment or not, I already mentioned, you know, open. And then you ask me. This is already you and I getting into the dualistic world and then talking about the “did you”? *[Laughter.]* *[Katagiri Roshi laughs.]* And then I give an answer: “Yes, I did.” If I say so... you say, “Are you sure?” Already you are playing hide and seek. Do you understand? 
 
 **Questioner:** Mm-hmm.
 
@@ -338,4 +338,4 @@ That’s surrender. But it’s very difficult to do like this, because always th
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Precepts](precepts)
+#### [List](list#1986) \| [Previous](1986-03-20-Principles-of-Practice-Talk-2) \| [Next](1986-03-22-Principles-of-Practice-Talk-4) \| Series: [Principles of Practice](principles-of-practice)

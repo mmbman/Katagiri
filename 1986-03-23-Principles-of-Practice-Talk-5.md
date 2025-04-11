@@ -3,8 +3,7 @@ title: "Principles of Practice, Talk 5: Direct Transmission"
 ---
 ## March 23, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Precepts](precepts)
-
+#### [List](list#1986) \| [Previous](1986-03-22-Principles-of-Practice-Talk-4) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Principles of Practice](principles-of-practice)
 
 ### Transcript
 

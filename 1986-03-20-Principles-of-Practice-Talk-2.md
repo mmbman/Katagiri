@@ -3,8 +3,7 @@ title: "Principles of Practice, Talk 2: Bodhicitta"
 ---
 ## March 20, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Precepts](precepts)
-
+#### [List](list#1986) \| [Previous](1986-03-19-Principles-of-Practice-Talk-1) \| [Next](1986-03-21-Principles-of-Practice-Talk-3) \| Series: [Principles of Practice](principles-of-practice)
 
 ### Transcript
 
@@ -283,4 +282,4 @@ This is the practice, our practice.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Precepts](precepts)
+#### [List](list#1986) \| [Previous](1986-03-19-Principles-of-Practice-Talk-1) \| [Next](1986-03-21-Principles-of-Practice-Talk-3) \| Series: [Principles of Practice](principles-of-practice)
