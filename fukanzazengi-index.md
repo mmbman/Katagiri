@@ -13,7 +13,7 @@ For a comparison of six English translations of Fukanzazengi, see [“Fukanzazen
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
 
 “practice and realization” (*shushō* 修證) or “practice and verification”
-- [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5) - on *kaku*, *satori*, and *shō* translated as “enlightenment”
+- [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5) - on *kaku*, *satori*, and *shō* translated as “enlightenment” (*shō* is “realization” or “verification”)
 - [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4) - on “to think practice and realization are not one is a heretical view ” from *Bendowa*
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
@@ -50,7 +50,7 @@ KR: “To learn that one withdraws one step, and turns the light inward on onese
 
 > For practicing Zen, a quiet room is suitable. 
 
-“Practicing Zen” or “practice” as an inadequate translation of *sanzen* (参禅) 
+“Practicing Zen” or “practice” as an inadequate translation of *sanzen* (参禅):
 - [Zazen: Dropping Off Body and Mind](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
 - [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 - [Principles of Practice, Talk 1: The Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
@@ -58,14 +58,14 @@ KR: “To learn that one withdraws one step, and turns the light inward on onese
 
 > Eat and drink moderately. Put aside all involvements and suspend all affairs. Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down?
 
-“cease all affairs, all involvements”
+“cease all affairs, all involvements”:
 - [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 
-“Throw away all affairs”
+“Throw away all affairs”:
 - [Arts and Buddhism](1983-10-29-Arts-and-Buddhism)
 
-“throw away all worldly affairs, et cetera”
--[*The Awakening of Faith* – Talk 38](1986-05-02-Awakening-of-Faith-Talk-38)
+“throw away all worldly affairs,” et cetera:
+- [*The Awakening of Faith* – Talk 38](1986-05-02-Awakening-of-Faith-Talk-38)
 
 >At your sitting place, spread out a thick mat and put a cushion on it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, first place your right foot on your left thigh, then your left foot on your right thigh. In the half-lotus, simply place your left foot on your right thigh. Tie your robes loosely and arrange them neatly. Then place your right hand on your left leg and your left hand on your right palm, thumb-tips lightly touching. Straighten your body and sit upright, leaning neither left nor right, neither forward nor backward. Align your ears with your shoulders and your nose with your navel. Rest the tip of your tongue against the front of the roof of your mouth, with teeth together and lips shut. Always keep your eyes open, and breathe softly through your nose.
 
