@@ -25,7 +25,9 @@ KR: “The dharma vehicle is free and unrestricted, why should we expend sustain
 
 - “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra). See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
 
-> It is never apart from this very place; what is the use of traveling around to practice? And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
+> It is never apart from this very place; what is the use of traveling around to practice? 
+
+> And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
 
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
