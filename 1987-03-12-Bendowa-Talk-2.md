@@ -223,7 +223,7 @@ This is zazen. Exactly.
 
 #### 55:32
 
-During sesshin, I think you should be more careful to deal with your behavior. When the zazen is over, I think your action is very rough... moving to the right, to the left, very quick and rough. I think Fukanzazengi mentions that you cannot do that, because you have been calm during the sitting, so you cannot move quickly. So slowly, you should move. And also, you shouldn’t loudly sigh, or cough, or blowing your nose, et cetera. As best as you can, you should make the sound small. 
+During sesshin, I think you should be more careful to deal with your behavior. When the zazen is over, I think your action is very rough... moving to the right, to the left, very quick and rough. I think *Fukanzazengi* mentions that you cannot do that, because you have been calm during the sitting, so you cannot move quickly. So slowly, you should move. And also, you shouldn’t loudly sigh, or cough, or blowing your nose, et cetera. As best as you can, you should make the sound small. 
 
 If you sigh always, I think you lose the energy. Because zazen is not the cause of losing your energy; the sighing you have made is the cause of losing energy. And also, [it is] interrupting others. So, even though you think it is hard, I think you shouldn’t sigh loudly. It’s really interrupting. 
 
