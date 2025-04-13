@@ -21,7 +21,7 @@ But Dogen uses three kinds of *satori*, enlightenment. One is *awareness* – *k
 
 So three kinds of terms are often used by Dogen, but in this case, *practice and realization* is the third one (*sho*). *Realization* is corresponding to the third one – “proof” or “verification,” literally translated. But I am still looking for the appropriate term in English; I don't know what kind of English [word] is best, so I have to explain a little bit about this one. 
 
-[This enlightenment is] *sho* in Japanese. Plainly speaking, *sho* literally means “proof” or “certification”; this is also *sho*. [To certify], or to prove, or to verify, or to witness. [...] Anyway, *sho*. 
+[This enlightenment is] *sho* (證) in Japanese. Plainly speaking, *sho* literally means “proof” or “certification”; this is also *sho*. [To certify], or to prove, or to verify, or to witness. [...] Anyway, *sho*. 
 
 The first one and second one, *kaku* (*awakening*) or *satori*, both are something experienced, something which you can experience through the six senses. But *sho*, translated as *realization*, is a little more than that which you can experience or you can awaken. So [it has] a little deeper meaning, rather than *kaku*, awakening, or *satori*, enlightenment. 
 
