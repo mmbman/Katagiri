@@ -13,7 +13,7 @@ For a comparison of six English translations of Fukanzazengi, see [“Fukanzazen
 
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
 
-- “Practice and realization” or “practice and verification” is *shushō* (修證).
+- “Practice and realization” or “practice and verification” is *shushō* (修證). This term appears several times in *Fukanzazengi*, also translated as “practice-realization” and “practicing and realizing.”
 - On *kaku*, *satori*, and *shō* translated as “enlightenment”  – *shō* is “realization” or “verification” – see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5).
 - On “to think practice and realization are not one is a heretical view” from *Bendowa*, see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4).
 
@@ -75,7 +75,7 @@ For a comparison of six English translations of Fukanzazengi, see [“Fukanzazen
 
 > When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. 
 
-– On moving calmly and deliberately: [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
+- On moving calmly and deliberately: [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
 
 > In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
 
