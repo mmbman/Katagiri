@@ -10,7 +10,9 @@ No single English translation of *Fukanzazengi* – including the Sotoshu transl
 
 This is very much a work in progress. It will be updated as talks are transcribed and additional references are found.
 
-> *Fukanzazengi*
+---
+
+> ### *Fukanzazengi*
 
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
 
@@ -63,7 +65,7 @@ This is very much a work in progress. It will be updated as talks are transcribe
    - [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
    - [Principles of Practice, Talk 1: The Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
    - [Principles of Practice, Talk 2: Bodhicitta](1986-03-20-Principles-of-Practice-Talk-2)
-- “A quiet room is suitable” is discussed as “arrangement of the sensory system” in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1 (3623)](1979-06-09-Fukanzazengi-Talk-1#3623) and in the rest of the series, along with additional details from *Shobogenzo Zazengi* (which is distinct from *Fukan Zazengi*).
+- “A quiet room is suitable” is discussed as “arrangement of the sensory system” in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1 (36:23)](1979-06-09-Fukanzazengi-Talk-1#3623) and in the rest of the series, along with additional details from *Shobogenzo Zazengi* (which is distinct from *Fukan Zazengi*).
 
 > Eat and drink moderately. 
 
