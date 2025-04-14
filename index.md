@@ -35,7 +35,7 @@ Please note that these transcripts are a continuing work in progress. Correction
 
 ## Latest Updates
 
-**April 14, 2025:** Posted [***Fukanzazengi* – Annotated**](fukanzazengi-annotated) - a work in progress.
+**April 14, 2025:** Posted "[*Fukanzazengi* – Annotated](fukanzazengi-annotated)" – a work in progress.
 
 **March 11, 2025:** Posted all drafts in the [*Bendowa*](bendowa) series.
 
