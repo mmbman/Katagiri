@@ -48,21 +48,28 @@ For a comparison of six English translations of Fukanzazengi, see [“Fukanzazen
 
 > If you want to realize such, get to work on such right now.
 
-- A better translation might be, “If you want to realize *suchness*, practice suchness directly.”
+- A better translation might be, “If you want to realize *suchness*, practice suchness immediately.”
 
 > For practicing Zen, a quiet room is suitable. 
 
-- On “practicing Zen” or “practice” as an inadequate translation of *sanzen* (参禅), see:
+- For the actual meaning of *sanzen* (参禅), often translated as “practicing Zen” or “practice”, see:
    - [Zazen: Dropping Off Body and Mind](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
    - [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
    - [Principles of Practice, Talk 1: The Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
    - [Principles of Practice, Talk 2: Bodhicitta](1986-03-20-Principles-of-Practice-Talk-2)
 
-> Eat and drink moderately. Put aside all involvements and suspend all affairs. Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down?
+> Eat and drink moderately. Put aside all involvements and suspend all affairs. 
 
+- “Cast aside all involvements; cease all affairs”: see [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1 (34:20)](1979-06-09-Fukanzazengi-Talk-1#3420), and the rest of the series.
 - “cease all affairs, all involvements”: [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 - “Throw away all affairs”: [Arts and Buddhism](1983-10-29-Arts-and-Buddhism)
 - “throw away all worldly affairs,” et cetera: [*The Awakening of Faith* – Talk 38](1986-05-02-Awakening-of-Faith-Talk-38)
+
+> Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down?
+
+- KR uses the Norman Waddell and Masao Abe translation: “Do not think good or bad; do not administer pros and cons.” “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
+   - This is discussed as the arrangement of the “brain-nerve system” in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1 (44:56)](1979-06-09-Fukanzazengi-Talk-1#4456), and in the rest of the series.
+
 
 > At your sitting place, spread out a thick mat and put a cushion on it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, first place your right foot on your left thigh, then your left foot on your right thigh. In the half-lotus, simply place your left foot on your right thigh. Tie your robes loosely and arrange them neatly. Then place your right hand on your left leg and your left hand on your right palm, thumb-tips lightly touching. Straighten your body and sit upright, leaning neither left nor right, neither forward nor backward. Align your ears with your shoulders and your nose with your navel. Rest the tip of your tongue against the front of the roof of your mouth, with teeth together and lips shut. Always keep your eyes open, and breathe softly through your nose.
 
@@ -71,13 +78,23 @@ For a comparison of six English translations of Fukanzazengi, see [“Fukanzazen
 - “Don’t think anything” is “think not-thinking”: [*Diamond Sutra*: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 - *Shujo shin* (“one-mind”) – as *non-thinking*: [*The Awakening of Faith* – Talk 33](1986-03-07-Awakening-of-Faith-Talk-33)
 
-> The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside.
+> The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. 
+
+> For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside.
+
+- KR translates this as “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.”
+   - This line is extensively discussed in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1) as “a sort of conclusion of the main subject in *Fukanzazengi*,” and as “[the real] meaning of *shikantaza*.”
+   - Particularly, this is also discussed from another angle in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3)
+
 
 > When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. 
 
 - On moving calmly and deliberately: [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
 
 > In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
+
+- Katagiri Roshi translates this as “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen.”
+   - See [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
 
 > In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views?
 
