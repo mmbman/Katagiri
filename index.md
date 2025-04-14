@@ -15,6 +15,7 @@ For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals o
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
 - [***Fukanzazengi*: Universal Recommendation for Zazen**](fukanzazengi)
+- [***Fukanzazengi* – Annotated**](fukanzazengi-annotated)
 - [**Fundamentals of Zen**](fundamentals)
 - [**Karma**](karma)
 - [**Mindfulness**](mindfulness)
@@ -33,6 +34,8 @@ Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation C
 Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
 
 ## Latest Updates
+
+**April 14, 2025:** Posted [***Fukanzazengi* – Annotated**](fukanzazengi-annotated) - a work in progress.
 
 **March 11, 2025:** Posted all drafts in the [*Bendowa*](bendowa) series.
 
