@@ -17,7 +17,7 @@ This is very much a work in progress. It will be updated as talks are transcribe
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; it is also translated as “practice-realization” and “practicing and realizing.” It is sometimes translated elsewhere as “practice-enlightenment.”
-- The meaning of *shō* – often translated as “realization” or “verification” – should not be taken for granted. For and entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment” – see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5).
+- The meaning of *shō* – often translated as “realization” or “verification” – should not be taken for granted. For an entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment” – see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5).
 - On the statement “to think practice and realization are not one is a heretical view” from *Bendowa*, see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4).
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
@@ -28,7 +28,7 @@ This is very much a work in progress. It will be updated as talks are transcribe
 
 > Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
 
-- “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra), and the famous “poetry contest.” See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
+- “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra) and the famous “poetry contest.” See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
 
 > It is never apart from this very place; what is the use of traveling around to practice? 
 
