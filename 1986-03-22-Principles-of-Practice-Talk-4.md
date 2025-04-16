@@ -8,6 +8,8 @@ title: "Principles of Practice, Talk 4: Faith"
 
 ### Transcript
 
+<p align="center"><b>This transcript is in rough draft stage.</b></p>
+
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/faith" target="_blank">Listen to this talk</a>
 </p>
