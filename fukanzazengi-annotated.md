@@ -2,11 +2,13 @@
 title: "Fukanzazengi – Annotated"
 ---
 
-Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dogen’s “Universal Recommendation for Zazen” – in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This is very much a work in progress; I will update it as I transcribe talks and find additional references.
+Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dogen’s “Universal Recommendation for Zazen” – in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
 The primary text used here is the [Sotoshu translation](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many Zen centers. Alternative translations by Katagiri Roshi, where they are known, are provided as second-level blockquotes.
 
 No single English translation of *Fukanzazengi* – including the Sotoshu translation – should be taken as authoritative. For a comparison of six English translations of Fukanzazengi, see [“Fukanzazengi: 6 translations”](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf) (external link).
+
+This is very much a work in progress; I will update this page as I transcribe talks and find additional references.
 
 ---
 
