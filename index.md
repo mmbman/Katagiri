@@ -7,7 +7,9 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
  [**Introduction**](about)
 
-**Series of Talks:**
+[**Talk List**](list)
+
+**Talk Series:**
 
 For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals of Zen](fundamentals) series.
 
@@ -15,7 +17,6 @@ For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals o
 - [***Blue Cliff Record***](blue-cliff-record)
 - [***Diamond Sutra***](diamond-sutra)
 - [***Fukanzazengi*: Universal Recommendation for Zazen**](fukanzazengi)
-- [***Fukanzazengi* – Annotated**](fukanzazengi-annotated)
 - [**Fundamentals of Zen**](fundamentals)
 - [**Karma**](karma)
 - [**Mindfulness**](mindfulness)
@@ -27,7 +28,9 @@ For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals o
 - [**Zen Forms and Ceremonies**](zen-forms)
 - [**Miscellaneous Talks**](miscellaneous)
 
-[**Talk List**](list)
+**Resources:**
+
+- [***Fukanzazengi* – Annotated**](fukanzazengi-annotated)
 
 Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
