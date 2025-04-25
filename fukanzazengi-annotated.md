@@ -2,13 +2,11 @@
 title: "Fukanzazengi – Annotated"
 ---
 
-Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dogen’s “Universal Recommendation for Zazen” – in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
+Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dogen’s “Universal Recommendation for Zazen” – in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This is very much a work in progress; I will update this page as I transcribe talks and find additional references.
 
-The primary text annotated here is the [Sotoshu translation](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many Zen centers. Alternative translations by Katagiri Roshi, where they are known, are provided as second-level blockquotes.
+The primary text annotated here is the [Sotoshu translation of *Fukanzazengi*](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many Zen centers. Alternative translations by Katagiri Roshi, where they are known, are provided as second-level blockquotes.
 
-No single English translation of *Fukanzazengi* – including the Sotoshu translation – should be taken as authoritative. For a comparison of six English translations of Fukanzazengi, see [“Fukanzazengi: 6 translations”](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf) (external link).
-
-This is very much a work in progress; I will update this page as I transcribe talks and find additional references.
+No single English translation of *Fukanzazengi* should be taken as authoritative. For a comparison of six English translations of Fukanzazengi, see [“Fukanzazengi: 6 translations”](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf) (external link).
 
 ---
 
@@ -17,7 +15,7 @@ This is very much a work in progress; I will update this page as I transcribe ta
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
-- The meaning of *shō* – often translated as “realization” – should not be taken for granted. For an entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment” – see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5).
+- The meaning of *shō* (證) – often translated as “realization” – should not be taken for granted. For an entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment” – see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5).
 - On the statement “to think practice and realization are not one is a heretical view” from *Bendowa*, see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4).
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
