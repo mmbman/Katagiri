@@ -26,8 +26,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
 
 - “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra) and the well-known “poetry contest.” See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
-   - Although this line might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that after the next line, the next words are, “And yet...” This “and yet” seems to be one of the relatively few areas where the various English translations of *Fukanzazengi* are largely in agreement.
-   - Also note that Dogen himself (quoting one National Master Daishō) refers to this part of the *The Platform Sutra*  as a “folk story” which was spuriously added to the *Platform Sutra* and which distorts the true meaning of the Sixth Ancestor. This is alluded to in [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425).
+   - Although this line might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that after the next line, the next words are, “And yet...” This “and yet” seems to be one area where the various English translations of *Fukanzazengi* are largely in agreement.
+   - Also note that Dogen himself, quoting one National Master Daishō, refers to “folks stories” which were spuriously added to *The Platform Sutra* and which “erase” the true meaning of the Sixth Ancestor. This is alluded to in [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425).
 
 > It is never apart from this very place; what is the use of traveling around to practice? 
 
