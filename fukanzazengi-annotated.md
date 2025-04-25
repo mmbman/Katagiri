@@ -101,9 +101,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. 
 
 > For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside.
->
->> For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.
 
+- KR translates this as: “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.”
 - This line is extensively discussed in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1) as “a sort of conclusion of the main subject in *Fukanzazengi*,” and as “[the real] meaning of *shikantaza*.”
 - "Dullness and distraction" is extensively discussed in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3), and also [Talk 5](1979-06-13-Fukanzazengi-Talk-5) and [Talk 6](1979-06-14-Fukanzazengi-Talk-6).
 
