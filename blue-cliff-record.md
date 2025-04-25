@@ -71,7 +71,7 @@ Talk List \| [Talk Summaries](blue-cliff-record-summaries)
 - [Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
 - [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
 - [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
-- Case 50
+- [Case 50: Yun Men’s Every Atom Samadhi](1984-01-04-Blue-Cliff-Record-Case-50)
 - Case 51 Talk 1
 - Case 51 Talk 2
 - Case 52 Talk 2

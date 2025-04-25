@@ -4,7 +4,7 @@ title: "Blue Cliff Record Case 49: San Sheng’s Golden Fish Who Has Passed thro
 
 ## December 28, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-01-04-Blue-Cliff-Record-Case-50) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -148,4 +148,4 @@ But, on the other hand, we have to have a very strong, unflinching effort to mov
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1983) \| [Previous](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1) \| [Next](1984-01-04-Blue-Cliff-Record-Case-50) \| Series: [*Blue Cliff Record*](blue-cliff-record)

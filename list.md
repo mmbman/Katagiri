@@ -142,7 +142,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 ### 1984
 
-1. *Blue Cliff Record* Case 50
+1. [*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi](1984-01-04-Blue-Cliff-Record-Case-50)
+
 1. *Blue Cliff Record* Case 51 Talk 1
 1. *Blue Cliff Record* Case 51 Talk 2
 1. *Blue Cliff Record* Case 52 Talk 2
