@@ -7,8 +7,6 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
  [**Introduction**](about)
 
-[**Talk List**](list)
-
 **Talk Series:**
 
 For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals of Zen](fundamentals) series.
@@ -27,6 +25,8 @@ For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals o
 - [**Tiantai Buddhism**](tiantai-buddhism)
 - [**Zen Forms and Ceremonies**](zen-forms)
 - [**Miscellaneous Talks**](miscellaneous)
+
+[**Talk List**](list)
 
 **Resources:**
 
