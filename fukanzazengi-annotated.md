@@ -23,17 +23,15 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 - Katagiri Roshi (KR) translates this as: “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” 
 - See [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
-> Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
+> Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? It is never apart from this very place; what is the use of traveling around to practice? 
 
 - “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra) and the well-known “poetry contest.” See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
-   - Although this line might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that after the next line, the next words are, “And yet...” This “and yet” seems to be one area where the various English translations of *Fukanzazengi* are largely in agreement.
-   - Also note that Dogen himself, quoting one National Master Daishō, refers to “folks stories” which were spuriously added to *The Platform Sutra* and which “erase” the true meaning of the Sixth Ancestor. This is alluded to in [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425).
-
-> It is never apart from this very place; what is the use of traveling around to practice? 
+   - Although these lines might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that the very next words are, “And yet...” This “and yet” seems to be one area where the various English translations of *Fukanzazengi* are largely in agreement.
+   - Also note that Dogen himself, quoting one National Master Daishō, refers to “folk stories” which were spuriously added to *The Platform Sutra* and which “erase” the true meaning of the Sixth Ancestor. This is alluded to in [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425).
 
 > And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
 
-- “Hairsbreadth deviation” also appears in the *Song of the Jewel Mirror Awareness*. Katagiri Roshi’s commentary on this is not publicly available at this time.
+- “Hairsbreadth deviation” also appears in the *Song of the Jewel Mirror Awareness*. Katagiri Roshi’s commentary on that is not publicly available at this time.
 
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
