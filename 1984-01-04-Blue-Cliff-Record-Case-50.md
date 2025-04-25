@@ -353,7 +353,7 @@ Take one step how? At random? No. You should take one step according to thinking
 
 So you cannot take one step without destination, without thinking of the many beings – you cannot do it. If you do it, that is called egoism or individualism. Or [it’s called] realistic, very realistic. But it’s not *deep*.
 
-#### end of recording. 
+#### 1:13:42 end of recording. 
 
 ---
 
