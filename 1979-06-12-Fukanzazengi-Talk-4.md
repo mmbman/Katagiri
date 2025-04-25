@@ -28,7 +28,7 @@ The notes given by Professor Abe ([Masao Abe](glossary#masao-abe)) say about *dy
 
 So [according to] this point, some Zen teachers kept sitting and died. Some teachers died in sitting zazen, or standing under a tree, or standing on the platform while they were giving a lecture. Anyway, various examples from Buddhist history there. But it doesn't mean you should die in sitting or standing; it doesn't mean that. [The] point is how important shikantaza is, because they died in sitting, in standing, wherever they may have been; they died in peace and harmony. Whatever they did, wherever they were, they died.
 
-Dogen Zenji really wants to speak about how important zazen is. That zazen is shikantaza. In shikantaza, all [delusions](glossary#delusion) drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself. 
+Dogen Zenji really wants to speak about how important zazen is. That zazen is shikantaza. In shikantaza, all delusions drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself. 
 
 #### 4:37
 
@@ -218,7 +218,9 @@ Anyway, it’s really comic what occurs with modern Zen. Sitting in zazen, [but 
 
 So if you use zazen as a means like this, it doesn't make sense. Even though for two years you use zazen and get a strong feeling and spirit in your life, still it doesn't connect with the problem of life and death. No connection. So finally, *forget it*. All you have to do is, you have to be one with shikantaza. That's all! Right now, right here – that's all you have to do. And then at that time, we can say, “All delusions drop off.” But that is an *explanation*; *after*. Raindrops touch the ground, make a sound, coming out of enlightenment. And then I can say, “that is the sound of raindrops.” But it's not real raindrops; we're always here, keeping a distance.
 
-Dogen Zenji says, “Zazen is dropping off body and mind.” Remember this. In your whole life, you should remember: “Zazen is dropping off body and mind.” It means all delusions drop off. That means exactly the same as death. Death is exactly the same as life. So how can I say it? How can I check? My “all delusions drop off” – right in the middle of death, nothing to say. But, when you become one with death, all delusions drop off! Otherwise you cannot become one with death; don’t you think so? It is really true. [They] completely drop off.
+Dogen Zenji says, “Zazen is dropping off body and mind.” Remember this. In your whole life, you should remember: “Zazen is dropping off body and mind.” It means all delusions drop off. 
+
+That means exactly the same as death. Death is exactly the same as life. So how can I say it? How can I check? My “all delusions drop off” – right in the middle of death, nothing to say. But, when you become one with death, all delusions drop off! Otherwise you cannot become one with death; don’t you think so? It is really true. [They] completely drop off.
 
 But we don't do that. Taking away all delusions, *and then* I want to be one – it's too late! You cannot do this. You have to be one *anyway*. If you're one, all delusions drop off, very naturally. But we don't believe it, because we get use of always keeping a certain distance and hearing the sound, and believing that is the real one. And we continue to follow after that – that's why we are inverted, perverted. 
 
