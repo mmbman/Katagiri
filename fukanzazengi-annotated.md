@@ -4,7 +4,7 @@ title: "Fukanzazengi – Annotated"
 
 Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dogen’s “Universal Recommendation for Zazen” – in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This is very much a work in progress; I will update this page as I transcribe talks and find additional references.
 
-The primary text annotated here is the [Sotoshu translation of *Fukanzazengi*](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many Zen centers. Alternative translations by Katagiri Roshi, where they are known, are provided as second-level blockquotes.
+The primary text annotated here is the [Sotoshu translation of *Fukanzazengi*](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many Zen centers. Alternative translations by Katagiri Roshi are provided where they are available.
 
 No single English translation of *Fukanzazengi* should be taken as authoritative. For a comparison of six English translations of Fukanzazengi, see [“Fukanzazengi: 6 translations”](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf) (external link).
 
@@ -19,14 +19,15 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 - On the statement “to think practice and realization are not one is a heretical view” from *Bendowa*, see [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4).
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
->
->> The dharma vehicle is free and unrestricted, why should we expend sustained effort?
 
+- Katagiri Roshi (KR) translates this as: “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” 
 - See [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
 > Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
 
-- “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra) and the famous “poetry contest.” See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
+- “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra) and the well-known “poetry contest.” See especially [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1).
+   - Although this line might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that after the next line, the next words are, “And yet...” This “and yet” seems to be one of the relatively few areas where the various English translations of *Fukanzazengi* are largely in agreement.
+   - Also note that Dogen himself (quoting one National Master Daishō) refers to this part of the *The Platform Sutra*  as a “folk story” which was spuriously added to the *Platform Sutra* and which distorts the true meaning of the Sixth Ancestor. This is alluded to in [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425).
 
 > It is never apart from this very place; what is the use of traveling around to practice? 
 
@@ -35,9 +36,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 - “Hairsbreadth deviation” also appears in the *Song of the Jewel Mirror Awareness*. Katagiri Roshi’s commentary on this is not publicly available at this time.
 
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
->
->> Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.
 
+- KR translates this as: “Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.”
 - This is extensively discussed in [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
 > Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice?
@@ -112,21 +112,18 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 - A practical example of moving calmly and deliberately appears in [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2) at [55:32](1987-03-12-Bendowa-Talk-2#5532)
 
 > In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
->
->> In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen.
 
+- KR translates this as: “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen.”
 - See [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 4](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
 
 > In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; ...
->
->> In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.
 
+- KR translates this as: “In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.”
 - This is discussed in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6) at [21:38](1979-06-14-Fukanzazengi-Talk-6#2138).
 
 > ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views?
->
->> ... it cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions?
 
+- KR translates this as: “... it cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions?”
 - This is discussed in [Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6) after [39:44](1979-06-14-Fukanzazengi-Talk-6#3944).
 
 > This being the case, intelligence or lack of it is not an issue; make no distinction between the dull and the sharp-witted. If you concentrate your effort single-mindedly, that in itself is wholeheartedly engaging the way.
