@@ -10,6 +10,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 ---
 
+#### Annotations by Kikan Michael Howard
+
 > ### *Fukanzazengi*
 
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
@@ -26,13 +28,15 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? It is never apart from this very place; what is the use of traveling around to practice? 
 
 - “Dust,” “brush it clean,” etc. is primarily a reference to [*The Platform Sutra*](platform-sutra) and the well-known “poetry contest.” See especially [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
-   - Although these lines might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that the very next words are, “And yet...” This “and yet” seems to be one area where the various English translations of *Fukanzazengi* are largely in agreement.
-   - Also note that Dogen himself, quoting one National Master Daishō, refers to “folk stories” which were spuriously added to *The Platform Sutra* and which “erase” the true meaning of the Sixth Ancestor. This is alluded to in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425).
+- Although these lines might initially be seen as supporting the verse attributed to Hui Neng over the verse attributed to Shen Hsiu, note that the very next words are, “And yet.” This “and yet” seems to be one area where the various English translations of *Fukanzazengi* are largely in agreement.
+- For those looking for a succinct explanation: “sudden” and “gradual,” et cetera, are regarded in Zen as flip sides of the same coin. For details, see [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1), etc. “And yet,” below, is essentially Dogen flipping the coin. 
+- Dogen himself (in *Soku shin ze butsu*, “This Mind Itself Is Buddha”) quotes one National Teacher Dazheng (or National Master Daishō), who refers to “folk stories” which were spuriously added to *The Platform Sutra* and which “erase” the true meaning of the Sixth Ancestor. Basically, it is – and always has been – well known in the Zen school that the *Platform Sutra* contains revisions by many people, not all of which are agreed with, to say the least. This is alluded to in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1), particularly at [54:25](1987-03-06-Platform-Sutra-Talk-1#5425). 
+- For a Western historical analysis of the “poetry contest” story of the *Platform Sutra*, see e.g. John R. McRae, *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism*. From the introduction: “McRae's meticulous analysis of the Northern school materials reveals the distortions and biases of the received tradition. To pick a single example, McRae takes to task the standard narrative that Northern teachers advocated a gradual path—that they viewed Buddhist practice as constituting a step-by-step ascent toward awakening. Instead, McRae shows that Northern teachers taught something closer to ‘constant practice’ —an approach that anticipates later Söto Zen teachings in Japan. For the Northern school, Chan practice was not a means to achieving liberation so much as a moment-to-moment re-cognition and affirmation of what is already the case, that is, of one's abiding bodhi.” That is perhaps not too far off, but it misses or ignores that this has been the primary view in Zen from the beginning. The unity of “sudden” and “gradual” probably goes back to the era of Bodhidharma (“Two Entrances”) – and if so, presumably it goes back even farther.
 
 > And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
 
 - “Hairsbreadth deviation” also appears in the *Song of the Jewel Mirror Awareness*. Katagiri Roshi’s commentary on that is not publicly available at this time. However, in Katagiri Roshi’s other talks, discussions of the general idea of *separation* – and its opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” etc. –  are probably too numerous to cite. A random example would be [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50) – the talk I happen to be transcribing at the time of writing – which lines up very well with this discussion.
-	- The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
+- The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
 
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
