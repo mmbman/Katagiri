@@ -103,7 +103,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen.
 
-- “Don’t think anything” is “think not-thinking”: [“*Diamond Sutra*: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being”)
+- “Don’t think anything” is “think not-thinking”: see [“*Diamond Sutra*: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being”).
 - For *shujo shin* (“one-mind”) as *non-thinking*, see [“*The Awakening of Faith* – Talk 33”](1986-03-07-Awakening-of-Faith-Talk-33).
 
 > The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. 
@@ -116,7 +116,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 - KR translates this as: “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.”
 - This line is extensively discussed in [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) as “a sort of conclusion of the main subject in *Fukanzazengi*,” and as “[the real] meaning of *shikantaza*.”
-- "Dullness and distraction" is extensively discussed in [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3), and also [Talk 5](1979-06-13-Fukanzazengi-Talk-5) and [Talk 6](1979-06-14-Fukanzazengi-Talk-6).
+- “Dullness and distraction” are meant to exemplify all kinds of delusions. See [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3).
+- "Dullness and distraction" are extensively discussed in [“Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3), and also [Talk 5](1979-06-13-Fukanzazengi-Talk-5) and [Talk 6](1979-06-14-Fukanzazengi-Talk-6).
 
 > When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. 
 
