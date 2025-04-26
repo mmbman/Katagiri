@@ -30,7 +30,7 @@ For a good entry point into Katagiri Roshi’s teaching, see the [“Fundamental
 
 **Resources:**
 
-- [***Fukanzazengi* – Annotated**](fukanzazengi-annotated)
+- [*Fukanzazengi* – Annotated](fukanzazengi-annotated)
 
 Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
