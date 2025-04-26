@@ -9,22 +9,22 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 **Talk Series:**
 
-For a good entry point into Katagiri Roshi’s teaching, see the [Fundamentals of Zen](fundamentals) series.
+For a good entry point into Katagiri Roshi’s teaching, see the [“Fundamentals of Zen”](fundamentals) series.
 
-- [***Awakening of Faith***](awakening-of-faith)
-- [***Blue Cliff Record***](blue-cliff-record)
-- [***Diamond Sutra***](diamond-sutra)
-- [***Fukanzazengi*: Universal Recommendation for Zazen**](fukanzazengi)
-- [**Fundamentals of Zen**](fundamentals)
-- [**Karma**](karma)
-- [**Mindfulness**](mindfulness)
-- [***Platform Sutra***](platform-sutra)
-- [**Receiving the Precepts**](precepts)
-- [***Shobogenzo Bendowa***](bendowa)
-- [***Shobogenzo Genjokoan***](genjokoan)
-- [**Tiantai Buddhism**](tiantai-buddhism)
-- [**Zen Forms and Ceremonies**](zen-forms)
-- [**Miscellaneous Talks**](miscellaneous)
+- [*Awakening of Faith*](awakening-of-faith)
+- [*Blue Cliff Record*](blue-cliff-record)
+- [*Diamond Sutra*](diamond-sutra)
+- [*Fukanzazengi*: Universal Recommendation for Zazen](fukanzazengi)
+- [Fundamentals of Zen](fundamentals)
+- [Karma](karma)
+- [Mindfulness](mindfulness)
+- [*Platform Sutra*](platform-sutra)
+- [Receiving the Precepts](precepts)
+- [*Shobogenzo Bendowa*](bendowa)
+- [*Shobogenzo Genjokoan*](genjokoan)
+- [Tiantai Buddhism](tiantai-buddhism)
+- [Zen Forms and Ceremonies](zen-forms)
+- [Miscellaneous Talks](miscellaneous)
 
 [**Talk List**](list)
 
