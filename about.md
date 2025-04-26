@@ -8,7 +8,9 @@ On close listening, it becomes apparent that Katagiri Roshi frequently backed up
 
 Words where I am unsure of the best transcription, or where I am adding words to make the meaning more clear, are usually presented in brackets, [like this]. Significant nonverbal sounds are noted *[in brackets with italics]*. Sections that are unintelligible are marked *[unintelligible]*, or sometimes [...], depending on what makes the text more readable. And transcriber comments adding additional information are placed in parentheses, *(like this)*. The timecodes embedded in the transcripts generally serve as section breaks, in addition to helping match up the text to the audio recording.
 
-Katagiri Roshi’s talks are a treasure trove of Mahayana Buddhist teaching. With the assistance of the people who recorded and preserved the talks, and later those who put them online, he left behind – intentionally or not – what is essentially an online university in Soto Zen Buddhism, specifically addressed to Americans. The talks also convey something of his enthusiasm, and particularly, his sense of humor. For one good entry point into Katagiri Roshi’s teaching, see the [Fundamentals of Zen](fundamentals) series.
+Katagiri Roshi’s talks are a treasure trove of Mahayana Buddhist teaching. With the assistance of the people who recorded and preserved the talks, and later those who put them online, he left behind (intentionally or not) what is essentially an online university in Soto Zen Buddhism, specifically addressed to Americans. The talks also convey something of his energy and enthusiasm, and his sense of humor. 
+
+For one good entry point into Katagiri Roshi’s teaching, see the [Fundamentals of Zen](fundamentals) series.
 
   – Kikan Michael Howard
 
