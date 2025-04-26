@@ -35,9 +35,9 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
 
-- “Hairsbreadth deviation” also appears in the *Song of the Jewel Mirror Awareness*. Katagiri Roshi’s commentary on that is not publicly available at this time. 
-- However, in Katagiri Roshi’s talks as a whole, discussions of the idea of *separation* or *discrimination* – and its opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” etc. –  are probably too numerous to cite. A random example would be [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50) – the talk I happen to be transcribing at the time of writing – which lines up very well with this discussion.
-- The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
+- In Katagiri Roshi’s talks, discussions of the idea of *separation* or *discrimination* – and its opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” etc. –  are probably too numerous to cite. A random example would be [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50) – the talk I happen to be transcribing at the time of writing – which lines up very well with this discussion.
+- Similarly, “like or dislike” appears too many times to be enumerated here – probably in a low-double-digit percentage of KR’s talks.
+- “Hairsbreadth deviation” specifically appears in the *Song of the Jewel Mirror Awareness*. The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
 
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
