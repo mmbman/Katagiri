@@ -71,7 +71,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > For practicing Zen, a quiet room is suitable. 
 
-- “Practicing Zen” is translating *sanzen* (参禅). For the actual meaning of *sanzen*, see:
+- “Practicing Zen” is translating *sanzen* (参禅). The actual meaning of *sanzen* is a key point that is often missed. See:
    - [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
    - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
