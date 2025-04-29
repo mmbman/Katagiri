@@ -30,11 +30,11 @@ I think I have to say the same sentence in a different way:
 
 I think “the great matter of one’s whole life” is not only in Dogen’s words, you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, Chapter Two, “Skillfulness,” I think [it says] that the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter. It is the same meaning as Dogen mentions here. 
 
-*Sanzen gakudo* is translated according to this book as “the study of the way through the practice of zazen.” *Sanzen gakudo* is the great matter of one’s whole life. 
+*Sanzen gakudo* is translated according to this book as “the study of the Way through the practice of zazen.” *Sanzen gakudo* is the great matter of one’s whole life. 
 
-*Gakudo* means “to learn or to study the way.” *Gaku* means to learn or to study. *Do* is the way. So *gakudo* is a pretty technical term Dogen Zenji uses very often: *gakudo*, to study or to learn the way. 
+*Gakudo* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Do* is the way. So *gakudo* is a pretty technical term Dogen Zenji uses very often: *gakudo*, to study or to learn the Way. 
 
-*The way* means the universal life beyond conscious or unconscious worlds. This is the way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the way. All sentient beings exist in the realm of the way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. So *gakudo* is to study universal life beyond the conscious and unconscious worlds. This is the *gakudo*. 
+*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. So *gakudo* is to study universal life beyond the conscious and unconscious worlds. This is the *gakudo*. 
 
 *Sanzen* is to surrender one’s body and mind to *zen*, or tranquility. *Zen* sometimes means *samadhi*, one-pointedness; sometimes it is translated as *tranquility*; sometimes it is translated as *meditation*. But anyway, *san* means “to surrender oneself to.” To surrender, or to visit, or to be present... to go toward. This is *san*. So *sanzen* means to surrender one’s life to *zen* or tranquility. 
 
@@ -50,11 +50,11 @@ So *jaku* [means] no one or nothing with which you want to talk. That is, accord
 
 The *jo* of *jakujo*, according to Buddha’s teaching we say [*hachiman reiro*], that means the clear and immaculate jewel with its octagonal spheres. “Octagonal” [here] doesn’t mean eight angles, eight dimensions of the jewel, the ball, [it means] many spheres, many angles there. So existence is just like a huge jewel ball which is clear and immaculate. That is *jaku*, exactly. Perfect quiet, but on the other hand that ball has many aspects, many angles. That is called octagonal spheres. That means many myriad, myriad aspects of human life, everyday. Getting up in the morning, washing your face, having your breakfast, studying, working, many aspects appear in one sphere, in one situation. One and the same situation which is called perfect, clear and immaculate. 
 
-This is the meaning of *sanzen*. So it’s very difficult to translate *sanzen* into English. If you say “the study of the way through the practice of zazen,” it is true... but it is pretty difficult to express the real spirit of the practice. So I want to use this original term *sanzen*, so through this original term you can see the real spirit of practice.
+This is the meaning of *sanzen*. So it’s very difficult to translate *sanzen* into English. If you say “the study of the Way through the practice of zazen,” it is true... but it is pretty difficult to express the real spirit of the practice. So I want to use this original term *sanzen*, so through this original term you can see the real spirit of practice.
 
-So let’s [look at] the meaning of *sanzen gakudo*, okay? *Sanzen* is you have to surrender your whole life to *zen* or tranquility, which is exactly the way. So *sanzen* is the same meaning as *gakudo*. What do we learn? The way, it is the way. 
+So let’s [look at] the meaning of *sanzen gakudo*, okay? *Sanzen* is you have to surrender your whole life to *zen* or tranquility, which is exactly the Way. So *sanzen* is the same meaning as *gakudo*. What do we learn? The Way, it is the Way. 
 
-But what is the way? That is universal life. What is the universal life? How do we learn that universal life beyond conscious and unconscious world? 
+But what is the Way? That is universal life. What is the universal life? How do we learn that universal life beyond conscious and unconscious world? 
 
 So, you have to surrender your whole life to tranquility. Tranquility means perfect tranquility, stillness. On the other hand, that perfect tranquility penetrates every aspect of everydayness. So “to surrender yourself to tranquility *totally*” means you have to manifest perfect tranquility within each single form of everydayness. *Gassho*, getting up in the morning, having breakfast, walking, et cetera. 
 
@@ -66,7 +66,7 @@ And also we say “one’s whole life.” This *one’s whole life* is not *your
 
 Because, what do you have to learn if you want to live in your spiritual life? You have to learn or study something more than your consciousness can see or your consciousness cannot see – [something] beyond this. Anyway you have to learn that; that means you have to learn the whole world. In the whole world, there are countless, countless beings [that] exist. So, the whole span of your lifetime is not good enough to learn all sentient beings in the whole world, because it’s very short! But we have to learn the whole world, all sentient beings. *How*? We have to spend this life and the other life and the other life – life after life. This is the meaning of the “one’s whole life” here. 
 
-So, in this case, to learn the Buddha Way, to learn the way, is not a small matter which [can] be learned at the university or in a workshop, et cetera. No, you cannot do it. The matter of learning the way or studying the way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to [the] spend immense long span of your time. 
+So, in this case, to learn the Buddha Way, to learn the Way, is not a small matter which [can] be learned at the university or in a workshop, et cetera. No, you cannot do it. The matter of learning the Way or studying the Way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to [the] spend immense long span of your time. 
 
 This is the reason why Buddha is born in this world, the *Saddharma Pundarika Sutra* or *Lotus Sutra* says. Yes it is. [It is] why *you* were born; the same applies to the reason why you were born. The same reason. Why were you born in this world? Because you are Buddha, we are Buddha. If so, the advent of your existence is due to seeing this great matter in your whole life. Life after life, we have to learn. 
 
@@ -141,7 +141,7 @@ So that is what Dogen Zenji mentions here: “If one thing becomes tedious, all 
 > You should know that those who like easy things are, as a matter of course, unworthy of the practice of the
 Way.
 
-[For] “unworthy of the practice of the way,” originally it says, “you are not appropriate *container* of the way.” “Container of the way” means ... you are incompetent as appropriate practitioner of the way. You are a great container of the dharma, but it doesn’t appear; so that’s why you are incompetent as appropriate practitioners of the way. Because if you are [jewels], you have to practice, you have to manifest it. That means practice: make it alive. 
+[For] “unworthy of the practice of the Way,” originally it says, “you are not appropriate *container* of the Way.” “Container of the Way” means ... you are incompetent as appropriate practitioner of the Way. You are a great container of the dharma, but it doesn’t appear; so that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That means practice: make it alive. 
 
 So [...] your body and mind is a great dharma container, but it doesn’t work. At that time you are a container but your container doesn’t work. That’s the point Dogen Zenji mentions here. 
 
