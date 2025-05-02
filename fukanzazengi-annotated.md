@@ -48,9 +48,9 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > Therefore, put aside the intellectual practice of investigating words and chasing phrases, and learn to take the backward step that turns the light and shines it inward. 
 
-- “Learn to take the backward step that turns the light and shines it inward”: this is perhaps one of the most challenging lines to reliably interpret. The meaning is probably simple, and yet, common interpretations are problematic. Particularly, any interpretation that approaches “shutting out the world” does not line up well with the rest of Katagiri Roshi’s or Dogen’s teachings.
+- “Learn to take the backward step that turns the light and shines it inward”: this is perhaps one of the most challenging lines to reliably interpret. The meaning is probably simple, and yet, common interpretations are problematic. Particularly, any interpretation that approaches “shutting out the world” does not line up well with Katagiri Roshi’s or Dogen’s teachings.
 - KR: “To learn the backward step that turns your light inwardly to illuminate yourself”
-   - See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4)
+   - “Learn the backward step” means to “return to the very inception of the moment.” It does not mean to withdraw, nor to escape from. See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4).
    - See [“Principles of Practice – Talk 5”](1986-03-23-Principles-of-Practice-Talk-5)
    - See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2) - discussed as the function of *prajna*.
 - KR: “To learn that one withdraws one step, and turns the light inward on oneself”
