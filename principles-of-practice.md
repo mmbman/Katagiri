@@ -2,6 +2,8 @@
 title: "Principles of Practice"
 ---
 
+In this series of talks, Katagiri Roshi comments on Zen Master Dogen’s *Gakudo Yojin-shu*, “Points To Watch in Buddhist Practice.”
+
 This series of transcripts is in draft stage. 
 
 - [Talk 1: The Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
