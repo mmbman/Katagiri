@@ -2,7 +2,7 @@
 title: "Principles of Practice"
 ---
 
-In this series of talks, Katagiri Roshi comments on Zen Master Dogen’s *Gakudo Yojin-shu*, “Points To Watch in Buddhist Practice.”
+In this series of talks Katagiri Roshi comments on Zen Master Dogen’s *Gakudo Yojin-shu*, “Points To Watch in Buddhist Practice.”
 
 This series of transcripts is in draft stage. 
 

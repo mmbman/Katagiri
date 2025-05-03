@@ -19,6 +19,7 @@ For a good entry point into Katagiri Roshi’s teaching, see the [“Fundamental
 - [Karma](karma)
 - [Mindfulness](mindfulness)
 - [*Platform Sutra*](platform-sutra)
+- [Principles of Practice (*Gakudo Yojin-shu*)](principles-of-practice)
 - [Receiving the Precepts](precepts)
 - [*Shobogenzo Bendowa*](bendowa)
 - [*Shobogenzo Genjokoan*](genjokoan)

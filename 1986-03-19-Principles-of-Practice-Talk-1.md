@@ -20,7 +20,7 @@ title: "Principles of Practice, Talk 1: The Purpose of Practice"
 
 Before we go into these three issues, today I would like to talk about the purpose of the practice generally: why we have to practice; what is the purpose of the practice. What is the purpose of spiritual life? 
 
-In *Gakudo Yojin-shu*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dogen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dogen Zenji [says] here:
+In *Gakudo Yojin-shu*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dogen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dogen Zenji [says]:
 
 > The study of the Way through the practice of zazen is of vital importance.
 
@@ -34,7 +34,7 @@ I think “the great matter of one’s whole life” is not only in Dogen’s wo
 
 *Gakudo* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Do* is the way. So *gakudo* is a pretty technical term Dogen Zenji uses very often: *gakudo*, to study or to learn the Way. 
 
-*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. So *gakudo* is to study universal life beyond the conscious and unconscious worlds. This is the *gakudo*. 
+*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. So *gakudo* is to study universal life beyond the conscious and unconscious worlds. This is *gakudo*. 
 
 *Sanzen* is to surrender one’s body and mind to *zen*, or tranquility. *Zen* sometimes means *samadhi*, one-pointedness; sometimes it is translated as *tranquility*; sometimes it is translated as *meditation*. But anyway, *san* means “to surrender oneself to.” To surrender, or to visit, or to be present... to go toward. This is *san*. So *sanzen* means to surrender one’s life to *zen* or tranquility. 
 
