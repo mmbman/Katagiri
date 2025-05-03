@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi – Annotated"
+title: "Annotated Fukanzazengi"
 ---
 
 #### Annotations by Kikan Michael Howard

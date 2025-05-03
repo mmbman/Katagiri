@@ -31,7 +31,7 @@ For a good entry point into Katagiri Roshi’s teaching, see the [“Fundamental
 
 **Resources:**
 
-- [*Fukanzazengi* – Annotated](fukanzazengi-annotated)
+- [Annotated *Fukanzazengi*](annotated-fukanzazengi)
 
 Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
@@ -43,7 +43,7 @@ Please note that these transcripts are a continuing work in progress. Correction
 
 **April 25, 2025:** Posted draft of [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50).
 
-**April 14, 2025:** Posted "[*Fukanzazengi* – Annotated](fukanzazengi-annotated)" – a work in progress.
+**April 14, 2025:** Posted [“Annotated *Fukanzazengi*”](annotated-fukanzazengi) – a work in progress.
 
 **March 11, 2025:** Posted all drafts in the [*Bendowa*](bendowa) series.
 
