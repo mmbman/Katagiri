@@ -20,45 +20,49 @@ title: "Principles of Practice, Talk 1: The Purpose of Practice"
 
 Before we go into these three issues, today I would like to talk about the purpose of the practice generally: why we have to practice; what is the purpose of the practice. What is the purpose of spiritual life? 
 
-In *Gakudo Yojin-shu*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dogen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dogen Zenji [says]:
+In *Gakudō-yōjinshū*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dogen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dogen Zenji [says]:
 
 > The study of the Way through the practice of zazen is of vital importance.
 
 I think I have to say the same sentence in a different way: 
 
-> *Sanzen gakudo* is the great matter of one’s whole life. 
+> *Sanzen gakudō* is the great matter of one’s whole life. 
 
-I think “the great matter of one’s whole life” is not only in Dogen’s words, you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, Chapter Two, “Skillfulness,” I think [it says] that the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter. It is the same meaning as Dogen mentions here. 
+I think “the great matter of one’s whole life” is not only [in Dogen’s works]; you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, Chapter Two, “Skillfulness,” I think [it says] that “the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter.” It is the same meaning as Dogen mentions here. *Sanzen gakudō* is translated according to this book as “the study of the Way through the practice of zazen” – *sanzen gakudō* is the great matter of one’s whole life. 
 
-*Sanzen gakudo* is translated according to this book as “the study of the Way through the practice of zazen.” *Sanzen gakudo* is the great matter of one’s whole life. 
+*Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the way. So *gakudō* is a pretty technical term Dogen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 
-*Gakudo* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Do* is the way. So *gakudo* is a pretty technical term Dogen Zenji uses very often: *gakudo*, to study or to learn the Way. 
+*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 
-*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. So *gakudo* is to study universal life beyond the conscious and unconscious worlds. This is *gakudo*. 
+So *gakudō* is to study universal life beyond the conscious and unconscious worlds. This is *gakudō*. 
 
 *Sanzen* is to surrender one’s body and mind to *zen*, or tranquility. *Zen* sometimes means *samadhi*, one-pointedness; sometimes it is translated as *tranquility*; sometimes it is translated as *meditation*. But anyway, *san* means “to surrender oneself to.” To surrender, or to visit, or to be present... to go toward. This is *san*. So *sanzen* means to surrender one’s life to *zen* or tranquility. 
 
-*Zen* or tranquility means dimension of being in which there is no individual consciousness, so-called consciousness or unconsciousness. So [not] any subtle signs of ideas, conscious world or unconscious world. 
+*Zen* or tranquility means dimension of being in which there is no individual consciousness, so-called consciousness, or unconsciousness. So [not any] subtle signs of ideas, conscious world or unconscious world. 
 
-In Japanese, tranquility is called *jakujo*. *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means, if you are there, you are *exactly* there; nothing else except you. So that is very tranquil. Just like being present in the wilderness. There are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfectly tranquil. That is the meaning of *jaku*. So, completely nothing around you. 
+In Japanese, tranquility is called *jakujō*. *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means if you are there, you are *exactly* there; nothing else except you. So that is very tranquil. Just like being present in the wilderness. There are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfectly tranquil. That is the meaning of *jaku*. So, completely nothing around you. 
 
-And also *jo* of *jakujo* means literally “to express in detail.” So literally [...] *jo* of *jakujo* is also the same meaning of stillness or tranquility, but it is a little different from the *jaku* of *jakujo*. *Jo* is “tranquil and still which penetrates every aspect of everydayness.” 
+And also *jō* of *jakujō* means literally “to express in detail.” So literally [...] *jō* of *jakujō* is also the same meaning of stillness or tranquility, but it is a little different from the *jaku* of *jakujō*. *Jō* is “tranquil and still which penetrates every aspect of everydayness.” 
 
-So *jaku* is kind of the essence of beings, how they exist. Everything exists exactly in peace, in harmony, in tranquility. But it is not something abstract, because it penetrates every aspect of everydayness. If you see a tree, if you see winter, if you see fine days – whatever you see, all sentient beings exist just exactly tranquil. You can see perfect tranquility through the form [of beings], every form of beings – trees, birds, and weather, et cetera. So that’s why *jo* of *jakujo* is tranquility which penetrates every aspect of everydayness. 
+So *jaku* is kind of the essence of beings, how they exist. Everything exists exactly in peace, in harmony, in tranquility. But it is not something *abstract*, because it penetrates every aspect of everydayness. If you see a tree, if you see winter, if you see fine days – whatever you see, all sentient beings exist just exactly tranquil. You can see perfect tranquility through the form [of beings], every form of beings – trees, birds, and weather, et cetera. So that’s why *jō* of *jakujō* is tranquility which penetrates every aspect of everydayness. 
 
-So *jaku* [means] no one or nothing with which you want to talk. That is, according to [what Buddha said] or according to the Buddha’s teaching, we say, “Heaven and earth is the same and one root as my existence, your existence.” [Or] “I and heaven and earth are the same and one root.” So exactly that is called *tranquility*, exactly tranquility. Tranquility is no ideas, nothing to think. So you cannot think of it. Before you think of the universe or you, whatever, the whole world, all existence, exactly exists in perfect peace and harmony. That is called “I and heaven and earth are the one and the same root.” 
+So *jaku* is no one or nothing with which you want to talk – that is, according to [what Buddha said] or according to the Buddha’s teaching, we say, “Heaven and earth is the same and one root as my existence, your existence.” [Or] “I and heaven and earth are the same and one root.” Exactly that is called tranquility, exactly tranquility. Tranquility is no ideas, nothing to think, so you cannot think of it. Before you think of the universe, or you, whatever – the whole world, all existence, exactly exists in perfect peace and harmony. That is called “I and heaven and earth are the one and the same root.” 
 
-The *jo* of *jakujo*, according to Buddha’s teaching we say [*hachiman reiro*], that means the clear and immaculate jewel with its octagonal spheres. “Octagonal” [here] doesn’t mean eight angles, eight dimensions of the jewel, the ball, [it means] many spheres, many angles there. So existence is just like a huge jewel ball which is clear and immaculate. That is *jaku*, exactly. Perfect quiet, but on the other hand that ball has many aspects, many angles. That is called octagonal spheres. That means many myriad, myriad aspects of human life, everyday. Getting up in the morning, washing your face, having your breakfast, studying, working, many aspects appear in one sphere, in one situation. One and the same situation which is called perfect, clear and immaculate. 
+The *jō* of *jakujō*, according to Buddha’s teaching we say *hachimen reirō* (八面玲瓏), that means a clear and immaculate jewel with octagonal spheres. “Octagonal” [here] doesn’t mean eight angles, eight dimensions of the jewel or ball, [it means] many angles there. So existence is just like a huge ball or jewel which is clear and immaculate. That is *jaku*, exactly. Perfect quiet, but on the other hand that ball has many aspects, many angles; that is called octagonal spheres. That means many myriad, myriad aspects of human life, everyday: getting up in the morning, washing your face, having your breakfast, studying, working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate. 
 
 This is the meaning of *sanzen*. So it’s very difficult to translate *sanzen* into English. If you say “the study of the Way through the practice of zazen,” it is true... but it is pretty difficult to express the real spirit of the practice. So I want to use this original term *sanzen*, so through this original term you can see the real spirit of practice.
 
-So let’s [look at] the meaning of *sanzen gakudo*, okay? *Sanzen* is you have to surrender your whole life to *zen* or tranquility, which is exactly the Way. So *sanzen* is the same meaning as *gakudo*. What do we learn? The Way, it is the Way. 
+So let’s [look at] the meaning of *sanzen gakudō*, okay? *Sanzen* is you have to surrender your whole life to *zen* or *tranquility*, which is exactly the Way. 
 
-But what is the Way? That is universal life. What is the universal life? How do we learn that universal life beyond conscious and unconscious world? 
+So *sanzen* is the same meaning as *gakudō*. What do we learn? The Way, it is the Way. 
 
-So, you have to surrender your whole life to tranquility. Tranquility means perfect tranquility, stillness. On the other hand, that perfect tranquility penetrates every aspect of everydayness. So “to surrender yourself to tranquility *totally*” means you have to manifest perfect tranquility within each single form of everydayness. *Gassho*, getting up in the morning, having breakfast, walking, et cetera. 
+But what is the Way? That is universal life. What is universal life? How do we learn that universal life beyond conscious and unconscious world? 
 
-That is the meaning of *sanzen gakudo*. So, “*sanzen gakudo* is the great matter of one’s whole life” [is my translation]. 
+So, you have to surrender your whole life to tranquility. Tranquility means perfect tranquility, stillness – on the other hand, that perfect tranquility penetrates every aspect of everydayness. So to surrender yourself to tranquility *totally* means you have to manifest perfect tranquility within each single form of everydayness: *gassho*, getting up in the morning, having breakfast, walking, et cetera. 
+
+That is the meaning of *sanzen gakudō*. 
+
+So, “*sanzen gakudō* is the great matter of one’s whole life” [is my translation]. 
 
 The “great” [is] *maha* in Sanskrit. *Maha* doesn’t mean something limited by human consciousness or human ideas. *Great* means *boundless*, or *immense*. 
 
@@ -90,7 +94,7 @@ I think this is the second patriarch, Eka Daishi Zen Master, who expressed his s
 
 This example seems to be cruel or hard, we can say, in terms of usual common sense. But for Eka Daishi, for the second patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not *[unintelligible]*. [It is] beyond any ideas of understanding that situation through our common sense, because he is realizing there is [some] important matter he has to seek for. 
 
-That is *sanzen gakudo*. So very naturally, that desire, the spirit of *sanzen gakudo*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing that this or that. No one. But it’s coming up. When you have very strong spirit coming up naturally, you cannot stop doing. 
+That is *sanzen gakudō*. So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing that this or that. No one. But it’s coming up. When you have very strong spirit coming up naturally, you cannot stop doing. 
 
 So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. So for him it is not hard practice, or not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
 
