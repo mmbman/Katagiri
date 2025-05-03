@@ -39,6 +39,8 @@ Please note that these transcripts are a continuing work in progress. Correction
 
 ## Latest Updates
 
+**May 3, 2025:** Posted drafts of the [Principles of Practice](principles-of-practice) series. (Still cleaning these up.)
+
 **April 25, 2025:** Posted draft of [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50).
 
 **April 14, 2025:** Posted "[*Fukanzazengi* – Annotated](fukanzazengi-annotated)" – a work in progress.
