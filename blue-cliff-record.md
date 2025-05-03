@@ -2,11 +2,9 @@
 title: "Blue Cliff Record"
 ---
 
-The *Blue Cliff Record* (*Hekiganroku*) is a renowned collection of one hundred *koans* (or “public cases”) in the Zen tradition.
+The *Blue Cliff Record* (*Hekiganroku*) is a renowned collection of one hundred *koans* (or “public cases”) in the Zen tradition. In different ways, it is an essential part of the curriculum in both Rinzai Zen and Soto Zen.
 
 Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1989. Listed below are the talks that are present in the online audio archive. 
-
-Talk List \| [Talk Summaries](blue-cliff-record-summaries) 
 
 - [Case 1: The Highest Meaning of the Holy Truths, Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 - [Case 1: The Highest Meaning of the Holy Truths, Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
