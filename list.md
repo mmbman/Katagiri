@@ -288,11 +288,11 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
 
-1. Principles of Practice: Purpose of Practice
-1. Principles of Practice: Bodhicitta
-1. Principles of Practice: High Resolve
-1. Principles of Practice: Faith
-1. Principles of Practice: Direct Transmission
+1. [Principles of Practice: Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
+1. [Principles of Practice: Bodhicitta](1986-03-20-Principles-of-Practice-Talk-2)
+1. [Principles of Practice: High Resolve](1986-03-21-Principles-of-Practice-Talk-3)
+1. [Principles of Practice: Faith](1986-03-22-Principles-of-Practice-Talk-4)
+1. [Principles of Practice: Direct Transmission](1986-03-23-Principles-of-Practice-Talk-5)
 
 1. *The Awakening of Faith* Talk 35
 1. *The Awakening of Faith* Talk 36
