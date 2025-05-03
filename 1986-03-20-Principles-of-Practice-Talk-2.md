@@ -15,13 +15,13 @@ title: "Principles of Practice, Talk 2: Bodhicitta"
 
 #### 0:00
 
-**Katagiri Roshi:** Yesterday I [talked about] the purpose of the practice, or the purpose of spiritual life. The purpose of spiritual life is to actualize *sanzen gakudo*, which means to surrender one’s body and mind to tranquility. *Tranquility* means the Way; to surrender one’s body and mind to tranquility is to study or to learn the Way. 
+**Katagiri Roshi:** Yesterday I [talked about] the purpose of the practice, or the purpose of spiritual life. The purpose of spiritual life is to actualize *sanzen gakudō*, which means to surrender one’s body and mind to tranquility. *Tranquility* means the Way; to surrender one’s body and mind to tranquility is to study or to learn the Way. 
 
 The Way manifests in two ways. One is it manifests itself as the absolute, in other words, the ultimate identity of existence, the absolute self which is completely, absolutely tranquil, still. But it is not something still [like] stagnant water. It is always *active*. So the Way appears as every aspect of everydayness. 
 
 So tranquility penetrates every aspect of everydayness; that is the Way. That is the purpose of practice – the purpose of spiritual life, we usually say. 
 
-So today I would like to talk about what attitude we should take to the practice, so-called *sanzen gakudo*.
+So today I would like to talk about what attitude we should take to the practice, so-called *sanzen gakudō*.
 
 Yesterday I mentioned that *sanzen* usually is translated as “the practice,” but originally [in Japanese] *sanzen* is something more than “the practice.” I mentioned *sanzen* is to “surrender yourself, to surrender your body and mind” to something, to *zen*, to tranquility. This is *sanzen*. 
 
@@ -29,13 +29,13 @@ So I would like to talk about what attitude we should take to the practice of th
 
 #### 
 
-In *Gakudo Yojinshu*, “Points to Watch in the Buddhist Training,” page 48 of the book *Zen Master Dogen*, he said first of all:
+In *Gakudō-yōjinshū*, “Points to Watch in the Buddhist Training,” page 48 of the book *Zen Master Dogen*, he said first of all:
 
 > The Bodhi-mind is known by many names; but they all refer to the One Mind of the Buddha. The Venerable Nagarjuna said, “The mind that sees into the flux of arising and decaying and recognizes the transient nature of the world is also known as the Bodhi-mind.” Why, then, is temporary dependence on this mind called the Bodhi-mind? When the transient nature of the world is recognized, the ordinary selfish mind does not arise; neither does the mind that seeks for fame and profit.
 >
 > (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
-This is chapter one of the *Gakudo Yojinshu*. The title is “The Need to Awaken to the Bodhi-Mind,” or “to Arouse Bodhi-Mind.” The need to arouse bodhi-mind, to awaken to the bodhi-mind. 
+This is chapter one of the *Gakudō-yōjinshū*. The title is “The Need to Awaken to the Bodhi-Mind,” or “to Arouse Bodhi-Mind.” The need to arouse bodhi-mind, to awaken to the bodhi-mind. 
 
 So here are three points. First of all, you have to arouse the bodhi-mind. In order to arouse the bodhi-mind you have to have the insight of *impermanence*; you have to [see into impermanence]. And if you [see into] the truth of impermanence, you naturally are free from selfish mind. 
 

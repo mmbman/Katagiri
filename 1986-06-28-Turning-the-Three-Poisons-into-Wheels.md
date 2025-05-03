@@ -74,7 +74,7 @@ Dogen Zenji and many teachers try to present this total picture of the *one* wor
 
 #### 30:31
 
-Another example is [that Dogen Zenji] talks about *everydayness*, everyday mind. What is everyday mind? Everyday mind. We know [it] pretty well. But he says (in *Shinjin Gakudo*: “Studying the Way with Body and Mind”) that everyday mind is quite different from our understanding. He says:
+Another example is [that Dogen Zenji] talks about *everydayness*, everyday mind. What is everyday mind? Everyday mind. We know [it] pretty well. But he says (in *Shinjin Gakudō*: “Studying the Way with Body and Mind”) that everyday mind is quite different from our understanding. He says:
 
 > Everyday mind is everyday mind throughout this world and other worlds. Yesterday lept from that [place]; today comes from that place. When you go, the whole world goes. When you come, the whole earth comes. The gate of this everydayness [is] opening and closing at the moment; the gate[s] of myriad, myriad beings are opening and closing at the moment. 
 

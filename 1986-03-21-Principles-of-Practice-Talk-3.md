@@ -216,7 +216,7 @@ So very naturally, you can practice *giving paramita*.
 
 And also he says: 
 
-> For *sanzen gakudo*, it is the first opportune way to throw away one’s selfhood to assert itself. When you listen to the teachings under a great teacher, it is the terminal abode to penetrate the great Way, to practice with being free from one’s selfhood. 
+> For *sanzen gakudō*, it is the first opportune way to throw away one’s selfhood to assert itself. When you listen to the teachings under a great teacher, it is the terminal abode to penetrate the great Way, to practice with being free from one’s selfhood. 
 
 This is nothing but the point I have mentioned: be in the first moment, the first thought, and practice there.
 

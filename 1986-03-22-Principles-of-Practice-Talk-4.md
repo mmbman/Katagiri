@@ -18,7 +18,7 @@ title: "Principles of Practice, Talk 4: Faith"
 
 **Katagiri Roshi:** Today I would like to talk about the key point of the practice in terms of *faith*.
 
-In *Gakudo Yojinshu*, “Points to Watch in Buddhist Training,” number 9, page 57, Dogen Zenji says:
+In *Gakudō-yōjinshū*, “Points to Watch in Buddhist Training,” number 9, page 57, Dogen Zenji says:
 
 > To study the Way is to try to become one with it – to forget even a trace of enlightenment. Those who would practice the Way should first of all believe in it. Those who believe in the Way should believe that they have been in the Way from the very beginning, subject to neither delusion, illusive thoughts, and confused ideas nor increase, decrease, and mistaken understanding. Engendering belief like this, clarify the Way and practice it accordingly – this is the essence of studying the Way.
 > 
@@ -134,7 +134,7 @@ So constantly you put your body and mind right in the middle of the very minute 
 
 #### 
 
-But anyway, if you read *The Record of Things Heard*, Dogen Zenji was very compassionate, very kind. In the *Gakudo Yojinshu* he [said it] like this, you cut off delusion, cut off the root of the discriminating mind, right here, right now, day by day. This is the important process to reach that Buddhist faith. But, Dogen Zenji said: still, it’s pretty hard. It’s very hard.
+But anyway, if you read *The Record of Things Heard*, Dogen Zenji was very compassionate, very kind. In the *Gakudō-yōjinshū* he [said it] like this, you cut off delusion, cut off the root of the discriminating mind, right here, right now, day by day. This is the important process to reach that Buddhist faith. But, Dogen Zenji said: still, it’s pretty hard. It’s very hard.
 
 So very naturally you can see yourself that, what would you say... you are tempted by worldly affairs. Even though we know how important practice is, what kind of practice is important for me, for you, all of you, [still] it’s very difficult. So Dogen Zenji says, or ancestors and buddhas say, “Please forsake your body and mind, plunging into Buddha’s world.” That means plunging into that just one world, the very first moment of being present right now, right here, which is very pure and clean, beyond good or bad, right or wrong. We have to practice: that is called “forsake your body and mind.”
 

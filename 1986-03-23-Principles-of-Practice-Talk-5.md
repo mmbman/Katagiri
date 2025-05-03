@@ -29,7 +29,7 @@ So, this is the meaning of *joto*. That’s why *jikige* means “direct”: dir
 
 #### 
 
-Okay, let’s [look at] *Gakudo Yojinshu* number 10. The title is “The Direct Realization of the Way.” Here [this translation] uses “the Way,” but literally it says “it” – the ultimate. 
+Okay, let’s [look at] *Gakudō-yōjinshū* number 10. The title is “The Direct Realization of the Way.” Here [this translation] uses “the Way,” but literally it says “it” – the ultimate. 
 
 So far I have spoken about *bodhicitta* and also *faith* as the key point of the practice. And then next, you have to actualize it, you have to ingest the *bodhicitta* and faith, and actualize it. Actualize these two, in our everyday practice. 
 
