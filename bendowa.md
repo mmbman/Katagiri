@@ -2,7 +2,7 @@
 title: "Bendowa"
 ---
 
-Katagiri Roshi gave several series of talks on Dogen Zenji’s *Bendowa* (“Talk on Pursuing the Way”). This series is from 1987, and focuses on the first part of the “Questions and Answers” section, although it necessarily includes some commentary on the whole work.
+Katagiri Roshi gave several series of talks on Dogen Zenji’s *Bendowa* (“A Talk on Pursuing the Way”). This series is from 1987, and focuses on the first part of the “Questions and Answers” section, although it necessarily includes some commentary on the whole work.
 
 This series of transcripts is in draft stage. 
 

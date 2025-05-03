@@ -20,7 +20,7 @@ Katagiri Roshi discusses the meaning of the phrases “dropping off body and min
 
 ##### [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 
-Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “Negotiating the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
+Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “A Talk on Pursuing the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
 
 (This talk is also part of the [*Bendowa*](bendowa) series.)
 

@@ -7,7 +7,7 @@ title: "Zazen: Entry to the Buddha Dharma"
 
 ### Summary
 
-Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “Negotiating the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
+Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “A Talk on Pursuing the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
 
 ### Transcript
 
