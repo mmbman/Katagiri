@@ -169,7 +169,7 @@ He says it is:
 
 > “Eternally deep water and the moon in the sky.”
 
-(*Transcriber’s Note:* From the Sotoshu *Shobogenzo* translation: “Blue depths ten thousand ages old, the moon in an empty realm.”)
+(*Transcriber’s Note:* From the Sōtōshū *Shobogenzo* translation: “Blue depths ten thousand ages old, the moon in an empty realm.”)
 
 It means, we try to understand, we try to approach to what the truth is, what the clear mirror is. Through our experience, through our studies, through our practice, we try to. And then when you reach exactly true clear mirror, means you meet exactly that clear mirror. Complete, there is no particular mirror, between the you and mirror. So, mirror is completely broken pieces. 
 
