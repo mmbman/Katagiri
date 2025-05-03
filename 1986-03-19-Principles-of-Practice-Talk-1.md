@@ -68,21 +68,23 @@ The “great” [is] *maha* in Sanskrit. *Maha* doesn’t mean something limited
 
 And also we say “one’s whole life.” This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life. 
 
-Because, what do you have to learn if you want to live in your spiritual life? You have to learn or study something more than your consciousness can see or your consciousness cannot see – [something] beyond this. Anyway you have to learn that; that means you have to learn the whole world. In the whole world, there are countless, countless beings [that] exist. So, the whole span of your lifetime is not good enough to learn all sentient beings in the whole world, because it’s very short! But we have to learn the whole world, all sentient beings. *How*? We have to spend this life and the other life and the other life – life after life. This is the meaning of the “one’s whole life” here. 
+Because, what do you have to learn if you want to live in your spiritual life? You have to learn or study something more than your consciousness can see or your consciousness cannot see – [something] beyond this. Anyway you have to learn that; that means you have to learn the whole world. In the whole world, there are countless, countless beings [that] exist. So, the whole span of your lifetime is not good enough to learn all sentient beings in the whole world, because it’s very short! But we have to learn the *whole* world, *all* sentient beings. *How*? We have to spend this life and the other life and the other life – life after life. This is the meaning of the “one’s whole life” here. 
 
-So, in this case, to learn the Buddha Way, to learn the Way, is not a small matter which [can] be learned at the university or in a workshop, et cetera. No, you cannot do it. The matter of learning the Way or studying the Way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to [the] spend immense long span of your time. 
+So, in this case, to learn the Buddha Way, to learn the Way, is not a small matter which [can] be learned at the university or in a workshop, et cetera. No. You cannot do it. The matter of learning the Way or studying the Way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to spend the immense long span of your time. 
 
 This is the reason why Buddha is born in this world, the *Saddharma Pundarika Sutra* or *Lotus Sutra* says. Yes it is. [It is] why *you* were born; the same applies to the reason why you were born. The same reason. Why were you born in this world? Because you are Buddha, we are Buddha. If so, the advent of your existence is due to seeing this great matter in your whole life. Life after life, we have to learn. 
 
 This is the purpose of practice, the purpose of spiritual life. 
 
-So what is the purpose of spiritual life? It is not the kind of individual experience which we believe usually, that spiritual life is accompanied by mysterious or miracle experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. This is [the] purpose of spiritual life. 
+So what is the purpose of spiritual life? It is not the kind of individual experience which we believe usually, that spiritual life is accompanied by mysterious or [miraculous] experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. This is [the] purpose of spiritual life. 
 
-That’s why in the *Prajnaparamita Sutra* we say we have to attain *anuttara-samyak-sambodhi*, the complete, perfect, supreme enlightenment. [This is] in the *Prajnaparamita* we chant every day. And then, you can attain wisdom, *prajnaparamita*. In order to attain *anuttara-samyak-sambodhi*, perfect supreme enlightenment, that means you have to learn something more than you think or you cannot think. This is something very profound. Even though you don’t understand this, we are struggling to attaining this. That’s why we practice. That’s why we live in this world. 
+That’s why in the *Prajnaparamita Sutra* we say we have to attain *anuttara-samyak-sambodhi*, the complete, perfect, supreme enlightenment. [This is] in the *Prajnaparamita* we chant every day. And then, you can attain wisdom, *prajnaparamita*. In order to attain *anuttara-samyak-sambodhi*, perfect supreme enlightenment, that means you have to learn something more than you think or you cannot think. This is something very profound. 
 
-You cannot die simply; you cannot commit suicide, in a simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. 
+Even though you don’t understand this, we are struggling [toward] attaining this. That’s why we practice. That’s why we live in this world. 
 
-So from this point, I think we cannot say our practice is [an] easy way or hard way. Dogen Zenji says in this chapter, you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life is very important, because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is real reality. Your life *is*. So you shouldn’t neglect it or treat it lightly. That’s why this is “the great matter of your whole life.” 
+You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dogen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life is very important, because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is [the] real reality [which] your life is. 
+
+So you shouldn’t neglect it or treat it lightly. That’s why this is “the great matter of your *whole* life.” 
 
 #### 30:14
 
@@ -90,13 +92,13 @@ That’s why next [Dogen] says:
 
 > In China there are the excellent examples of former Zen masters who cut off their arms or fingers. [...]
 
-I think this is the second patriarch, Eka Daishi Zen Master, who expressed his strong aspiration for becoming a monk, but Bodhidharma didn’t accept his will or desire immediately, so Eka Zen Master kept standing outside in winter. And finally he wanted to express how strong his intention was, so he cut off his arm. 
+I think this is [referring to] the Second Patriarch, Eka Daishi Zen Master, who expressed his strong aspiration for becoming a monk, but Bodhidharma didn’t immediately accept his will or desire, so Eka Zen Master kept standing outside in winter. And finally he wanted to express how strong his intention was, so he cut off his arm. 
 
-This example seems to be cruel or hard, we can say, in terms of usual common sense. But for Eka Daishi, for the second patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not *[unintelligible]*. [It is] beyond any ideas of understanding that situation through our common sense, because he is realizing there is [some] important matter he has to seek for. 
+This example seems to be cruel or hard, we can say, in terms of usual common sense. But for Eka Daishi, for the Second Patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not [cold]. [It is] beyond any ideas of understanding that situation through our common sense, because he is realizing there is [an] important matter he has to seek for. That is *sanzen gakudō*. 
 
-That is *sanzen gakudō*. So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing that this or that. No one. But it’s coming up. When you have very strong spirit coming up naturally, you cannot stop doing. 
+So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing this or that. No one. But it’s coming up. When you have a very strong spirit coming up naturally, you cannot stop doing. 
 
-So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. So for him it is not hard practice, or not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
+So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. For him it is not hard practice, or not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
 
 That’s why Dogen Zenji says here, “In China there are the excellent examples of former Zen masters who cut off their arms or fingers.”
 
@@ -106,52 +108,52 @@ And also he says:
 
 This is laziness. This is the nature of human beings. Unconsciously we try to justify the nature of human beings based on laziness. So, very naturally, we say that we need only practice that which is easily practiced. *Or*, somebody says we need hard practice. But why do you emphasize the need of hard practice, or why are you emphasizing the need of easy practice? You don’t yet realize how important [are the] things you have to seek for, so very naturally, you are always arguing. But if you really touch something important, energy is coming up naturally. Whatever people say, you just do it. 
 
-But what [...] you *just do* doesn’t hurt anybody. [Still], lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you ideas. 
+But what you *just do* doesn’t hurt anybody. [Still], lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you [their idea].
 
 That’s why here Dogen Zenji says it like this: “Their words are very mistaken.” [They are]. 
 
-So, if you see the example of what the ancestors did, like the Second Patriarch, maybe we say it’s impossible for us to do this in the modern age. But I don’t mean you should imitate that example. But I [also] don’t mean that you should ignore that example. Because that example happened in a natural way for the people who really realized something very important: the great matter of his or her whole life. At that time, naturally you can do it, beyond hard or easy. 
+So, if you see the example of what the ancestors did, like the Second Patriarch, maybe we say it’s impossible for us to do this in the modern age. But I don’t mean you should imitate that example. But I [also] don’t mean that you should ignore that example. Because that example happened in the natural way for the people who really realized something very important: the great matter of his or her whole life. At that time, naturally you can do it, beyond hard or easy. 
 
-#### 
+#### 39:04
 
 And also, Dogen Zenji says:
 
 > If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious. 
 
-That means, you can practice hard ... making the most of your spare moment of lying down...
+That means, you can practice hard ... making the most of your spare moments of lying down...
 
 *[Tape change.]*
 
-“If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.” So you really go on and on, making the most of your spare moments. 
+“If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.” So you really [want to] go on and on, making the most of your spare moments. 
 
-When I was at Eiheiji monastery, my position was one of the clerks. The task of the clerk in Eiheiji monastery is a very difficult one for the monks, because they couldn’t find any chance to do zazen, and to participate in other activities, because it’s pretty busy. So you have to exactly devote yourself to taking care of your task. 
+When I was at Eiheiji monastery, my position was one of the clerks. The task of the clerk in Eiheiji monastery is a very difficult one for the monks, because they couldn’t find any chance to do zazen and to participate in the other activities, because it’s pretty busy, so you have to exactly devote yourself to taking care of your task. 
 
-But *I* wanted to participate in the ceremonies and other activities; zazen. Well, if you try to find [the opportunity], you can find it, find the opportunity to do this. So I did it. Not always, because the task always forces you to do [it] instead of doing something else, so very naturally you cannot do it. But if you try to find the opportunity to do this or that, very naturally you can do it. So I did it. 
+But *I* wanted to participate in the ceremonies and other activities, and zazen. 
 
-And many people said, “You are crazy”; “you are stupid.” But, well, I just kept doing it. Because I was very moved by the spirit of zazen mentioned by Hashimoto Roshi. So I did it. 
+Well, if you try to find [the opportunity], you can find it – find the opportunity to do this. So I did it. Not always, because the task always forces you to do this instead of doing something else, so very naturally you cannot do it. But if you try to find the opportunity to do this or that, very naturally you can do it. So I did it. 
 
-So I didn’t want to do something strange, [something] apart from the other monks, but I was not against others doing. So I tried to find the opportunity to do zazen and other activities. While the other monks, my friends, slept in bed, took a nap, et cetera, [...] I went to zazen and other activities. 
+And many people said, “You are crazy”; “you are stupid.” But, well, I just kept doing it. Because I was very moved by the spirit of zazen mentioned by Hashimoto Roshi, so I did it. 
+
+I didn’t want to do something strange apart from the other monks; I was not against others’ doing. So I tried to find the opportunity to do zazen and other activities. While the other monks, my friends, slept in their bed, took a nap, et cetera, [...] I went to zazen and other activities. 
 
 So, I think that is what Dogen Zenji mentions here: “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.”
 
 >  If one thing becomes tedious, all things become tedious. 
 
-That’s very natural too. If you become very tedious of taking care of one thing in a day, so all days are completely tedious. 
+That’s very natural too. If you become very tedious [in] taking care of one thing in a day, all day is completely tedious. 
 
-For instance, I really experienced when I was in my temple [that it was tedious for me for] a certain period of time. I didn’t want to get up in the morning. Even though my master got up in the morning, I didn’t – on purpose. *[He laughs.]* So all day was my all day life ... my life in all day was completely tedious. My all day didn’t go smoothly. Always something cloudy. So I become very lazy. 
+For instance, I really experienced this when I was in my temple. I was tedious for a certain period of time: I didn’t want to get up in the morning. Even though my master got up in the morning, I didn’t. On purpose. *[He laughs.]* So my life all day was completely tedious. All day didn’t go smoothly; always something cloudy. So I became very lazy. 
 
 So that is what Dogen Zenji mentions here: “If one thing becomes tedious, all things become tedious.”
 
 > You should know that those who like easy things are, as a matter of course, unworthy of the practice of the
 Way.
 
-[For] “unworthy of the practice of the Way,” originally it says, “you are not appropriate *container* of the Way.” “Container of the Way” means ... you are incompetent as appropriate practitioner of the Way. You are a great container of the dharma, but it doesn’t appear; so that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That means practice: make it alive. 
+[For] “unworthy of the practice of the Way,” originally it says, “you are not an appropriate *container* of the Way.” [It] means you are incompetent as an appropriate practitioner of the Way. You are a great container of the dharma, but it doesn’t appear; so that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That [is] the practice: make it alive! 
 
 So [...] your body and mind is a great dharma container, but it doesn’t work. At that time you are a container but your container doesn’t work. That’s the point Dogen Zenji mentions here. 
 
-So this is [the] purpose of practice.
-
-Tomorrow I would like to talk about *bodhi-mind*. Do you have questions? 
+So this is [the] purpose of practice. Tomorrow I would like to talk about *bodhi-mind*. Do you have questions? 
 
 #### 47:34
 
