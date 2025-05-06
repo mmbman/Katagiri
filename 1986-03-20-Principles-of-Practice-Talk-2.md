@@ -217,47 +217,49 @@ Is that a little clearer for you, between *bodhicitta*, bodhi-mind, why we have 
 
 #### 1:00:35
 
-**Question:** You said, which I didn’t quite get, ... but if you participate in the first moment, then you are near to the truth or you are in the truth. But by the time it’s the second moment, it’s defiled, by observation.
+**Question:** You said – which I didn’t quite get – that if you participate in the first moment, then you’re near to the truth or you are in the truth. But by the time it’s the second moment, it’s defiled, by observation.
 
-**Katagiri Roshi:** Observation, yes. That is the practice of egolessness. Tomorrow I will explain more. 
+**Katagiri Roshi:** Right. Observation, yes. That is the practice of egolessness. Tomorrow I will explain more. 
 
-So very naturally, egolessness is coming up, how important the practice of egolessness is is naturally coming up. 
+So very naturally, egolessness is coming up. How important the practice of egolessness is is naturally coming up. 
 
 *The Awakening of Faith* also talks about this. A little bit logically, systematically. 
 
-**Question:** Is the practice of egolessness *[inaudible]*. 
+**Question:** Is the practice of egolessness *[inaudible]*
 
-**Katagiri Roshi:** Sure, constantly. The very first moment. 
+**Katagiri Roshi:** Sure. Constantly. The very first moment. 
 
-**Someone:** But that doesn’t make any room for thinking. [Does it?] Once I start thinking, that first moment is *way* back there. 
+**Question:** But that doesn’t make any room for thinking. [Does it?] Once I start thinking, that first moment is *way* back there. 
 
 **Katagiri Roshi:** *[Laughs.]* Yes.
 
-The other day, one of the students asked me, “What is the first moment, the first thought of anger?” Do you understand this? What is the first moment of anger? What is this? 
+The other day, one of the students asked me, “What is the first thought of anger?” Do you understand this? What is the first moment of anger? What is this? *[He laughs.]*
 
-That’s a very, what would you say, “tricky” question. *[He laughs.]* The first moment, first thought of the anger – very tricky, you know? You don’t understand it. Can you understand the question? I don’t understand. Because the first thought in the anger: what is the anger? What is the first thought? Completely different. 
+The first moment of anger. That’s a very, what would you say, “tricky” question. *[He laughs.]* The first moment, first thought of the anger – it’s very tricky, you know? We don’t understand it. Can you understand the question? I don’t understand [it]. Because the first thought in the anger – what is the anger? What is the first thought? Completely different. 
 
-One of the students says, “Anger has already lots of thoughts.” *[He laughs.]* She said, “Yes, exactly.” But he is asking what is the *first* thought of anger? What is this? 
+One of the students says, “Anger has already lots of thoughts.” *[He laughs.]* Yes, exactly. But he is asking what is the *first* thought of anger? What is this? 
 
 No concept of anger. It’s completely nothing. 
 
-[...] The root of the anger is nothing. So in other words, anger itself possesses great power to be free from anger itself. This is the truth. That’s why Vimalakirti talks about this: from where [does] the anger, good or bad, come? He says it comes from *no-root*. 
+[...] The root of the anger is nothing. So in other words, anger itself possesses great power to be free from anger. This is the truth. That’s why Vimalakirti talks about this: from where [does] the anger, good or bad, come? He says it comes from *no-root*. 
 
-So *no-root* means the first moment, first thought of anger. You have to come back to, not the idea, not as an idea, you have to come back to that *source* of anger – practically. That’s pretty hard. But it’s very simple. That is the next issue, *egolessness*. 
+So *no-root* means the first moment, first thought of anger. You have to come back to, not as an idea, you have to come back to that *source* of anger, practically. That’s pretty hard. But it’s very simple. That is the next issue, *egolessness*. 
 
 So you mentioned almost the same thing. Is that clear for you? 
 
-**Someone:** Mm, I don’t really track everything.
+**Same person:** Mm, I don’t really track everything.
 
-**Katagiri Roshi:** We have been always involved in the world after second [thought]... well, broadly speaking, okay? And then we completely forget the existence of the first thought. Or, even though we know, we try to ignore it, because it’s impossible for us. We believe it seems to be impossible to practice it. 
+**Katagiri Roshi:** We have been always involved in the world after the second [thought]... well, broadly speaking, okay? And then we completely forget the existence of the first thought. Or, even though we know, we try to ignore it! Because it’s impossible for us; we believe it seems to be impossible to practice it. 
 
-That’s why very naturally people become very spiritual. And then people become [...] spirituality, ignoring practicing with the body. Because it’s impossible; we believe it seems to be impossible to practice, to be in the first moment, first thought. That’s why [we say], let’s jump it. *[He laughs.]* That means chanting, chanting, chanting... creating your emotional energies, and then plunging into one object, constantly. They are ignoring your intellectual sense, and conscious function, and et cetera. Emotionally you are plunging into it. *[He laughs.]* This is the usual way. But that is really dangerous, you know? 
+That’s why very naturally people become very spiritual. And then people become [clinging to] our spirituality, *[he laughs,]* ignoring practicing with the body. Because we believe it seems to be impossible to practice, to be in the first moment, first thought. That’s why [we say], “Let’s jump it.” *[He laughs.]* That means chanting, chanting, chanting... creating your emotional energies, and then plunging into one object, constantly. They are ignoring your intellectual sense, and conscious function, et cetera. Emotionally you are plunging into it. *[He laughs.]* This is the usual way. But that is really dangerous, you know? 
 
 Is that alright? 
 
-So that’s why the *Saddharma Pundarika Sutra* says, try to remember you of your past life. “Past life” means come back to the source. The first moment of your breath. Let’s come back. That first moment is exactly the past life extended. It’s really [pervading]. If you are in the first moment, you can see the *whole* picture of the past. That is the first moment of your breath. 
+**Same person:** Mm-hmm.
 
-So reading the past life doesn’t mean what you did in the past. *[He laughs.]* That makes you crazy. No, I don’t think so. Probably something you can... it is not the first important point. So you have to be in the first thought. At that time you can see the panorama picture of your past life, and also you can see the panorama picture of your future. That’s why you can create your life. Very creative; creativity. 
+**Katagiri Roshi:** So that’s why the *Saddharma Pundarika Sutra* says, try to remember you of your past life. “Past life” means come back to the source. The first moment of your birth – let’s come back. That first moment is exactly the past life extended. It’s really [pervading]. If you are in the first moment, you can see the *whole* picture of the past. That is the first moment of your birth. 
+
+So reading the past life doesn’t mean what you did in the past. *[He laughs.]* That makes you crazy. No, I don’t think so. [...] It is not the first important point. You have to be in the first thought – at that time you can see the panorama picture of your past life, and also you can see the panorama picture of your future. That’s why you can create your life. Very creative; creativity. 
 
 **Someone:** First thought is related to *now*, to experience. 
 
