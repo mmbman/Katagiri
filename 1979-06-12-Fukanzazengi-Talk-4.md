@@ -58,7 +58,7 @@ For such people, they never think of the significance of zazen, which causes all
 
 There is a Zen story in the *Blue Cliff Record*, the forty-sixth case. This is a very famous Zen [koan](glossary#koan): 
 
-> “[Kyosei](glossary#kyosei) [Zen Master](glossary#zen-master) asked a monk, “What sound is that outside the gate?” 
+> “Kyosei Zen Master asked a monk, “What sound is that outside the gate?” 
 > 
 > The monk said, “The sound of raindrops.”
 > 
