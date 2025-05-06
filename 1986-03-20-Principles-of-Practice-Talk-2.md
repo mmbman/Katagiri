@@ -267,51 +267,57 @@ So reading the past life doesn’t mean what you did in the past. *[He laughs.]*
 
 #### 1:08:25
 
-**Question:** Hojo-san, do you remember the koan about a Zen Master... listening to raindrops. ... “I hear the sound of raindrops.” I don’t know exactly what he said, I think he said, “I *almost* don’t hear.” ... How does that relate...
+**Question:** Hojo-san, do you know the koan about a Zen Master and his discipline and it had something to do with listening to raindrops? And I think the teacher asked him if he heard something outside, and the disciple said, “I hear the sound of raindrops.” And I can’t remember what [happened next] but [...] I think he said, “I *almost* don’t hear.” *[Inaudible.]* How does that relate...
 
-**Katagiri Roshi:** I don’t remember exactly what he said. *[He laughs.]* I think he doesn’t say almost I don’t listen. I think he says almost I make a mistake? Well, I don’t remember exactly. Let me check, alright? 
+**Katagiri Roshi:** I don’t remember exactly what he said. I think he doesn’t say “I almost don’t listen,” I think he says, “I almost [don’t] make a mistake.” But I don’t remember exactly. Let me check, alright? *[He laughs.]*
 
-Well, anyway, “almost” means the Zen master is always right in the middle of the first moment. So that’s why if you say, “I can hear,” it’s already the second thought. But if he says, “I don’t listen,” it’s already attached to the truth. So whatever he says, it doesn’t hit the mark. So that’s why he says, “I *almost*.” Do you [understand]? *[He laughs softly.]* That’s what Seijo said. 
+Well, anyway, “almost” means the Zen master is always right in the middle of the first moment. That’s why if you say, “I can hear,” it’s already the second thought. But if he says, “I don’t listen,” it’s already attached to the truth. So whatever he says, it doesn’t hit the mark. So that’s why he says, “I *almost*.” Do you [understand]? *[He laughs softly.]* That’s what [Kyosei] said. (*Transcriber’s Note:* This story is in [*Blue Cliff Record* Case 46](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1).)
 
-Or, look at the second case of the *Blue Cliff Record*. I think Nansen talked with the monk, the monk asking him, “What is the truth?” Nansen constantly saying, “I know the truth.” So what is completely pure and nothing to attach to. So continually the monk asking, “What is the truth? Can you realize, can you be there?” Always he says, “I don’t know.” “I don’t know” means, being in the first moment is not *I* can be in the first moment. If you say, “I am always in the first moment,” that is already attachment. So being in the first moment is constantly you have to *do it*. Every time when you see each aspect of everydayness – gassho – that’s it. Simply. That is egolessness, practice. 
+Or, look at the second case of the *Blue Cliff Record*. I think a monk [asked Jōshū], “What is the truth?” [Jōshū is] constantly saying, “I know the truth” – so what is completely pure and nothing to attach to? So continually the monk asking, “What is the truth? Can you realize, can you be there?” Always [Jōshū] says, “I don’t know.” “I don’t know” means that being in the first moment is not *I* can be in the first moment. If you say, “I am always in the first moment,” that is already attachment. Being in the first moment is constantly you have to *do it*, every time when you see each aspect of everydayness. Gassho – that’s it. Simply. That is [the practice of] egolessness. 
 
-So he says, “I don’t know.” And then the monk says, “If you don’t know, how do you know?” *[He laughs.]* How do you know you are there? Do you understand? And then Nansen says, “You are pretty smart. So bow and leave. Go away.”
+So he says, “I don’t know.” And then the monk says, “If you don’t know, how do you know?” *[He laughs.]* How do you know you are there? Do you understand? And then [Jōshū] says, “You are pretty smart. So bow and leave. Go away.” 
 
-That’s pretty good, isn’t it? Our consciousness is constantly talking about this one. How do you know, if you don’t know? That’s a pretty smart question. We are interested, we want to know that point: how do we know if we don’t know? But that is reality in the first moment. 
+That’s pretty good, isn’t it? Our consciousness is constantly talking about this one. How do you know, if you don’t know? That’s a pretty smart question. We are interested, we want to know that point: how do we know if we don’t know? *[He laughs.]* But it is reality; the first moment. 
 
-**Question:** How can it be a first moment, if karma is from the beginningless time? 
+#### 1:12:50
+
+**Question:** Hojo-san? How can it be a first moment, if karma is from the beginningless time? 
 
 **Katagiri Roshi:** If karma...
 
 **Questioner:** Karma is from beginningless time. How can there be a first moment?
 
-**Katagiri Roshi:** If karma exists beginninglessly, I think karma is not something fabricated by idea. It’s very a pure sense, real pure sense of karma. So, no conception of the karma. That is called beginningless. 
+**Katagiri Roshi:** If karma exists beginninglessly, I think karma is not something fabricated by ideas. It’s very a pure sense, the real pure sense of karma. So, no conception of the karma. That is called *beginningless*. 
 
-But when you create an idea, so-called *karma*, it is already in terms of the time process you create. You see the karma. You see some situation of existence, so we put the name on it: “that is called *karma*.” So already you are involved in the time process. But [that] real karma exists beginninglessly means completely beyond the time process; because you cannot trace back, but it exists here. *It exists here* means already it is connected with the past, but we cannot trace back, but it is really here. That means you have to really come back to the first moment, the first thought of the karma you can see. Because there is no other way. 
+But when you create an idea, so-called *karma*, it is already in terms of the time process. You create [the karma], you see the karma. You see some situation of existence, so we put the name on it: “that is called *karma*.” So already you are involved in the time process. But [that] real karma exists beginninglessly means completely beyond the time process; because you cannot trace back to [it], but it exists here. *It exists here* means already it is connected with the past, but we cannot trace back. But it is really here. That means you have to really come back to the first moment, the first thought of the karma you can see. Because there is no other way. 
 
-So if you want to know the truth through your birth, how do you know? You have to use your five *skandhas*, and the six senses, and six sense objects, et cetera. Without those, we cannot know. There is no other way. 
+So if you want to know the truth through your birth – how do you know? You have to use your five *skandhas*, okay? And the six senses, and six sense objects, et cetera. Without those, we cannot know. There is no other way. 
 
-So using and dealing with those words, and then we have to see the real truth. How? That means you have to really come back to the source of the five senses, five senses objects, and the five *skandhas*. In other words, the real source of your birth. The very first thought of the birth. You have to come back. That is exactly connected with the truth. 
+So using and dealing with those [words], and then we have to see the real truth. How? That means you have to really come back to the source of the five senses, five senses objects, and the five *skandhas*. In other words, the real source of your birth. The very first thought of the birth. You have to come back. That is exactly connected with the truth. 
 
-And then that source is temporarily called *beginningless*. Because we don’t know. It’s beginningless. The first moment of your birth is exactly existent beginningless. [...] *Beginningless* means cutting off the intellectual sense, but I don’t mean this one. [Cutting off the] intellectual means beyond intellectual you have to realize something real there. 
+And then that source is temporarily called *beginningless*. Because we don’t know; it’s beginningless. The first moment of your birth is exactly existent, beginningless[ly]. But if I say [it exists beginninglessly, that] means cutting off the intellectual sense, but I don’t mean this one. But intellectual means *beyond* intellectual you have to realize something real there. 
 
-And then after this, we can see. When you are there, when you put your body and mind *right* in the first moment, then you can see the panorama picture. Just like being on the top of the IDS tower, and then you can see the panorama picture of the Twin Cities area. 
+And then after this, we can see. When you are there, when you put your body and mind *right* in the first moment, then you can see the panoramic picture. Just like being on the top of the IDS tower, and then you can see the panoramic picture of the Twin Cities area. 
 
-But intellectually, if you want to *know* the beginning of the panorama picture of the Twin Cities area, you have to research, following the references, you know? Instead of being present on the top of the IDS tower. So very naturally, intellectually, we want to research. [That] seems to trace back to the beginning, but I don’t think you can see the total panoramic picture of the Twin Cities area through that intellectual understanding. Through the intellectual understanding, you seem to trace back to the source, but it is still intellectual. You can see the picture, but it is painted. So very naturally, the panorama picture of the Twin Cities area is [that] you have to put your body and mind on the top of the IDS tower, practically. It means the first moment of your birth. And then you can see. 
+But intellectually, if you want to *know* the beginning of the panoramic picture of the Twin Cities area, you have to research, following the references, you know? Instead of being present on the top of the IDS tower. So very naturally, intellectually, we want to research. That seems to trace back to the beginning, but I don’t think you can see the total panoramic picture of the Twin Cities area through that intellectual understanding. Through the intellectual understanding, you seem to trace back to the source, but it is still intellectual. You can see the picture, but it is painted. So very naturally, the [real] panorama picture of the Twin Cities area is [that] you have to put your body and mind on the top of the IDS tower, practically. It means the first moment of your birth. And then you can see. 
 
 This is the practice – our practice. 
+
+#### 1:18:25
 
 **Question:** Hojo-san, what do you mean by the first moment of your birth?
 
 **Katagiri Roshi:** The first moment of your waking up. *[He laughs.]* Same thing. 
 
-**Someone:** It could be over and over and over again, it’s not a specific birth...
+**Someone:** And it could be over and over and over again, it’s not a specific birth... *[inaudible]*.
 
-**Katagiri Roshi:** The first moment of your birth is very vast, the world. It is not only connected with your parents and you. It is connected with many, visibly and invisibly. My first moment, thought of my existence right now, is very vast. It’s connected with Japan, Minneapolis, [which] I can see, but many countries, many planets, many beings I cannot see. This is the source of my existence. This is the first thought of my existence right now. Is that clear? 
+**Katagiri Roshi:** The first moment of your birth is a very vast [...] world. It is not only connected with your parents and you. It is connected with many [things], visibly and invisibly. My first moment, thought of my existence right now, is very vast. It’s connected with Japan, and Minneapolis, [which] I can see, but many countries, many planets, many beings I cannot see. This is the source of my existence. This is the first thought of my existence right now. Is that clear? 
 
-Would you say again your question? 
+#### 1:20:00
 
-**Question:** My question has to do with conditioning. The things that we do because of previous things that have happened. And I’m wonder whether the first moment is free from conditioning. 
+**Katagiri Roshi:** Would you say again your question? 
+
+**Question:** My question has to do with conditioning. The things that we do because of previous things that have happened. And I’m wondering whether the first moment is free from conditioning. 
 
 **Katagiri Roshi:** Mm-hmm. Yes. Exactly.
 
