@@ -101,25 +101,25 @@ But in the spiritual world, we try to keep all things in peace and harmony. That
 
 #### 28:00
 
-Next, I think in order to arouse or awaken to the bodhi-mind, Dogen Zenji says we have to awaken [to impermanence], we have to [have insight into] impermanence. The truth, how transient the world is, how fragile human life is.
+Next, I think in order to arouse or awaken to the bodhi-mind, Dogen Zenji says we have to awaken [to impermanence], we have to [have insight into] impermanence – the truth [of] how transient the world is, how fragile human life is.
 
 In Number 14 of Book 2 [of *Record of Things Heard*], Dogen Zenji also says:
 
 > And to arouse this determination, it is necessary to earnestly contemplate the impermanence of the world.
 
-This determination is to continue to practice arousing bodhi-mind, arousing the truth we are Buddha. So it is necessary to earnestly contemplate the impermanence of the world...
+“This determination” is to continue to practice arousing bodhi-mind, arousing the truth we are Buddha. So, “it is necessary to earnestly contemplate the impermanence of the world.” ...
 
 > “This task is not something which is to be considered as a temporarily prescribed method of contemplation. And it is not that you should invent something nonexistent to think about. It is the truth in reality right before our eyes.”
 
-This is the insight of impermanence. It’s not an idea we can try to think of. There is no particular pattern we can be mindful of, so-called impermanence. No. Impermanence is something *real*, right in front of you. In other words, your body’s so-called five *skandhas* are nothing but impermanent. They are transient. 
+This is the insight of impermanence. It’s not an idea we can try to think of. There is no particular pattern we can be mindful of, so-called *impermanence*. No. Impermanence is something *real*, right in front of you. In other words, your body’s so-called five *skandhas* are nothing but impermanent. [They are] transient. 
 
-So still we can see impermanence objectively: five *skandhas*. We understand intellectually. But we don’t touch directly how impermanent each of the five *skandhas* are. We don’t. We are always looking at impermanence objectively. 
+Still we can see impermanence objectively: five *skandhas*. We understand intellectually. But we don’t touch directly how impermanent each of the five *skandhas* are. We don’t. We are always looking at impermanence objectively. 
 
 So that’s why Dogen Zenji says, “This task is not something which is to be considered as a temporarily described method of contemplation. It is not that you should invent something non-existent to think about. It is the truth in reality right before your eyes.” 
 
-But impermanence [...] means the truth that all are moving. Usually we say *change*, continuous change. So anyway, all are moving. Without exception, all are moving, including [both] physical and mental state of beings, all are moving. But all are not moving separately – all are moving interpenetrated, interconnecting with each other. This is moving, constantly moving. 
+[...] Impermanence means the truth that all are moving. Usually we say *change*, continuous change. So anyway, all are moving. Without exception, all are moving – including [both] physical and mental state of beings, all are moving. But all are not moving separately – all are moving interpenetrated, interconnecting with each other. This is moving, constantly moving. 
 
-For instance, if I see the world, immediately the world looks at me. So I cannot see the world just in terms of *my* ideas. If I see the winter, immediately the winter looks at me. So very naturally, I can handle the world which I have seen, but on the other hand, there is a world I cannot handle, because I am a being watched by the world. So how can I deal with it? I don’t know. How the world, winter, looks at me, I don’t know. But this is exactly [that] the moment when I look at the world, the world looks at me, simultaneously. 
+For instance, if I see the world, immediately the world looks at me. So I cannot see the world just in terms of *my* ideas. If I see the winter, immediately the winter looks at me. So very naturally, I can handle the world which I have seen, but on the other hand there is a world I cannot handle, because I am a being watched by the world. So how can I deal with it? I don’t know. How does the world, winter, look at me? I don’t know. But this is exactly [that] the moment when I look at the world, the world looks at me, simultaneously. 
 
 In other words, that is the teaching of *interdependent co-origination*, we say. In other words, *everything*, without exception, cannot exist without [...] connecting with you. 
 
@@ -127,81 +127,89 @@ So even though you have never been to Japan, Japan exists. As long as Japan exis
 
 In other words, there is nothing which exists without relating with your recognition, cognition. So always, all are related with you. Japan, and Nicaragua, and the planets which you have never been to, all the air, skies, all are connected with you. 
 
-So from this point, all the world holds a moving means *you* are moving. Why? Because *moving* means to dichotomize, separate things in two. And then they can look at each other simultaneously. 
+So from this point, all [that the world holds] is moving means *you* are moving. Why? Because *moving* means to dichotomize things in two, separate things in two. And then they can look at each other, simultaneously. 
 
-For instance, I look at myself. And then if I look at myself, I can think who I am. And then next I can get the result, and then I try to judge the result which I have seen. And then next I can evaluate. And then next I can feel what I can feel, like or dislike, something like that. In that process of cognition, we are always looking at ourself objectively. Is that clear? We always look at ourselves objectively, at a little distance. It’s very quick.
+For instance, I look at myself. And then if I look at myself, I can think who I am. And then next I can get the result, and then I try to judge the result which I have seen. And then next I can evaluate. And then next I can feel what I can feel, like or dislike – something like that. In that process of cognition, I am always looking at myself objectively. Is that clear? We always look at ourselves objectively, at a little distance. It’s very quick.
 
-That’s why Yogacara [is] always looking at the mind in the four ways: subject and object, and also the third one is corroborating the subject and the object. And the fourth one is corroborating the third one. In other words, the third one corroborates the existence of the subject and the object – so-called, “this is Katagiri.” But on the other hand, the fourth one is corroborating the third. In other words, trying to get the proof, what the result is, always. Temporarily Yogacara divided the functioning of mind like this, in four ways. But practically speaking, constantly, countlessly, in many ways, the mind functions like that. 
+That’s why Yogacara [is] always looking at the mind in four ways: subject, and object, and also the third one is corroborating the subject and the object. And the fourth one is corroborating the third one. In other words, the third one corroborates the existence of the subject and the object – so-called, “This is Katagiri.” But on the other hand, the fourth one is corroborating the third. In other words, trying to get the proof, what the result is, always. Temporarily Yogacara divided the functioning of mind like this, in four ways. But practically speaking, constantly, countlessly, in many ways, the mind functions like that. 
 
 So that is called *dualism*, *dichotomy*. That is called *moving*. Mind is vibrating. 
 
-So if I see the world, immediately my mind moves. To see the world means the vibration of the mind. My mind is vibrating, and then I can see the world. 
+So if I see the world, immediately my mind moves. To see the world means the vibration of the mind. My mind is vibrating, and then I can see the world. And then, the world simultaneously is vibrated. And then my mind is vibrated. 
 
-And then, the world simultaneously is vibrated. And then my mind is vibrated. So simultaneously, always there is a vibration of the mind between the world and I. Between I and I, always. This is always looking at something objectively. 
+So simultaneously, always there is a vibration of the mind between the world and I. Between I and I, always. This is always looking at something objectively. 
 
-So the vibration of the mind is also vibrating, in many ways. Some vibration of the mind is very coarse. Some vibration of the mind is very fine. But among the coarse, the nature of the vibration [is] still the coarser of the coarse vibration of the mind – *[he laughs]* – this is really [the] usual attachment towards self. And the finer of the coarse vibration of the mind is attachment to... well, objects, dharma[s]. If you do zazen, you seem to be free from the self and also objects, but when you are out of the meditation, you pretty easily attach to the dharma[s], objects. Sensuous objects, so-called red or yellow, like or dislike, and something like that.
+#### 39:36
+
+So the vibration of the mind is also vibrating in many ways. Some vibration of the mind is very coarse. Some vibration of the mind is very fine. But among the coarse nature of the vibration [is] still the coarser of the coarse vibration of the mind – *[he laughs]* – this is really [the] usual attachment towards self. And the finer of the coarse vibration of the mind is attachment to... well, objects, dharma[s]. If you do zazen, you seem to be free from the self and also objects, but when you are out of the meditation, you pretty easily attach to the dharma[s], objects. [Sensuous] objects, so-called red or yellow, like or dislike, and something like that.
 
 *[Tape change.]*
 
-... [Various *isms*,] existentialism, something like that. Those kind of things are called *dharma attachment*. [It’s] the finer of the coarse vibration of the mind. And then you can create some defilements. If you attach to your *ism*, well, *ism* itself is fine, but you create a real problem. 
+... [Various *isms*,] existentialism, something like that. Those kind of things are called *dharma attachment*. [It’s] the finer of the coarse vibration of the mind. And then you can create some defilements. If you attach to your *ism* – well, the *ism* itself is fine, but you create a real problem. 
 
-And also, among the fine vibration of the mind, still there are the coarser of the fine vibration of the mind, and also the finer of the fine vibration of the mind. You create some problem: a big question, created by the finer of the fine vibration of the mind. This is completely... we don’t know what it is. 
+And also, among the fine vibration of the mind, still there are the coarser of the fine vibration of the mind, and also the finer of the fine vibration of the mind. You create some problem: a *big* question, created by the finer of the fine vibration of the mind. This is completely... we don’t know what it is. 
 
-For instance – this is according to the *Awakening of Faith*, I [talked about this] last time. In order to reach the *tathagata* stage or abode, you have to be free from the finer of the fine vibration of the mind. There is a defilement created by this. 
+For instance... this is according to the *Awakening of Faith*, I [talked about this] last time. In order to reach the *tathagata* stage or abode, you have to be free from the finer of the fine vibration of the mind. There is a defilement created by this. 
 
-That means, yesterday I said: when you wake up, what you have recognized is after the first moment of awakening – awake, wake up – but you don’t know the very beginning of the first thought, first waking up. You don’t know what it is. Because it is [the] very finer of the fine vibration of the mind. 
+That means, yesterday I said: when you wake up, what you have recognized is after the first moment of awakening, waking up. You don’t know the very beginning of the first thought, first waking up. You don’t know what it is. Because it is [the] very finer of the fine vibration of the mind. 
 
 Because this is... the partition between the truth, *bodhi*, the enlightened state of being, and also the unenlightened state of being. There is a very thin partition there, between. Well, temporarily I may say so, in order to explain, but actually [there is] no partition. 
 
-So when you sleep, [...] you don’t know whether there is sleeping or not, because you are one with sleep, so no concept of the sleep. So it’s exactly sleep. You become one with the nature of the sleep, which is called no trace of the sleep. And then you participate in the truth. But on the other hand, when you wake up, immediately you can go to the unenlightened world – passing through very quickly, like this. At that time, you miss this partition. This is the first thought, the first moment. Not the second; the *very* first moment of waking up. But the conception of the waking up is something you can recognize *after* the first moment; so-called second moment, or third moment, and fourth moment, et cetera. And then we say, “Ah, I wake up.” But we completely forget this very first moment. And also we completely ignore [it]. 
+So when you sleep, [...] you don’t know whether there is sleeping or not, because you are one with the sleep, so no concept of the sleep. So it’s exactly sleep; you become one with the nature of the sleep, which is called no trace of the sleep. And then you participate in the truth. 
 
-But this first moment is very important, because this is the moment you can dichotomize the world into two. From the truth, from the enlightened world, and the unenlightened world. [...] Dichotomize. 
+But on the other hand, when you wake up, immediately you can go to the unenlightened world – passing through very quickly, *[he makes a shooting noise]*, like this. At that time, you miss this partition. This is the first thought, the first moment. Not the second; the *very* first moment of waking up. The conception of the waking up is something you can recognize *after* the first moment. [It is the] so-called second moment, or third moment, or fourth moment, et cetera. And then we say, “Ah, I wake up.” But we completely forget this very first moment, and also we completely ignore [it]. 
 
-[...] We don’t know why we do this. Okay? *[He laughs.]* We don’t know why we dichotomize the world into two, from enlightened state to unenlightened state. We don’t know exactly. But when you realize it, already you are in the unenlightened world. That is, at that time we say, “I have woken up.” That’s it. 
+But this first moment is very important, because this is the moment you can dichotomize the world into two. From the truth, the enlightened world, [to] the unenlightened world. [...] Dichotomize. 
 
-So the moment when you wake up, it’s already you are [in the] unenlightened world. And then the people always attach to that world, [...] forgetting the first moment which is exactly the same as the enlightened world. We forget. But this first moment is very important, because this is the very first moment, when you can see how the world is structured between the enlightened and unenlightened. [The] enlightened world and unenlightened world [are] always connected – interconnected, interpenetrated. So it’s one. But we don’t know why we dichotomize in order to be in the unenlightened world. But, already we do it. We have [already] done it in that way. 
+[...] We don’t know *why* we do this. Okay? *[He laughs.]* We don’t know why we dichotomize the world into two, from enlightened state to unenlightened state. We don’t know exactly. But when you realize it, already you are in the unenlightened world. That is, at that time we say, “I have woken up.” That’s it. 
+
+So the moment when you wake up, it’s already you are [in the] unenlightened world. And then the people always attach to that world, [...] forgetting the first moment which is exactly the same as the enlightened world. We forget. But this first moment is very important, because this is the very first moment, when you can see how the world is structured between the enlightened and unenlightened. [The] enlightened world and unenlightened world [are] always connected – interconnected, interpenetrated. So it’s one. We don’t know why we dichotomize in order to be in the unenlightened world. But, already we do it. We have [already] done it in that way. 
 
 So that is called, we say, *ignorance*. 
 
-So from where that ignorance comes, we don’t know. But it’s really there. Every day, there [it] is. 
+From where that ignorance comes, we don’t know. But it’s really there. Every day, there [it] is. 
 
-And then Buddhism [does not emphasize trying] to discover the first stage from where the *ignorance* comes. No. But we try to realize how important this first moment is, how this ignorance is working, instead of liking or disliking [it]. 
+And then Buddhism [does not emphasize trying] to discover the first stage from where the *ignorance* comes. No. But [instead] we try to realize how important this first moment [is], how this ignorance is working, instead of liking or disliking [it]. In other words, what makes it possible for the ignorance to exist? Well, still you don’t know exactly, but like that for instance. 
 
-In other words, what makes it possible... for the ignorance to exist? Well, still you don’t know exactly, but for instance, like that. Only humans can reflect upon the shadow of the self. Just like [one of Aesop's Fables]. The dog barks at his reflection in the water; he barks at the shadow of himself. This is a characteristic of human beings; it means we reflect on ourselves. In other words, we look at ourselves objectively. That is [to] constantly reflect. 
+Only humans can reflect upon the shadow of the self. Just like [one of Aesop's Fables]: the dog barks at his reflection in the water; he barks at the shadow of himself. This is a characteristic of human beings. It means we reflect on ourselves. In other words, we look at ourselves objectively; that is constantly [to] reflect. And then, we try to know what makes it possible for [the] reflection to be. In other words, what is the source of reflection, which makes it possible to exist? 
 
-And then, we try to know what makes it possible for reflection to be. In other words, what is the source of reflection, what makes it possible to exist? In other words, what is the source of letting the mind move? What do we mean? What is it? What makes it possible for the mind to move? This is [what] Buddhism tries to understand constantly. 
+In other words, what is the *source* of letting the mind move? What do we mean? What is it? What makes it possible for the mind to move? This is [what] Buddhism tries to understand constantly. 
 
-Then finally, we say this is *ignorance*. *Ignorance* makes the mind move. Ignorance makes the mind reflect the self. But this ignorance is very vague. But practically, it’s very clear. 
+Then finally, we say this is *ignorance*. Ignorance makes the mind move; ignorance makes the mind reflect the self. 
 
-So we don’t know from where it comes. So Buddhism says it [is] beginningless. This is a very interesting point. Beginninglessness means you cannot chase after [it], chase back to the beginning of the ignorance from where it comes. You cannot trace back. But even though you cannot trace back, look at reality, there is an ignorance. Even though [we don’t know] from where it comes, even though we don’t know where it is going to, [still] it’s really there. We can realize that ignorance very intellectually – sharp, very sharp intellectual sense. You can see it. 
+But this *ignorance* is very vague. But practically, it’s very clear. 
 
-But also that ignorance is exactly... in other words, what is the place where that ignorance exists? This is the first moment. It is in the first moment. 
+So we don’t know from where it comes. So Buddhism says it [is] beginningless. This is a very interesting point.
 
-The first moment is very touchy. If you touch it, it’s already *unenlightened world*. If you don’t [touch it], it’s [living] quietly; it’s melted away into the enlightened world. So ignorance [is] melted away into the enlightened world, but if you touch it, it becomes ignorance immediately. So it always exists in the first moment, the very first moment, between the enlightened and unenlightened world. This is called ignorance. 
+*Beginninglessness* means you cannot chase after [it], chase back to the beginning of the ignorance, from where it comes. You cannot trace back. But even though you cannot trace back, look at reality: there is ignorance. Even though [we don’t know] from where it comes, even though we don’t know where it is going to, [still] it’s really there. We can realize that ignorance a little bit intellectually – sharp, very sharp intellectual sense. You can see it. 
 
-So ignorance is exactly teaching at the bottom, the very first moment of the unenlightened world, and also the very end of the truth, the enlightened world, simultaneously. So the bottom of the ignorance is really something pure. But on the other hand, the beginning of the ignorance is not pure, it’s already defiled. So that’s why ignorance is something very touchy, very touchy. Very delicate. 
+And also that ignorance is exactly... in other words, what is the place where that ignorance exists? This is the first moment. It is in the first moment. 
+
+The first moment is very “touchy.” If you touch it, it’s already *unenlightened world*. If you don’t [touch it], it’s [living] quietly; it’s melted away into the enlightened world. 
+
+So ignorance [is] melted away into the enlightened world, where if you touch it, it becomes ignorance immediately. So it always exists in the first moment, the very first moment, between the enlightened and unenlightened world. [...]
+
+So ignorance is exactly teaching at [...] the very first moment of the unenlightened world, and also the very end of the truth, the enlightened world, simultaneously. So the bottom of the ignorance is really something pure. But on the other hand, the beginning of the ignorance is not pure, it’s already defiled. So that’s why ignorance is something very touchy, very touchy. Very delicate. 
 
 So very naturally, we have to realize it. We have to realize that one. 
 
 So that’s why impermanence means moving, constantly moving. Impermanence is the truth that all are moving. 
 
-So let’s [look at] what is the source of the moving – in other words, what makes it possible for all to move, so-called impermanence? Then finally, we reach so-called *ignorance*. So what is the ignorance? 
+So let’s [look at] what is the source of the moving – in other words, what makes it possible for all to move, so-called *impermanence*? Then finally, we reach so-called *ignorance*. 
 
-Ignorance is beginningless. It’s there, constantly. “It’s there” means you cannot go this way or that way; it’s always there. But in a moment, first moment, there. And then when you attach to this one, second moment, then ignorance creates a different world. If you’re really there in the real first moment, you are participating in the truth. 
+So what is the ignorance? Ignorance is beginningless. It’s there, constantly. “It’s there” means you cannot go this way or that way; it’s always there. But in a moment, the first moment, there. And then when you touch this one, second moment, then ignorance creates a different world. If you’re really there in the real first moment, you are participating in the truth. 
 
-So that is very touchy. That’s why this is called *observation of impermanence*. In other words, how impermanence is fabricated. We try to know. 
+So that is very touchy. That’s why this is called *observation of impermanence*. In other words, we try to know how impermanence is fabricated. This is the Buddha’s teaching, constantly – through philosophy, through the mental situation, and also through the *practice*; that is called *zazen*. Zazen allows you to come back to that source. 
 
-This is the Buddha’s teaching, constantly – through the philosophy, through the mental situation, and also through the *practice*. That is called *zazen*. Zazen allows you to come back to that source. 
+That’s why the *Lotus Sutra* always [explains] why the Buddha teaches the Buddha’s teaching, the *Saddharma Pundarika Sutra*: because Buddha wants you to return to the source of your birth. It means, how you were born – in other words, how your mind moved. 
 
-That’s why the *Lotus Sutra* always [says] why the Buddha teaches the Buddha’s teaching, the *Saddharma Pundarika Sutra*: because Buddha wants you to return to the source of your birth. It means, how you were born – in other words, how your mind moved. 
-
-So you have to come back to that source. This is our practice. That is called *observation or insight of impermanence*. 
+So you have to come back to that source. This is our practice. That is called *observation of impermanence* or *insight of impermanence*.
 
 But people don’t know exactly. Always they ignore that first moment and are attaching to the world after second [moment]. That’s why we constantly create lots and lots of problems. 
 
-But Buddha knows this. That’s why impermanence means how pitiable human beings are. That’s why constantly you have to be compassionate to all sentient beings. We always do it. 
+But Buddha knows this. That’s why *impermanence* means how pitiable human beings are. That’s why constantly you have to be compassionate to all sentient beings. We always do it. 
 
-So impermanence [means] – simply speaking, according to everydayness – Dogen Zenji says you have to be compassionate. You have to give sympathy to *all*.
+So impermanence [means] – simply speaking, according to everydayness – Dogen Zenji says you have to be compassionate, you have to give sympathy to *all*.
 
 Maybe tomorrow I would like to [talk about] *egolessness* more. Today, that’s all. Do you have questions?
 
