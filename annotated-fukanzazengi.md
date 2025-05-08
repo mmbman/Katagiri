@@ -18,7 +18,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
 - The meaning of *shō* (證) – often translated as “realization” – should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment.” See [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5).
-- The oneness of practice and realization is often presented as a key point of Dogen, if not his key point, period. On the statement “to think practice and realization are not one is a heretical view” from *Bendowa*, see [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4).
+- The oneness of practice and realization is often presented as a key point of Dogen’s teaching, if not his key point, period. On the statement “to think practice and realization are not one is a heretical view” from *Bendowa*, see [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4).
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
 
@@ -48,13 +48,9 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > Therefore, put aside the intellectual practice of investigating words and chasing phrases, and learn to take the backward step that turns the light and shines it inward. 
 
-- “Learn to take the backward step that turns the light and shines it inward”: this is perhaps one of the most challenging lines to reliably interpret. The meaning is probably simple, and yet, common interpretations are problematic. Particularly, any interpretation that approaches “shutting out the world” does not line up well with Katagiri Roshi’s or Dogen’s teachings.
-- KR: “To learn the backward step that turns your light inwardly to illuminate yourself”
-   - “Learn the backward step” means to “return to the very inception of the moment.” It does not mean to withdraw, nor to escape from. See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4).
-   - See [“Principles of Practice – Talk 5”](1986-03-23-Principles-of-Practice-Talk-5)
-   - See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2) - discussed as the function of *prajna*.
-- KR: “To learn that one withdraws one step, and turns the light inward on oneself”
-   - See [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life) - discussed in relationship to *eko*, “dedicating the merit.” (Honestly, I’m not sure yet exactly what’s going on there. It will probably make sense eventually.)
+- “Learn to take the backward step that turns the light and shines it inward”: Katagiri Roshi translates this in slightly different ways. One way is, “To learn the backward step that turns your light inwardly to illuminate yourself.” This is perhaps one of the most challenging lines to interpret reliably. The meaning is presumably simple, and yet common interpretations veer toward the problematic; particularly any interpretation that approaches “withdrawing from the world” does not quite line up with Katagiri Roshi’s or Dogen’s teachings. “The backward step” means to “return to the very inception of the moment.” It implies “cutting off the root of discriminative thought.” It does not mean to withdraw, nor to escape from. In fact, KR implies it’s closer to “let’s go.” See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4), and [“Principles of Practice – Talk 5”](1986-03-23-Principles-of-Practice-Talk-5).
+- “The backward step” is closely related to *prajna*. See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where it is discussed as the function of *prajna* (“wisdom”).
+- Another KR translation is “To learn that one withdraws one step, and turns the light inward on oneself.” See [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life), where the backward step discussed in relationship to *eko*, “dedicating the merit.” To be honest, I’m not quite sure what’s going on there yet, but it probably relates to the connection to *prajna* noted above.
 
 > Body and mind of themselves will drop away, and your original face will manifest. 
 
@@ -62,7 +58,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 - “Dropping off body and mind” is discussed in conjunction with “from the first, dullness and distraction are struck aside.” See the notes for “dullness and distraction are struck aside” below, closer to the end.
 - Another clear reference is in [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4): “So that is, if you put your body *right there*, then you can drop off your body and mind, drop off, you can be free from the root of discriminating mind. That means you can be exactly one with the very minute vibration of the mind. And then, no concept of the minute vibration of the mind.”
 - Or, see [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind). This is an important talk where dropping off body and mind is discussed in relation to *compassion*. 
-- A good search term in KR’s talks is “drop off.” There are many, many references to things that “drop off”: delusions, dullness and distraction, verbal explanations, all unwholesome things, all unwholesome human behaviors, thought and discursive thinking, ideas, the “concept of wondrous practice which you have realized” ... and so on.
+- A good search term in KR’s talks is “drop off.” There are many references to things that “drop off”: delusions, dullness and distraction, verbal explanations, all unwholesome things, all unwholesome human behaviors, thought and discursive thinking, ideas, the “concept of wondrous practice which you have realized” ... and so on.
 - “Original face” is discussed in connection with *total personality* and *buddha-nature* at the beginning of [“Fukanzazengi – Talk 2”](1979-06-10-Fukanzazengi-Talk-2). See also [“Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [1:16:36](1979-06-14-Fukanzazengi-Talk-6#11636), and [“Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2”](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) after [1:00:05](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#10005).
 
 > If you want to realize such, get to work on such right now.
@@ -71,7 +67,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > For practicing Zen, a quiet room is suitable. 
 
-- “Practicing Zen” is translating *sanzen* (参禅). The actual meaning of *sanzen* is a key point that is often missed. See:
+- The words “practicing Zen” are a translation of *sanzen* (参禅). Katagiri Roshi leaves the term *sanzen* untranslated, because the word *practice* in English “doesn’t hit the mark” of what *sanzen* means. He comments on the actual meaning of *sanzen* extensively. See:
    - [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
    - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
