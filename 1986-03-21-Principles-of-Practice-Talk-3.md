@@ -116,108 +116,97 @@ So, that is called *egolessness*. Or *shikan*-*taza*.
 
 So, if you practice with high resolve, then the *Vimalakirti Sutra* says here: 
 
-> “Noble son, a bodhisattva's Buddha-field is a field of high resolve. When he attains
-enlightenment, ...” 
+> “Noble son, a bodhisattva's Buddha-field is a field of high resolve. When he attains enlightenment, ...” 
 
 ... In other words, when you can practice Buddha way, or when you deal with human life with high resolve, that is “when he attains enlightenment”...
 
-> “... living beings that have harvested the two stores and have planted the roots of virtue will be born in his Buddha-field.”
+> “... living beings who have harvested the two stores and have planted the roots of virtue will be born in his Buddha-field.”
 
+This is very interesting. So, if you practice like this... what is useful for us? Is that clear? Or, why do we have to do this? Or, we have a question: can we be free from the samsaric world or suffering? 
 
+But, the question we make, so-called “can we be free from suffering or the samsaric world” – it is already the dualistic world. We always poke our head into the samsaric world, and then [we are] trying to understand. But [what] we are talking about is not something about the events which occur in the samsaric world. We are talking about something which occurs in the *bottom* of the samsaric world, so-called the first stage, first thought. 
 
-This is very interesting. So, if you do it, if you practice like this, what’s left? What is useful for us? 
+That [means] you have to do [something] with high resolve. And then if you do this, very naturally you can “harvest the two stores.” That means... I don’t know what they are, but the two [stores are] wisdom. You can harvest wisdom and also its virtue: beauty. Maybe beauty. *Beauty* means the functioning of the wisdom. So, you can harvest the two things, wisdom and the functioning of wisdom. 
 
-Is that clear? Or, why do we have to do this? Or, we have a question: can we be free from the samsaric world or suffering? 
+And the Vimalakirti Sutra says, “and you can have planted the root of virtue.” Here it says *virtue*: the wholesome. You can plant the root of wholesome. 
 
-But, the question we make, so-called “can we be free from suffering or the samsaric world” – it is already the dualistic world. We always poke our head into the samsaric world, and then trying to understand. But [what] we are talking about is not something about the events which occur in the samsaric world. We are talking about something which occurs in the bottom of the samsaric world, so-called the first stage, first thought. 
+So, let’s [look at it] from the beginning: “Noble son, a Bodhisattva’s buddha-field is a field of high resolve. When he attains enlightenment, living beings who have harvested the two things and have planted the roots of wholesome will be born in his buddha-field.” 
 
-That is, you have to do [something] with high resolve. And then if you do this, very naturally you can “harvest the two stores.” That means... I don’t know what they are, but the two [stores are] wisdom. You can harvest wisdom and also its virtue: beauty. Maybe beauty. Beauty means the functioning of wisdom. So, you can harvest the two things, wisdom and the functioning of wisdom. 
+So, if you continually practice like this, as a result, you have already planted the root of [the] wholesome, because it’s very pure. *Wholesome* means not the good opposed to bad, or right opposed to wrong. *Wholesome* is exactly beyond the idea of good or bad. This is the first moment, first thought of the world. 
 
-And the Vimalakirti Sutra says, “and you can have planted the root of virtue.” Here it says *virtue*, wholesome[ness]. You can plant the root of wholesome[ness]. 
+So, if you do it, before you think of it, that practice allows you to have already the wisdom and its functioning. You can get it immediately. That is called the *root of [the] wholesome*. Very natural. And then that leads you to be born in the Buddha’s world. So, very naturally you can create [a] wholesome world, peaceful world, next moment. 
 
-So, let’s [look at it] from the beginning [...] “Noble son, a Bodhisattva’s buddha-field is a field of high resolve. When he attains enlightenment, living beings who have harvested two [stores] and have planted the roots of wholesome[ness] will be born in his buddha-field.” 
+So, what we can do is, constantly cultivate this practice. Be in the realm of first thought, and practice there, and then simultaneously you can get the wisdom and its functioning, which is called *root of the wholesome*. 
 
-> “Noble son, a bodhisattva’s buddha-field is a field of high resolve. When he attains enlightenment, living beings who have harvested the two stores and have planted the roots of virtue will be born in his buddha-field.
-
-So, if you continually practice like this, as a result, you have already planted the root of wholesomeness, because it’s very pure. *Wholesome* means not good opposed to bad, or right opposed to wrong. *Wholesome* is exactly beyond the idea of good or bad. This is the first thought, first moment, first thought of the world. 
-
-So, if you do it, before you think of it, that practice allows you to have already the wisdom and its functioning. You can get it immediately. That is called the *root of wholesomeness*. Very natural. And then that leads you to be born in the Buddha’s world. So, very naturally you can create a wholesome world, peaceful world, next moment. 
-
-So, what we can do is, constantly cultivate this practice. Be in the realm of first thought and practice there, and then simultaneously you can get the wisdom and its functioning, which is called *root of the wholesome*. 
-
-So, you never lose it. You never lose it, because wisdom and the functioning of wisdom is already planted in the bottom of your life. So, you never lose, whatever happens, all circumstances. That’s why, next moment, you can live in the Buddha land. 
+So, you never lose it, because wisdom and the functioning of wisdom is already planted in the bottom of your life. So, you never lose [it], whatever happens, all circumstances. That’s why, next moment, you can live in the Buddha land. 
 
 So, how can we be free from karmic life? Well, just be there and practice. Very naturally, you are free. Exactly.
 
 But our consciousness doesn’t believe it. *[He laughs.]* Because consciousness is already involved in the very complicated world, so we don’t believe it. But if you make your mind very clear and simple, going to the bottom of that reflection and discriminating world, then you can see how the first thought is working. And then, this is a really great light of instruction, how to live. 
 
-So, all we have to do is, to be there and practice as best as we can. 
+So, all we have to do is to be there and practice, as best as we can. 
 
 This is called *egolessness*. 
 
-So, very naturally, suffering begets selflessness. Okay? Suffering. Because suffering is fabricated reflection and discriminating mind, and simultaneously it is constantly unconscious effort, which allows you to go on and on, knowing the bottom of the samsaric world. So, very naturally, you can see how to live, how to take care of the samsaric world. 
+So, very naturally, suffering begets selflessness. Okay? Suffering. Because suffering is fabricated [by] reflection and discriminating mind, and simultaneously it is constantly unconscious effort, which allows you to go on and on, knowing the bottom of the samsaric world. So, very naturally, you can see how to live, how to take care of the samsaric world. 
 
 So, let’s go down to the bottom, and then be there, and try to live. 
 
-But still, in the samsaric world it is very difficult. That’s why there are several skillful methods, so-called six *paramitas*. Let’s follow this way. 
+But still, in the samsaric world it is very difficult. That’s why there are several skillful methods: so-called six *paramitas*. Let’s follow this way. 
 
 *[Tape change.]*
 
-So, *giving*, constantly giving. This giving is not the usual giving: giving *paramita*. Paramita means “perfect accomplishment.” So, giving must be accomplished perfectly. That means, completely open, and just do it. 
+... So, *giving*. Constantly giving. This giving is not the usual giving; [it is] giving *paramita*. *Paramita* means “perfect accomplishment.” So, giving must be accomplished perfectly. That means, completely open, and just do it. 
 
-So, that is giving, and also *precepts*. Precepts are Buddha’s suggestion how to live. Buddha’s suggestion – not moral suggestion, not ethical suggestion – Buddha’s suggestion. The suggestion of the truth, how to live. 
+And also *precepts*. Precepts are Buddha’s suggestion how to live. Buddha’s suggestions – not moral suggestions, not ethical suggestions – *Buddha’s* suggestions. The suggestion of the truth, how to live. 
 
-And also *effort* and *patience*, and also *wisdom* and *dhyana*. 
+And also *effort*, and *patience*. And also *wisdom* and *dhyana*. 
 
-So, let’s do this. And then, very naturally, we can come back to the source of *samsara*. 
+Let’s do this. And then, very naturally, we can come back to the source of *samsara*. 
 
-So that’s why mindfulness is pretty important for us. Let’s come back. Mindfulness is constantly remember. You must remember, not only with a thought, but you must remember that first thought of the *samsara* with the whole body and mind. So, that’s why you can come back. 
-
-And then, you can be in *dhyana*, so-called meditation, or *samādhi*. You can be there. 
+So that’s why mindfulness is pretty important for us. Let’s come back. *Mindfulness* [means] constantly remember. You must remember not only with a thought, but you must remember that first thought of *samsara* with the whole body and mind. So, that’s why you can come back. And then, you can be in *dhyana*, so-called meditation, or *samādhi*. You can be there. 
 
 That is the practice of egolessness. 
 
-So, that’s why Buddha says, “Suffering begets selflessness.” Egolessness. 
+So that’s why Buddha says, “Suffering begets selflessness.” Egolessness. 
 
-And impermanence begets suffering, suffering begets egolessness, naturally. That’s why Dogen Zenji says, “If you want to have bodhi-mind, you have to observe very closely or contemplate impermanence.” How transient the world is, how fragile human life is. 
+Impermanence begets suffering, and suffering begets egolessness, naturally. That’s why Dogen Zenji says, if you want to have bodhi-mind, you have to observe very closely or contemplate impermanence: how transient the world is, how fragile human life is. Because yesterday I mentioned, human beings always forget returning to the source of *samsara*, and are always stirring up the world created after second thought. So this is real suffering, constantly. 
 
-Because yesterday I mentioned, human beings always forget returning to the source of *samsara*, and are always stirring up the world created after second thought. So this is real suffering, constantly. That’s why Buddha gives pity, Buddha gives sympathy to all human beings like this. Because human beings completely forget.
-
-That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of *Lotus Sutra*, teaching of *Prajnaparamita*, teaching of the *Vimalakirti Sutra*. Let’s go back. 
+That’s why Buddha gives sympathy to all human beings like this. Because human beings completely forget. That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of the *Lotus Sutra*, the teaching of *Prajnaparamita*, the teaching of the *Vimalakirti Sutra*: let’s go back. 
  
 And then if you go back to that source, you don’t know what it is, but there is really a kind of astonishment, enormous astonishment. 
 
-Then from this astonishment, you can build up philosophy, psychology – Buddha’s teaching. 
+And then from this astonishment, you can build up philosophy, psychology – Buddha’s teaching. 
  
-So what is the beginning of the teaching – philosophy and psychology, Buddhism? It is just astonishment, just surprise. That surprise is described as the Buddha land, [in a] literary sense. Beautiful Buddha land is coming up, adorned with various seven jewels, et cetera. 
+So what is the beginning of the teaching – philosophy, and psychology, Buddhism? It is just astonishment, just surprise. That surprise is described as the Buddha land, [in a] literary sense. You know, the beautiful Buddha land is coming up, adorned with various seven jewels, et cetera. 
 
-So very naturally you can build up a wonderful world. Because it is just astonishment. Nothing to pin down. But directly you can feel it, you can touch it. Something touches your heart. 
- 
-So just surprise, *big* surprise. Then from this big surprise, the human world is coming up, and philosophy is coming up, physics is coming up, Buddhism is coming up, Christianity is coming up, God... any ideas are coming up from this. So finally what you have to do is, let’s go back to that simple and silent and clear world. So-called just surprise, huge surprise. 
+So very naturally you can build up a wonderful world, because it is just astonishment. Nothing to pin down. But directly you can feel it, you can touch it. Something touches your heart. 
 
-Just like facing the moose when you drive in the countryside, I mentioned. Exactly that one “Wow!” – that’s it. When you say “wow,” next moment, “A moose!” – it’s too late. *[He laughs.]* When you really face the moose and the whole world, it’s just a surprise. So just *wow*. And then, the whole world is coming up from this: Katagiri, cars, and countryside, wilderness, and animals, and also trees, birds, insects, the whole world is coming up. And then we can create a poem from that. And we can create physics from that world. How the moose is connected with nature, you know? And including me, including modern civilization, so-called car. Anyway, it’s connected. So you can create physics, you can create psychology, you can create philosophy, you can create spiritual life. 
+So just surprise; *big* surprise. Then from this big surprise, the human world is coming up, and philosophy is coming up. *Physics* is coming up. Buddhism is coming up, Christianity is coming up. God, [and] any ideas are coming up from this. So finally what you have to do is, let’s go back to that simple and silent and clear world. So-called “just surprise,” huge surprise. 
+
+Just like facing the moose when you drive in the countryside, as I mentioned. Exactly that [example]. “Wow!” – that’s it. When you say “Wow!”... [and] next moment: “A moose!” – it’s too late. *[He laughs.]* When you really face the moose and the whole world, it’s just a surprise. So, just *wow*. And then, the whole world is coming up from this: Katagiri, cars, and countryside, wilderness, and animals, and also trees, birds, insects. The whole world is coming up. And then we can create a poem from that. And we can create physics from that world. How the moose is connected with nature, you know? And including me, including modern civilization, so-called car. Anyway, it’s connected, so you can create physics, you can create psychology, you can create philosophy, you can create spiritual life. 
 
 So it’s very simple, a very simple world. But it’s really huge, you know, the shock for you. That’s so-called spiritual life. It’s really spiritual life. 
 
 So the purpose of spiritual life [is], simply speaking, you should touch this enormous surprise. That’s it. 
 
-Well, if you explain what it is, it is simple, very simple, and clear, and silent. But simultaneously, the whole world is coming up. That’s why Dogen Zenji constantly says in the *Shobogenzo*, “Self is the whole universe.” The mountains, rivers, pebbles, all sentient beings, all are buddhas. The whole world is coming up. 
+Well, if you explain what it is, it is simple, very simple, and clear, and silent. But simultaneously, the whole world is coming up. That’s why Dogen Zenji constantly says in *Shobogenzo*, “Self is the whole universe.” The mountains, rivers, pebbles, are all sentient beings. All are buddhas. The whole world is coming up. 
 
-But that whole world coming up, very simple situations, that is first thought. We can confront it with. This is the egolessness. We have to practice this one. 
+But that whole world coming up [is] very simple situations. That is first thought, we can [confront] it with. This is the egolessness. We have to practice this. 
 
 And then, next, we can understand what *faith* is. What is religious faith? 
 
-Then Dogen Zenji says, “Faith is, you should believe in the Buddha way, the Way. If you want to practice Buddha’s teaching, you should believe in the Way where there is no confusion, no perverted views, no mistake, no myths construed.” Nothing, exactly nothing. It’s very simple. *Nothing* means very simple, clear, active, silent. That is the realm of the first thought, from which your life is “panoramorized,” *[he laughs about trying to pronounce the word,]* your life is really “panoramorized” – present, past, future, and also extending into the whole space, you know, *[he laughs,]* different moons, and planets, and Mars, and planets which you have never thought about. You can spread your body and mind into the whole world. 
+Then Dogen Zenji says, “Faith is [that] you should believe in the Buddha Way. If you want to practice Buddha’s teaching, you should believe in the Way, where there is no confusion, no perverted views, no mistake, no [misconstruction].” Nothing, exactly nothing. It’s very simple. *Nothing* means very simple, clear, active, silent. That is the realm of the first thought, from which your life is “panoramorized.” *[He laughs about trying to pronounce the word.]* Your life is really “panoramorized” – present, past, future, and also extending into the whole space, you know? *[He laughs.]* Different moons, and planets, and Mars, and planets which you have never thought about. You can spread your body and mind into the whole world. 
 
-So that is Buddhist faith. And then you can really understand what Buddhist faith is, what real religious faith is. 
+So that is Buddhist faith. And then you can really understand what Buddhist faith is, what *real* religious faith is. 
 
 Okay, do you have a question? 
 
-#### 
+#### 55:55
 
 In [*Shobogenzo*] *Zuimonki* and also *Diamond Sutra*, Dogen Zenji mentions very strongly the practice of egolessness. Very often, here and there. If you read the *Record of Things Heard*, he constantly recommends us to practice egolessness. 
 
-It’s not the negative, pessimistic way, okay? That’s why I explain like this. You should accept in [this] way. 
+It’s not the negative, pessimistic way, okay? That’s why I explain like this. You should accept it in this way. 
 
 For instance, you can read, you know, *Zuimonki*, Book 1, Number 4, [or] Book 4, Number 3, and you can see. Okay? For instance:
 
@@ -237,7 +226,7 @@ This is nothing but the point I have mentioned: be in the first moment, the firs
 
 That’s why in history, Kyogen Zen master immediately attained enlightenment when he saw the beautiful flower of a plum tree, plum flowers. And also another Zen master attained enlightenment the moment when he listened to the sound of the pebbles hitting bamboo; immediately he attained enlightenment. His experience of listening to the sound of the pebbles hitting to the bamboo is the first moment. It’s very clear; that’s why he can exactly join, participate in the vastness of existence, so-called truth. 
 
-Or, Gensha Zen master attained enlightenment the moment when he hurt in his toe by stumbling over a rock, when he came across the river. Then he said, “From where does the pain come?” The moment when you say, “Ouch!” – from where does this come? Because “Ouch!” is nothing but surprise, astonishment. 
+Or, Gensha Zen Master attained enlightenment the moment when he hurt his toe by stumbling over a rock, when he came across the river. Then he said, “From where does the pain come?” The moment when you say, “Ouch!” – from where does this come? Because “Ouch!” is nothing but surprise, astonishment. 
 
 So if you practice on a daily basis in *shikantaza*, exactly you can face this opportunity. In many ways. Not exactly the same as the ancestors did; in many ways. 
 
@@ -245,7 +234,7 @@ So there are lots of examples in the histories.
 
 **Question:** *[inaudible]*
 
-**Katagiri Roshi:** ... You cannot exactly experience the same thing, the same type or style of experience, so-called enlightenment coming from the plum flowers, or the sound of the pebbles hitting the bamboo trees. No. Anywhere. 
+**Katagiri Roshi:** ... You cannot exactly experience the same thing, the same type or style of experience, so-called enlightenment coming from the plum flowers, or the sound of the pebbles hitting the bamboo trees. No. [It can be] anywhere. 
 
 **Questioner:** But the quality of enlightenment... 
 
