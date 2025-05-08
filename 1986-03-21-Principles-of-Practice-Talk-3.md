@@ -66,53 +66,64 @@ But yesterday I said, let’s put a partition, a *very* thin partition between, 
 
 In other words, you sleep pretty well, becoming one with sleep, so no sleep, you don’t know you’re asleep. But when you wake up, there must be something which makes you wake up. But we don’t know what it is. Because it is causes and conditions: some conditions are arranged, and then you can wake up. But conditioned elements are very complicated, *very* complicated. Because myriad, myriad conditioned elements in the vastness of existence, and then connected with the physical and mental situation, and then you can wake up. You know? So it’s pretty difficult to say what the conditioned elements [are]. But anyway, what we can experience is the belief that there must be something which makes you wake up. So that is *something*. Okay? So [...] we say that something is called causes and conditioned elements. 
 
-So, truth is exactly something tranquil, but simultaneously it’s dynamic, active, very active. 
+Truth is exactly something tranquil, but simultaneously it’s dynamic, very active. So if you see the very thin partition between, and then you wake up from sleep – at that time, it’s very difficult to know or understand the first thought of waking up, the first moment of waking up. 
 
-So I think if you see the very thin partition between, and then you can wake up from the sleep. At that time, it’s very difficult to know the first thought of waking up to understand. It’s very difficult to understand, to know the first thought, first moment of waking up. 
+That first thought or the first moment of waking up is *exactly* the same as *truth*, *tathagatagarbha*. So that is the bottom of reflection, or the discriminating mind. Exactly the bottom. So that’s why you don’t know; you don’t know *real* waking up. The waking up which you have known is something created after the second thought – if I explain. 
 
-So that first thought, or the first moment of waking up is exactly the same as *truth*, *tathagatagarbha*. So that is the bottom of the reflection, or discriminating mind, the exact bottom. So that’s why you don’t know, you don’t know real waking up. But waking up what you have known is something created after second thought, if I explain. 
+So from this point... Yesterday [I talked a little bit about] the first thought, that we must be there and we have to practice in the realm of the first thought, first moment. Because it is the inception of the creating samsaric world, and also it is the inception of getting into the truth. So simultaneously [it’s both], but we don’t know what it is. But we can see it. So as best as we can, we try to be there, and practice there. At that time, there is a way how to take care of the samsaric world, and human suffering, and delusions, enlightenment, et cetera. 
 
-So from this point, yesterday a little bit I mentioned that the first thought, we must be there and we have to practice in the realm of the first thought, first moment. Because it is the inception of the creating samsaric world, and also it is the inception of getting into the truth, simultaneously. We don’t know what it is, but we can see it. So we as best as we can, we try to be there, and practice there. At that time, there is a way how to take care of the samsaric world, and human suffering, and delusions, enlightenment, et cetera. 
-
-So that is, let’s see the world of the first moment, first thought. This is very pure and clear. Very clear and also transparent, very transparent. So your thought, your activities must be very simple, and clear, and – what would you say – very attractive, pretty. And also it’s silent, very silent. Your activity, your thought is very active over there, which is clear and simple and active and silent. Very silent. 
+So that is, let’s [look at] the world of the first moment, first thought. This is very pure and clear. Very clear and also transparent, very transparent. So your thought, your activities must be very simple, and clear, and, what would you say... very attractive, pretty. And also it’s silent, very silent. Your activity, your thought is very active over there, which is clear and simple and active and silent. Very silent. 
 
 But it’s very active, so you have to do something. So what kind of activity is there? 
 
-This we call *undefiled practice*. This is called *shugyo* (修行) – usually we say “practice,” but it’s not the usual practice, it is very profound, refined practice. In other words, your activities, your deeds must have a very [important] application or fitness or commitment to right now, right here. This is your activity. 
+This is [what] we call *undefiled practice*. This is called *shugyo* (修行) – usually we say “practice,” but it’s not the usual practice, it is very profound, refined practice. 
 
-How do you do this? This is not something [where] you should make a decision to do something by your consciousness. In other words, it is not something [alternative]. If you face a gassho, you have to do gassho. But it doesn’t mean ignoring the conscious activities. Conscious activity exists there, but if you really practice in the pure and clear, simple and silent practice, I think you have to do [gassho as it is], you have to have very [important] fitness and commitment and application to the gassho as it is, exactly. This is called *undefiled practice*, we say. 
+In other words, your activities, your deeds must have a very [pertinent] application or fitness or commitment to right now, right here. This is your activity. 
 
-And according to the *Vimalakirti Sutra*, in Chinese we say *profound mind*. But in this book, Robert Thurman translates it as *high resolve*. This is very good translation: *high resolve*. 
+How do you do this? This is not something [where] you should make a decision to do something by your consciousness. In other words, it is not something [where you choose an] alternative. If you face a *gassho*, you have to do *gassho*. But it doesn’t mean ignoring the conscious activities. Conscious activity exists there, but if you really practice in the pure and clear, simple and silent practice, I think you have to do [gassho as it is], you have to have very [pertinent] fitness and commitment and application to the gassho as it is, exactly. 
 
-I think if you see page 16 of this book, Vimalakirti mentions the bodhi-mind related with the direct, straightforward mind and the profound mind and the practice. Because the bodhi-mind is really closely related with straightforward mind, that means very positive thought. In other words, the bodhi-mind constantly allows you to go directly, to direct your [abode] to the truth as it is. Under all circumstances we have to open ourselves toward that truth. 
+This is called *undefiled practice*, we say. 
 
-So that is positive thought, very positive. Not in terms of pros and cons or success and failure. Completely you should open yourself and move toward this one. Under all circumstances. That is keeping life, keeping the world in peace, in harmony, on and on, every day, all circumstances. That is *bodhi-mind*. 
+According to the *Vimalakirti Sutra*, in Chinese we say *profound mind*. But in [his] book, Robert Thurman translates it as *high resolve*. This is a very good translation: *high resolve*. 
 
-So that’s why that bodhi-mind is connected with the straightforward mind or positive mind, a very positive attitude toward human life. 
+I think if you see page 16 of this book, Vimalakirti mentions the bodhi-mind related with the direct, straightforward mind and the profound mind and the practice. Because the bodhi-mind is really closely related with straightforward mind, that means very positive thought. In other words, the bodhi-mind constantly allows you to go directly, to direct your [boat] to the truth as it is. Under all circumstances we have to open ourselves toward that truth. 
 
-And then at that time, when you can see the bottom of the samsaric world, that bottom of the samsaric world is nothing there. Nothing to analyze, nothing to think of it, but it’s there. It’s something real, which is influencing human life constantly. 
+So that is positive thought, very positive. Not in terms of pros and cons, or success and failure. Completely you should open yourself and move toward this one. Under all circumstances. That is keeping life, keeping the world in peace, in harmony – on and on, every day, all circumstances. That is *bodhi-mind*. 
 
-So that is, I mentioned, the first moment. The very first moment when you come out of the truth and create samsaric world, this is the first moment, first thought. So you have to return to this first thought. This is our practice. Instead of looking at the first moment or first stage, first moment, first thought, objectively. We can see objectively, if even for a moment we can see, if you experience it. But it’s not something you can have a notion of the first moment or first thought, but you have to live, you have to live up to it, or you have to practice there. That’s a little difficult to continually do, because our world is surrounded by discriminating aspects of human life, so constantly we are out of this first moment. 
+So that’s why that bodhi-mind is connected with the straightforward mind or positive mind. A very positive attitude toward human life. 
 
-So, in this first moment, in the rhythm of the first moment, we have to do something simply and clearly and silently, but very stable, steadfast. [Then] how do we do this? We can do it with *high resolve*. This is called profound mind, high resolve. 
+And then at that time, when you can see the bottom of the samsaric world, that bottom of the samsaric world is – nothing there. Nothing to analyze, nothing to think of it, but it’s there. It’s something real, which is influencing human life constantly. 
 
-*High resolve* is more practical than the notion of profound mind. Very practical. We have to have high resolve, and then do. In other words, you have to do something with an air of resolve, with no excuse. Because it is first thought, first moment. In the first moment, how do you get up? How do you wake up? We don’t know. After understanding, waking up, and then you can get into? No. Exactly no excuse. With no excuse, you have to wake up with an air of resolve, exactly. Prior to your consciousness. Exactly. This is *high resolve*. 
+So that is, I mentioned, the first moment. The very first moment when you come out of the truth and create samsaric world – this is the first moment, first thought. So you have to return to this first thought; this is our practice. Instead of looking at the first moment or first stage, first thought, objectively. We can see objectively, even for a moment, if you experience it. But it’s not something you can have a *notion* of the first moment or first thought, but you have to [give], you have to live up to it, or you have to practice there. That’s a little difficult to continually do it, because our world is surrounded by discriminating aspects of human life, so constantly we are out of this first moment. 
+
+So, in this first moment, in the rhythm of the first moment, we have to do something simply and clearly and silently, but very stable, steadfast. [Then] how do we do this? We can do it with *high resolve*. This is called *profound mind*, *high resolve*. 
+
+*High resolve* is more practical than the notion of *profound mind*. Very practical. We have to have high resolve, and then do. In other words, you have to do something with an air of resolve, with no excuse, because it is the first thought, first moment. In the first moment, how do you get up, how do you wake up? We don’t know. After understanding, waking up, then you can get into [it]? No. Exactly no excuse. With *no excuse*, you have to wake up with an air of resolve, exactly. Prior to your consciousness, exactly. This is *high resolve*. 
 
 #### 33:15
 
-So, *high resolve* means you have to practice with no excuse and with an air of resolve. Then, at that time, your ego, the selfhood, is put aside. The selfhood drops off, naturally. This is called *shikan*, we say: *shikantaza*. Just wholeheartedness, or *samadhi*, when you really do with one-pointedness. 
+So, *high resolve* means you have to practice with no excuse and with an air of resolve. Then, at that time, your ego, the selfhood, is put aside. The selfhood drops off, naturally. This is called *shikan*, we say: *shikantaza*. Just wholeheartedness, or *samadhi* – when you really do with one-pointedness. This is letting you to be right there, with pertinent fitness to right now, right here. 
 
-This is letting you to be right here, with [pertinent] fitness to right now, right here. 
+At that time, you can drive a car really safely. Whatever happens, you really put the brake, exactly. If an animal comes up in front of the car, immediately you put the brake. Before you think of the life of the animal, life of you, or the condition or the circumstances of your car, or thinking of traffic law, et cetera, you immediately put the brake. 
 
-At that time, you can drive a car really safely. Whatever happens, you really put the brake, exactly. If an animal comes up in front of the car, immediately you put the brake. Before you think of the life of the animal, life of you, or the condition of the circumstances of your car, or thinking of traffic law, et cetera, you immediately put the brake. 
+And then after that, you realize, “Oh, I’m more there. Oh, I exist. Oh, I don’t hurt animals,” et cetera. You can see. That is the discriminating world is going on and on, *after* the first moment. 
 
-And then after that, you realize, “Oh, I’m more there. Oh, I am exist. Oh, I don’t hurt animal.” You can see. That is discriminating world is going on and on, after the first moment. 
-
-So, in the first moment, you can do very simply, clearly, and very [steadfast]. But it doesn’t mean [to] ignore your conscious level, conscious world. It’s there, constantly. That’s why, in the second thought, immediately discriminating world comes up. 
+So in the first moment, you can do very simply, clearly, and very steadfast. But it doesn’t [mean to] ignore your conscious level, conscious world. It’s there, constantly. That’s why, in the second thought, immediately discriminating world comes up. 
 
 So, that is called *egolessness*. Or *shikan*-*taza*.
 
-So, if you practice with high resolve, then the *Vimalakirti Sutra* says here, “Noble son, Bodhisattva’s buddha field is a field of high resolve. When he attains enlightenment...” In other words, when you can practice Buddha way, or when you deal with the human life with high resolve, that means when he attains enlightenment. “... living beings who have harvested the two stores, and have planted the roots of virtue will be born in his Buddha field.”
+#### 
+
+So, if you practice with high resolve, then the *Vimalakirti Sutra* says here: 
+
+> “Noble son, a bodhisattva's Buddha-field is a field of high resolve. When he attains
+enlightenment, ...” 
+
+... In other words, when you can practice Buddha way, or when you deal with human life with high resolve, that is “when he attains enlightenment”...
+
+> “... living beings that have harvested the two stores and have planted the roots of virtue will be born in his Buddha-field.”
+
+
 
 This is very interesting. So, if you do it, if you practice like this, what’s left? What is useful for us? 
 
