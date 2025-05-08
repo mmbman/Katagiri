@@ -236,7 +236,7 @@ So there are lots of examples in the histories.
 
 **Katagiri Roshi:** ... You cannot exactly experience the same thing, the same type or style of experience, so-called enlightenment coming from the plum flowers, or the sound of the pebbles hitting the bamboo trees. No. [It can be] anywhere. 
 
-**Questioner:** But the quality of enlightenment... 
+**Questioner:** But it’s the quality of enlightenment... 
 
 **Katagiri Roshi:** Same. Same things. That’s what I mean. 
 
@@ -244,49 +244,53 @@ So there are lots of examples in the histories.
 
 **Katagiri Roshi:** Yes, that’s true. 
 
-**Questioner:** So you open to... maybe some [kind] of experience you might have?
+**Questioner:** So there’s maybe some [kind] of experience you might have?
 
 **Katagiri Roshi:** Yes. But there is no guarantee. *[Laughter.]*
 
-I tell you [about] your freedom. I don’t want to “quote” a certain, you know... promise. I don’t want that. I’m not talking about some [interruptions]. I always want you to be free from anything. Otherwise you cannot continue to practice *shikantaza*. If I say, “Yes, you can get a complete attainment if you practice this [way],” you are already caught by suffering. So you never attain enlightenment. 
+I tell you [about] your freedom. I don’t want to “quote” a certain, you know... promise. No, I’m not talking about some interruptions. I always want you to be free from *anything*. Otherwise you cannot continue to practice *shikantaza*. If I say, “Yes, you can get a complete attainment if you practice this [way],” you are already caught by suffering, so you never attain enlightenment. 
 
-So that’s why I say there is no guarantee. Because it depends on the karmic life, *[he laughs,]* your karmic life.
+That’s why I say there is no guarantee. Because it depends on the karmic life, *[he laughs,]* your karmic life.
 
 **Questioner:** Did you have that experience?
 
-**Katagiri Roshi:** Maybe or maybe not, I don’t know. 
+**Katagiri Roshi:** Maybe or maybe not, I don’t know.
 
-*[Some laughter.]*
+*[Someone:]* Whoops. *[Katagiri Roshi laughs.]*
 
-That depends on you, anyway. I already said, you know, four things: completely open. Whether I attain enlightenment or not, I already mentioned, you know, open. And then you ask me [if I did]. This is already you and I getting into the dualistic world and then talking about the “did you”? *[Laughter.]* *[Katagiri Roshi laughs.]* And then I give an answer: “Yes, I did.” If I say so... you say, “Are you sure?” Already you are playing hide and seek. Do you understand? 
+*[Someone:]* Hard to say. 
+
+*[Laughter.]*
+
+**Katagiri Roshi:** *[Laughing.]* That depends on you, anyway. I already said, you know, whole things, completely open. Whether I attain enlightenment or not, I already mentioned, open. And then you ask me [if I did]. This is already you and I getting into the dualistic world and then talking about the “did you”? *[Laughter. Katagiri Roshi laughs.]* And then I give an answer: “Yes, I did.” If I say so... you say, “Are you sure?” *[He laughs.]* Already you are playing hide and seek. Do you understand? 
 
 **Questioner:** Mm-hmm.
 
 **Katagiri Roshi:** So it depends on you, anyway. I cannot say anything. 
 
-But sometimes people want to *know* exactly; otherwise people are very restless. At that time, I say, “*Yes*, I did.” But sometimes, if I say so, people become very crazy. So I say, “No.” *[A few people laugh, and Katagiri laughs.]* Because I have to take care of real human beings, anyway. 
+But sometimes people want to *know* exactly; otherwise people are very restless. At that time, I say, “*Yes*, I did.” But sometimes, if I say so, people become crazy. So I say, “No.” *[A few people laugh. Katagiri laughs.]* Because I have to take care of real human beings, anyway. 
 
 **Questioner:** So you’re saying, forget about it.
 
-**Katagiri Roshi:** Yeah, I think so. *[He chuckles.]* Whether I have experienced that one or not, it’s not our business, no. It’s Buddha’s business. 
+**Katagiri Roshi:** Yeah, I think so. *[He chuckles.]* Whether I have experienced that one or not, it’s not our business. No. It’s Buddha’s business. 
 
-#### 
+#### 1:05:20
 
 **Question:** I think your example of the moose is in many ways like the example of the sound of bamboo striking... *[inaudible]* 
 
 **Katagiri Roshi:** That’s true. Exactly. 
 
-**Question:** I have a...  *[inaudible]*. *[Laughter.]*
+**Previous Questioner:** *[Inaudible.]* *[Laughter.]*
 
-**Katagiri Roshi:** Sure, anybody. Everyone can have such an impression. Because it’s very natural. *[He laughs.]* But the quality of the experience is different. 
+**Katagiri Roshi:** Sure, anybody. Everyone can have such an impression. Because it’s very natural, you know? *[He laughs.]* But the quality of the experience is different. 
 
-Listening to the sound of the pebble hitting the bamboo tree can be listened by anybody, and get the impression from that sound. But a certain person completely attains enlightenment, [while] a certain person just listens to. Some are completely, “Oh, that’s it,” you know? They are there, exactly first moment, but they don’t pay attention to nothing, just be, “Oh, I can hear,” that’s it. Impression, but it doesn’t affect so much human life as a whole. 
+The sound of the pebble hitting the bamboo tree can be listened to by anybody, and get the impression from that sound. But a certain person completely attains enlightenment, [while] a certain person just listens to it. Some are completely, “Oh,” that’s it, you know? They are there, exactly first moment, but they don’t pay attention to nothing; just be, “Oh, I can hear,” that’s it. [There is an] impression, but it doesn’t affect so much human life as a whole. 
 
-So the impression from that is influencing not only the individual, okay? Through that impression you have to see you and the whole world, simultaneously. And then, that is a *big* surprise, huge impressions. 
+So the impression from that is influencing not only the individual, okay? Through that impression you have to see you and the whole world, simultaneously. And then, that is a *big* surprise. Huge impressions. 
 
 **Question:** Is it permanent? 
 
-**Katagiri Roshi:** Oh yes, it’s exactly permanence. No, do you mean impermanence or permanence?
+**Katagiri Roshi:** Oh yes, it’s exactly permanence. No, do you mean impermanence, or permanence?
 
 **Questioner:** No, I’m wondering about the experience of this one Zen master, when the pebble hit the bamboo tree. In two weeks did he forget it and become ordinary again? 
 
@@ -294,9 +298,9 @@ So the impression from that is influencing not only the individual, okay? Throug
 
 **Questioner:** Or was he permanently enlightened? 
 
-**Katagiri Roshi:** “Permanently enlightened” because that is... *[laughter]* permanent enlightenment. Yes, it is! But what he has to do is come back to the ordinary people, ordinary life. But enlightenment is going permanently. 
+**Katagiri Roshi:** “Permanently enlightened,” because that is... *[laughter]* permanently enlightened. Yes, it is! But what he has to do is come back to the ordinary people, ordinary life. But enlightenment is going permanently. 
 
-**Questioner:** So if *his* life is changed forever... 
+**Questioner:** So *his* life is changed forever.
 
 **Katagiri Roshi:** [...] Yes.
 
@@ -304,51 +308,53 @@ So the impression from that is influencing not only the individual, okay? Throug
 
 **Katagiri Roshi:** No. Exactly.
 
-That’s why if you do this with high resolve, very naturally you [...] harvest wisdom and its function and plant it in your life. So you never forget it, you never get away from that, if you do it. 
+That’s why if you do this with high resolve, very naturally you [...] harvest wisdom and its function and plant it in your life. So you never forget it. You never get away from that, if you do it. 
 
-But if you touch that wisdom, that is already the samsaric world. That is already the samsaric world, changing constantly. That’s why beyond the samsaric world, what you do this, immediately you can plant it. You can plant that wisdom and its function as the root of the wholesome. That allows you to be born in the Buddha’s world. 
+But if you [attach to] that wisdom, that is already the samsaric world. That is already the samsaric world, changing constantly. That’s why *beyond* the samsaric world, [when] you do this, immediately you can plant it. You can plant that wisdom and its function as the root of the wholesome. That allows you to be born in the Buddha’s world. That is the next step. And then you can create Buddha’s world. 
 
-That is the next step: then you can create the Buddhist world. In other words, if you sit down in peace – without any excuse, just sit down – then next moment, you can create a peaceful world. Even though the world objectively creates a lot of violence, etc., if you sit down, you can create a peaceful world. That’s what we do, “Please light the candle once every Sunday.” That is a unique way, finally, we can do it. 
+In other words, if you sit down in peace – without any excuse, just sit down – then next moment, you can create a peaceful world. Even though the world objectively creates a lot of violence, etc., if you sit down, you can create a peaceful world. That’s why we [say], “Please light the candle once every Sunday.” That’s fine; that is a unique way, finally, we can do it. 
 
-So just sit down, and then create. Because if you sit down, immediately you can harvest wisdom and the function of wisdom. [...] root of the wholesome. So very naturally you can create, because you immediately become peaceful, beyond the intellectual sense. And then, people feel peaceful. Very practically, it is true. Do you understand what I mean? 
+So just sit down, and then create. Because if you sit down, immediately you can harvest wisdom and the functioning of wisdom. And they are the root of the wholesome. So very naturally you can create, because you immediately become peaceful, beyond the intellectual sense. And then people feel peaceful. Very practically, it is true. Do you understand what I mean? 
 
-**Question:** I had a question about a word. [...] “Impertinent?” “Important?” 
+#### 1:10:55
+
+**Question:** I had a question about a word. It was something fitness. “Impertinent?” “Important?” 
 
 **Katagiri Roshi:** “Impertinent.” Impertinent?
 
-**Someone:** I think you mean pertinent. It should fit the occassion? 
+**Someone:** I think you mean *pertinent*. It should fit the occassion? 
 
 **Someone:** “Impertinent” means “impolite.” 
 
-**Katagiri Roshi:** Oh, “pertinent.” I’m sorry. Not “impertinent,” “pertinent.” “Perfect.” *[He chuckles.]* Exactly fitting in the bullseye.
+**Katagiri Roshi:** Oh, “pertinent.” I’m sorry. Not “impertinent,” *pertinent*. *Perfect*. *[He chuckles.]* Exactly fitting in the bullseye.
 
 #### 1:11:47
 
-**Question:** Roshi? ... so-called enlightenment, ... pebble striking bamboo... The difference between the experience that they have, when they hear the pebble striking the bamboo, ... when I hear that same occurance... is that due to ...  Immediately preceding that moment, the Zen master was in *samadhi*? And when his stone strikes the bamboo, or he stubs his toe, he realizes that moment that previous to that point that he had been in *samadhi* but not aware of... What I’m getting at is, what is the difference between ... Why does that precipitate this experience of enlightenment, and yet every one of us goes through this in life constantly, without having experience, without saying, “Wow, that was wild! Enlightenment there.” Is it because of the fact that they were in *samadhi* before that moment, and then they realized that here they were in some state of existence where they had an awareness of themselves. 
+**Question:** Roshi? In the experience [...] of so-called enlightenment for those Zen Masters with pebbles striking the bamboo... The difference between the experience that they have, when they hear the pebble striking the bamboo, [...] and what happens to me when I hear that same occurrence... Is that due to the fact that, immediately preceding that moment, the Zen master was in *samadhi*? And when his stone strikes the bamboo, or he stubs his toe, he realizes that moment that previous to that point that he had been in *samadhi* but not aware of [it], because you’re not aware of that... What I’m getting at is, what is the difference between ... Why does that precipitate this experience of enlightenment, and yet every one of us goes through life constantly having experiences without saying, “Wow, that was wild! Enlightenment there.” Is it because of the fact that they were in *samadhi* before that moment, and then they realized that here they were in some state of existence where they had an awareness of themselves. 
 
-**Katagiri Roshi:** I think... Please tell me later if I don’t answer your question properly. I think that particular teacher – not only that particular teacher, everyone – lives, strictly speaking, in the realm of the first moment and first thought of the samsaric world. But ordinary beings are very interested in the samsaric world fabricated by after second thought, third thought, et cetera, and involved in so much. So they don’t pay attention to the source I mentioned. But particular teacher, this person and that person, who practice continually returning to the source of the samsaric world – this is their practice, every day, based on the six *paramitas* as I mentioned. So being mindful of that first thought and the simple life, materialistically and also mentally. And clearly, steadfastly, and also very silent, every day. It’s not conspicuous, it’s not fancy practice. This particular person constantly takes care of everyday life in that way. 
+**Katagiri Roshi:** I think... Please tell me later if I don’t answer your question properly. I think that particular teacher – not only that particular teacher, everyone – lives, strictly speaking, in the realm of the first moment, first thought of the samsaric world. But ordinary beings are very interested in the samsaric world fabricated after the second thought, third thought, et cetera, and involved in it so much. So they don’t pay attention to the source I mentioned. But a particular teacher, this person and that person, who practice continually returning to the source of the samsaric world – this is their practice, every day, based on the six *paramitas*, as I mentioned. So being mindful of that first thought and the simple life, materialistically and also mentally. And clearly, steadfastly, and also very silent, every day. It’s not conspicuous, it’s not fancy practice. This particular person constantly takes care of everyday life in that way. 
 
-*Then*, when the time and life conditions are arranged, that practice comes up – blooms, in a moment.
+*Then*, when the time is ripe, conditions are arranged, that practice comes up – blooms, in a moment.
 
-Everyone has this opportunity to attain this kind of enlightenment, but in a different way. Some experience very sharply, a very strong shock, like lightning or thunder, something like this. But some experience very slowly, like sneaking into their life, before they are conscious of it. But later, they can realize, very slowly. But either way, anyway. 
+Everyone has this opportunity to attain this kind of enlightenment, but in a different way. Some experience very sharply, a very strong shock, like lightning or thunder, something like this. But some experience very slowly, like sneaking into their life, before they are conscious of it, but later they can realize. But either way, anyway. 
 
-So we have an opportunity to attain enlightenment, but it depends on intention, how strong you practice, you take care of your life, in the realm of first thought, of samsara. That’s what Dogen Zenji says in this *Record of Things Heard*. He [talks about it] that way. Not the discussion of teaching, which teaching is good or bad; it depends on the intention, degree; how much intention you have in the practice. So that is. Is that alright? 
+So we have an opportunity to attain enlightenment, but it depends on the intention, how strong you practice, you take care of your life, in the realm of first thought of samsara. That’s what Dogen Zenji says in this *Record of Things Heard*. He [talks about it] that way. Not the discussion of which teaching is good or bad; it depends on the intention, degree; how much intention you have in the practice. So *that* is. Is that alright? 
 
 **Questioner:** Only intellectually. *[He laughs.]*
 
 **Katagiri Roshi:** Oh. Fine. That’s fine. *[He chuckles.]*
 
-So I think the important point is, [...] when you do zazen, zazen must be taken care of fully, with wholeheartedness. 
+So I think the important point is, when you do zazen, zazen must be taken care of fully, with wholeheartedness. 
 
-But usually we don’t, you know? If you look at your zazen and everyday life: no matter how often you listen to how to do zazen exactly and properly, [still when] you do zazen, very naturally zazen is taken care of by your feelings and ideas. So naturally, very sloppy zazen, et cetera. *[He laughs.]* So that’s why, even though you do zazen, anyway, you really do zazen exactly. When you wash your face, you really wash your face. If you continue to practice like this, very naturally, time will mature, [time and] occasion become arranged, and then naturally something happens. “Something” means oneness with the whole universe, the rhythm of life, universal life, comes up. 
+But usually we don’t, you know? If you look at your zazen and everyday life: no matter how often you listen to how to do zazen exactly and properly, [still when] you do zazen, very naturally zazen is taken care of by your feelings and ideas. So naturally, very sloppy zazen, et cetera. *[He laughs.]* So that’s why, even though you do zazen, anyway, you really do zazen exactly. When you wash your face, you really wash your face. If you continue to practice like this, very naturally, time will mature, [time and] occasion become arranged, and then naturally something happens. “Something” means oneness with the whole universe. The rhythm of life, universal life, comes up. 
 
-In the *bendo-e*, some of you [saw] Narasaki Roshi. Narasaki Roshi’s life is... you know, if you look at him, very naturally you can feel that. Each moment is really perfect: stand up still, silent, and steadfast. [Whether his] gassho, bow, standing, and talking with us, it’s really sharp, but very soft and compassionate, very steadfast, and very silent. But it’s really directly going, something. 
+In the *bendo-e*, some of you [saw] Narasaki Roshi. Narasaki Roshi’s life is... you know, if you look at him, very naturally you can feel that. Each moment is really perfect: stand up still, silent, and steadfast. [Whether his] gassho, bow, standing, or talking with us, it’s really sharp, but very soft and compassionate, very steadfast, and very silent. But it’s really directly going, something. 
 
-So this is a person. So that practice is very important for us. That person is the so-called *right teacher*. Later I will explain *right teacher*. It’s really right teacher is something like that. 
+So this is a person. That practice is very important for us. That person is the so-called *right teacher*. Later I will explain *right teacher*. Really *right teacher* is something like that. 
 
 #### 1:20:42
 
-**Question:** Hojo-san, yesterday you used the word *surrender*. How does that have to do with being [...] the first moment, surrender. Will you talk about [that]?
+**Question:** Hojo-san, yesterday you used the word *surrender*. How does that have to do with being [in] the first moment, surrender. Will you talk about [that]?
 
 **Katagiri Roshi:** Surrender? 
 
@@ -364,11 +370,9 @@ So this is a person. So that practice is very important for us. That person is t
 
 **Katagiri Roshi:** *Surrender* is in other words to give, to offer, to give yourself to perfect tranquility. Completely give. 
 
-For instance, if you want to make a poem [about] the wilderness and the pine trees, you have to give yourself to the pine trees, you know, directly. Not kind of project you into the pine tree, et cetera, but complete give. That means physically and mentally you have to give to the wilderness. And *then*, this is [that] you can make poem. You can touch the spirit of the wilderness. 
+For instance, if you want to make a poem [about] the wilderness and the pine trees, you have to give yourself to the pine trees, you know, directly. Not kind of project you into the pine tree, et cetera, but complete give. That means physically and mentally you have to give to the wilderness. And *then*, this is [that] you can make a poem. You can touch the spirit of the wilderness. 
 
-That’s surrender. But it’s very difficult to do it like this, because always the self comes first. So even though you seem to surrender, still you are thinking of yourself first. And then we think how much we should surrender. 
-
-Always we are thinking about that. So always there is some “adjustment” we try to make, you know, in terms of conscious world. But to surrender your body and mind to the total [...] perfect [...] tranquility is completely you have to give yourself.
+That’s surrender. But it’s very difficult to do this, because always the self comes first. So even though you seem to surrender, still you are thinking of yourself first. And then we think how much we should surrender. So always we are thinking about that. So always there is some “adjustment” we try to make, *[he chuckles,]* you know, in terms of the conscious world. But to surrender your body and mind to the total [...] perfect [...] tranquility is completely you have to give yourself.
 
 #### 1:23:35 end of recording
 
