@@ -100,19 +100,15 @@ So, in this first moment, in the rhythm of the first moment, we have to do somet
 
 *High resolve* is more practical than the notion of *profound mind*. Very practical. We have to have high resolve, and then do. In other words, you have to do something with an air of resolve, with no excuse, because it is the first thought, first moment. In the first moment, how do you get up, how do you wake up? We don’t know. After understanding, waking up, then you can get into [it]? No. Exactly no excuse. With *no excuse*, you have to wake up with an air of resolve, exactly. Prior to your consciousness, exactly. This is *high resolve*. 
 
-#### 33:15
+So, *high resolve* means you have to practice with no excuse and with an air of resolve. Then, at that time, your ego, the selfhood, is put aside. The selfhood drops off, naturally. This is called *shikan*, we say: *shikantaza*. Just wholeheartedness. Or *samadhi* – when you really do with one-pointedness. This is letting you to be right there, with pertinent fitness to right now, right here. 
 
-So, *high resolve* means you have to practice with no excuse and with an air of resolve. Then, at that time, your ego, the selfhood, is put aside. The selfhood drops off, naturally. This is called *shikan*, we say: *shikantaza*. Just wholeheartedness, or *samadhi* – when you really do with one-pointedness. This is letting you to be right there, with pertinent fitness to right now, right here. 
+At that time, you can drive a car really safely. Whatever happens, you really put the brake, exactly. If an animal comes up in front of the car, immediately you put the brake. Before you think of the life of the animal, life of you, or the condition or circumstances of your car, or thinking of traffic law, et cetera, you immediately put the brake. And then after that, you realize, “Oh, I’m more there. Oh, I exist. Oh, I don’t hurt animals,” et cetera; you can see. That is the discriminating world is going on and on, *after* the first moment. 
 
-At that time, you can drive a car really safely. Whatever happens, you really put the brake, exactly. If an animal comes up in front of the car, immediately you put the brake. Before you think of the life of the animal, life of you, or the condition or the circumstances of your car, or thinking of traffic law, et cetera, you immediately put the brake. 
-
-And then after that, you realize, “Oh, I’m more there. Oh, I exist. Oh, I don’t hurt animals,” et cetera. You can see. That is the discriminating world is going on and on, *after* the first moment. 
-
-So in the first moment, you can do very simply, clearly, and very steadfast. But it doesn’t [mean to] ignore your conscious level, conscious world. It’s there, constantly. That’s why, in the second thought, immediately discriminating world comes up. 
+So in the first moment, you can do very simply, clearly, and very steadfast. But it doesn’t ignore your conscious level, conscious world. It’s there, constantly. That’s why, in the second thought, immediately the discriminating world comes up. 
 
 So, that is called *egolessness*. Or *shikan*-*taza*.
 
-#### 
+#### 35:11
 
 So, if you practice with high resolve, then the *Vimalakirti Sutra* says here: 
 
