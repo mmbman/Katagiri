@@ -28,41 +28,41 @@ So the essence of the practice, practicing the Way, is to believe that you are p
 
 This is the first important point. If you want to continue to practice spiritual life, I think we should believe that we are constantly present in the Way, and are not deluded, not having the illusive thought, with no increase, no decrease, and no mistaken understanding – something like that. 
 
-I think this is what is called *one world*, which makes two worlds. A world of the intellect, and the sensational world – a world of intellect or senses – and a world of so-called spiritual life. I think according to *The Essence of Buddhism* by D.T. Suzuki – we are studying wisdom and compassion through that text book. He mentions that most people believe the world is one only in a world of the intellect, but he mentions anyway there are two worlds, intellectual and spiritual. But those are not separated, those are one. 
-
-So, there is only one world, which makes two worlds constantly. And two worlds makes in one world. This is the reality we live in constantly. 
+This is what is called “one world which makes two worlds”: a world of intellect or senses, and a world of so-called spiritual life. According to *The Essence of Buddhism* by D.T. Suzuki – we are studying wisdom and compassion through that text book – he says that most people believe the world is one only in a world of the intellect, but he says there are two worlds, intellectual and spiritual. But those are not separated, those are one. So, there is only one world, which makes two worlds constantly. And two worlds makes one world. This is the reality we live in constantly. 
 
 So, that one world is really pure and clean, but it’s not the pure and clean separate from the world of intellect or senses – it’s connected. But on the other hand, this world of the senses or intellect is not separate from this one world. So, it’s always connected. That’s why in a sense, one world is constantly manifesting a state of purity and cleanness, undefiled. If you touch it, you will burn out. If you don’t touch it, your life is frozen. 
 
-So this is, I think, *The Song of the Jewel Mirror* [talks] about this point. It’s very difficult to say, but that is reality. That’s why we have to understand that one world as clear as we can – through the practice, and through the understanding with your wisdom, as best as we can, we have to understand. 
+So this is, I think *The Song of the Jewel Mirror* [talks] about this point. It’s very difficult to say, but that is *reality*. That’s why we have to understand that one world as clear as we can – through the practice, and through the understanding with your wisdom, as best as we can, we have to understand. 
 
 So, yesterday I mentioned that one world is exactly a kind of very thin partition between complete sleep and waking up. The very first beginning of the waking up is not kind of “waking up,” not the *concept* of the waking up. Temporarily I say “the first thought,” but this is not thought – but it’s thought, because it is the *very* first. So, that is a partition, temporarily I say partition. But this partition is *very* thin, very thin. 
 
 So, the last moment of coming out of the complete sleep is exactly the very first moment of entering the waking up. So, that partition is very difficult to say what it is. Because it is complete sleep – you don’t know you are sleeping. This is complete sleep. On the other hand, you’re waking up. Two worlds there. 
 
-But the two worlds are not separated, but we believe they are separated. That is intellectual understanding, dualistic. But a world is both functioning in the same and one ground, so-called partition. 
+The two worlds are not separated, but we believe they are separated. That is intellectual understanding, dualistic. But [both worlds] are functioning in the same and one ground, so-called partition. 
 
-This partition is very thin, but I am talking about this partition with the enormous, the boundless expanse in space... enormous spatial expanse. So, [the partition] is very [three dimensional]. Okay? It’s not thin [like] paper. But temporarily I say partition, you know, very plain dimension, but it’s not plain, it’s very [three dimensional]. (*Transcriber’s Note:* Katagiri Roshi says “cubic.”) But let me say like it this: when you come out of the sleep, and then are entering the waking up, that real moment, you don’t know, you never know. But there is. That is a practice; we don’t know what’s going on there. 
+This partition is very thin, but I am talking about this partition with boundless expanse in space... enormous spatial expanse. So, [the partition] is very [three dimensional]. Okay? It’s not thin [like] paper. Temporarily I say *partition*, you know, very plain dimension, but it’s not plain, it’s very [three dimensional]. (*Transcriber’s Note:* Katagiri Roshi says “cubic.”) 
 
-For instance, according to *The Awakening of Faith*. At the *tathagata* stage, Buddha knows the finer of the fine vibration of the mind. Among the fine vibration of the mind, there is the *finest* vibration there – very minute vibration of the mind. Because mind is constantly moving. 
+But let me say like it this: when you come out of the sleep, and then are entering the waking up, that real moment – you don’t know, you never know. But there is. That is a practice; we don’t know what’s going on there. 
 
-Even though you say *moment* – the *Abhidharmakosha* says the moment consists of 65 instants. If so, what is a moment, you know? So the moment is a very fine vibration of the mind, but still there is the finest vibration of the mind within the moment – that is at the 65th vibration of mind *[he laughs a little]*. How can you touch it? You don’t know what it is, but it’s there. But through zazen you can know this, you can notice this one.
+For instance, according to *The Awakening of Faith*: at the *tathagata* stage, Buddha knows the finer of the fine vibration of the mind. Among the fine vibration of the mind, there is the *finest* vibration there; very minute vibration of the mind. Because mind is constantly moving. Even though you say *moment* – the *Abhidharmakosha* says the moment consists of 65 instants. If so, what is a moment, you know? So the moment is a very fine vibration of the mind, but still there is the finest vibration of the mind within the moment – that is at the 65th vibration of mind *[he laughs a little]*. How can you touch it? You don’t know what it is. But it’s there. Through zazen you can know this, you can notice this one.
 
-So if you are engaged in a perfect state of concentration, okay? Let’s [imagine] your mind in Zazen. And then you really feel exactly planting into the *samadhi*. But still you can see the very minute vibration of the mind, so-called perfect concentration, okay? Perfect state of planting into *samadhi*. You can see: “Oh, I am now planting into the perfect samadhi now.” Something like that. This is the very minute vibration of the mind by which you can realize, what you are doing, what is a mind. 
+So, [let’s say] if you are engaged in a perfect state of concentration, okay? Let’s [look at] your mind in zazen. And then you really feel exactly planting into the *samadhi*. But still you can see the very minute vibration of the mind, so-called *perfect concentration*, okay? Perfect state of planting into *samadhi*. You can see: “Oh, I am planting into the perfect *samadhi* now.” Something like that. This is the very minute vibration of the mind by which you can realize what you are doing, what is mind. 
 
-But no matter how long you realize, you recognize this minute movement, vibration of the mind, you never be free from vibration. No. Because even though you say “I am perfectly calm now” – that is already vibration. *[He laughs.]* But thinking not thinking begets thinking. So realization of the perfect *samadhi* begets vibration of the mind. So you never be free from vibrations. 
+But no matter how long you realize, you recognize this minute movement, vibration of the mind, you never be free from vibration. No. Because even though you say, “I am perfectly calm now” – *[he laughs,]* that is already vibration. So “thinking not thinking” begets thinking. So realization of the perfect *samadhi* begets vibration of the mind. So you never be free from vibrations. 
 
-So how do you be free from this very minute vibration of the mind from moment to moment? It’s very difficult to say. How do you do it? No, we don’t know. But this is *tathagata* stage, according to *The Awakening of Faith*. It is true. 
+So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say. How do you do it? No, we don’t know. But this is *tathagata* stage, according to *The Awakening of Faith*. It is true! 
 
-So finally, that is the place that the one world where the very minute vibration of the mind can be realized ... by Buddha’s *tathagata*. At that time buddha-*tathagata* knows how to live there. 
+So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by Buddha’s *tathagata*. At that time, buddha-*tathagata* knows how to live there. 
 
-Because whichever you think, no matter how long you cognize or you realize that very minute vibration of the mind, you never stop vibrating your mind. So how do you stop vibrating your mind? This is, it’s very simple, very simple. It’s very simple, but it’s too simple to know. *[He laughs.]* So all you have to do is just *be* there. 
+Because whichever you think, no matter how long you cognize or you realize that very minute vibration of the mind, you never stop vibrating your mind. So how do you stop vibrating your mind? This is, it’s very simple, *very* simple. It’s very simple, but it’s too simple to know. *[He laughs.]* So all you have to do is just *be* there. 
 
-Just be. So *tathagata* stops vibrating – *tathagata* knows how to stop vibrating. That means to just *be* exactly – with no second person, no second thought. That is exactly, this is total dynamic working. You become exactly one.
+Just be. [...] *Tathagata* knows how to stop vibrating. That means to just *be* exactly – with no second person, no second thought. This is total dynamic working. You become exactly one.
 
-So that is the... in the chapter “Buddha Nature,” Dogen Zenji mentions here... [it is] a little bit difficult, the terms there, but let me read:
+#### 15:16
 
-> Therefore the self and environment of sentient being, whole being is not in the least involved in the waxing influences of karma...
+So that [what Dogen Zenji talks about] in the chapter “Buddha Nature.” [It is] a little bit difficult, the terms there, but let me read it:
+
+> Therefore the self and environment of sentient being, whole being is not in the least involved in the waxing influences of karma, ...
 
 ... this is the usual worldly affairs, our karmic life... 
 
@@ -70,11 +70,13 @@ So that is the... in the chapter “Buddha Nature,” Dogen Zenji mentions here.
 
 “Right here there is no second person.” Karmic life – how can you be free from karmic life? So by realization of the karmic life, you can be free from karmic life. But what do you mean, “realization of karmic life?” That is still vibration of the mind. 
 
-So real karmic life... You have to understand what is karmic life. Karmic life is not the karmic life separate from this Buddha’s world, one world. But if you say “by realization of the karmic life I will be free from karmic life,” this is already you believe that karmic life is separate. So that’s why here it says, “karmic life is exactly Buddha’s world, all sentient whole being.” That means the whole universe. 
+So real karmic life... You have to understand what is karmic life. Karmic life is not the karmic life separate from this Buddha’s world, one world. But if you say “by realization of the karmic life I will be free from karmic life,” this is already you believe that karmic life is separate. So that’s why here it says, “karmic life is exactly Buddha’s world, all sentient [beings,] whole being.” That means the whole universe. 
 
-If so, we believe no karmic life? Yes [there] is; here is karmic life. Because it is very closely connected with one world, so-called *whole beings*. That’s why it exists. 
+If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with one world, so-called *whole beings*. That’s why it exists. 
 
-If so, we cannot be free from it? But you can be free from, because it is, “free from” means no karmic life, because it is exactly connected with one world, so-called whole universe. That means the karmic life is exactly [the] whole world by itself – not karmic life is the whole world, karmic life *exactly* whole world, no partition between. This is the reality of the karmic life, the reality of the samsaric world, which is constantly going in the realm of this partition I mentioned. How can you say the very first moment of the karmic life? When you get into the karmic life, can you say the very first moment of karmic life? Nothing to say. It’s very pure. So it’s immediately connected to the eternal world, truth, so it’s very vast. Vastness of karmic life means nothing, no concept, no perception of karmic life. But on the other hand, as long as you get into karmic life, there is karmic life; it’s very clear. 
+If so, we cannot be free from it? But you can be free from it, because [...] “free from” means no karmic life, because it is exactly connected with one world, so-called whole universe. That means the karmic life is exactly [the] whole world by itself – not karmic life is the whole world, karmic life *exactly* whole world, no partition between. This is the reality of the karmic life, the reality of the samsaric world, which is constantly going in the realm of this partition I mentioned. 
+
+How can you say the very first moment of the karmic life? When you get into the karmic life, can you say the very first moment of karmic life? Nothing to say. It’s very pure. It’s immediately connected to the eternal world, truth, so it’s very vast. Vastness of karmic life means nothing: no concept, no perception of karmic life. But on the other hand, as long as you get into karmic life, there is karmic life; it’s very clear. 
 
 So we say karmic life is there. But karmic life is not separate from the truth, that’s why karmic life is very closely connected. That’s why karmic life exists. 
 
