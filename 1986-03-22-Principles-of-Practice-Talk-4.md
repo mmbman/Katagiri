@@ -208,31 +208,33 @@ That is called *reflection*. And also Dogen Zenji mentions in this book – Numb
 > 
 > (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
-This is cutting off the root of discriminating mind, so-called reflection. Learn the backward step, and turn your light inwardly to illuminate yourself. How do you do this? This is “Avalokiteshvara turns the sound-perceiving.” 
+This is cutting off the root of discriminating mind, so-called reflection. “Learn the backward step, and turn your light inwardly to illuminate yourself.” How do you do this? This is “Avalokiteshvara turns the sound-perceiving.” 
 
-Avalokiteshvara is [...] a Bodhisattva who listens to the sound of perfect observation closely the world, observation of the world. By means of observing very closely what the human world, what human beings are, then he can listen to the kind of sound, very deep sound. In other words, very minute vibration of the world and of the human beings. Very deep. That is called *suffering*. 
+Avalokiteshvara is a Bodhisattva who listens to the sound of perfect observation of the world. By means of observing very closely what the human world is, what human beings are, then he can listen to the kind of sound, very deep sound – in other words, very minute vibration of the world and of the human beings. Very deep. That is called *suffering*. 
 
-Suffering is completely beyond your consciousness. It’s there. Because constantly we are returned to the source, returned to the source. Even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep beyond consciousness or unconsciousness. That is they try to get that first moment of being present right now, right here. Where two worlds make one. Intellect, spiritual world. This is this partition. Okay?  
+Suffering is completely beyond your consciousness. It’s there. Because constantly we are return to the source, return to the source, even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep, beyond consciousness or unconsciousness. That is they try to get that first moment of being present *right now, right here*. Where two worlds make one: intellect, spiritual world. This is this partition. Okay?  
 
-So constantly there. Constantly we want to get it. But this is so-called reflection. Whatever we do, always we reflect upon ourselves. “Are you sure? Are you sure? Are you are happy?” Yes, you are happy. But are you sure? Constantly you ask yourself, and then try to get something which makes it possible for your happiness to be. Still you want. Because this is to try to come back to the source, naturally. This is suffering, so-called. 
+So constantly there. Constantly we want to get it! But this is so-called reflection. Whatever we do, always we reflect upon ourselves. “Are you sure? Are you sure? Are you are happy? Yes, you are happy. But are you sure?” Constantly you ask yourself, and then try to get something which makes it possible for your happiness to *be*. Still you want. Because this is to try to come back to the source, naturally. This is *suffering*, so-called. 
 
 So does suffering come from your intellect or your six senses? No. Completely beyond. That’s why [it’s a] “noble truth” – suffering is noble truth. So suffering is pretty deep. 
 
-So Avalokiteshvara listens to that sound. If you listen to the sound, immediately you are caught by the sound which you can hear, and also the sound known by human beings, Avalokiteshvaras. So already subject or object. So we are already washed away by the stream, by the sound-perceiving stream of mind – that means six senses world, created by the six sense organs. We can hear, immediately we create six senses world. That is *samsara*. Then, naturally, most of us are completely washed away by this six senses world. Whatever you listen to or whatever you know – good or bad, wholesome, unwholesome, whatever – we always [are] carried away. We always are discriminating. 
+So Avalokiteshvara listens to that sound. If you listen to the sound, immediately you are caught by the sound which you can hear, and also the sound known by human beings, [or] Avalokiteshvara. It’s already subject and object. So we are already washed away by the sound-perceiving stream of mind – that means the six senses world, created by the six sense organs. We can hear, immediately we create six senses world. That is *samsara*. Then, naturally, most of us are completely washed away by this six senses world. Whatever you listen to or whatever you know – good or bad, wholesome, unwholesome, whatever – we always [are] carried away. We always are discriminating. 
 
-So very naturally Avalokiteshvara listens, but simultaneously Avalokiteshvara is free from knowing and that is known. Free from subject, object. It means Avalokiteshvara constantly stands up in the source, of first source, very basis of the being, which is silent and stable, from where the life of all sentient beings blooms. So Avalokiteshvara constantly goes back to that space, that world, that point. And then, he or she can help. He or she can help all sentient beings. 
+So very naturally Avalokiteshvara listens, but simultaneously Avalokiteshvara is free from knowing and [what] is known. Free from subject, object. It means Avalokiteshvara constantly stands up in the *source*, [the] first source, the very basis of the being, which is silent and stable, from where the life of all sentient beings blooms. So Avalokiteshvara constantly goes back to that space, that world, that point. And then, he or she can help. He or she can help all sentient beings. 
 
-So that is called “Avalokiteshvara turns the sound-perceiving stream of the mind, forsake knowing and being known.” According to Dogen’s message, I think you have to cut off the root of discriminating mind. 
+So that is called “Avalokiteshvara turns the sound-perceiving stream of the mind, forsakes knowing and being known.” According to Dogen’s message, I think you have to cut off the root of discriminating mind. 
 
-Shall I do zazen forever, in order to deepen your life, in order to make your life happy? Yes, you should do it. But you don’t want to – the physical pain, and you don’t want to get up early in the morning, et cetera. So, well, if you don’t want, please don’t do zazen. But still you want. If you want, please come. But you don’t want. So always back and forth, back and forth. How can I help? 
+[You may ask,] “Shall I do zazen forever, in order to deepen my life, in order to make my life happy?” Yes, you should do it. 
 
-So all you have to do is,you have to forsake knowing and being known, shall I or shall I not? You just be. At that time, you are a really great person, so-called Avalokiteshvara Bodhisattva, who can have really a willing ear to listen to the sound of the world, the sound of you. And then, you can help. This is a compassion. 
+But you don’t want to [have] the physical pain, and you don’t want to get up early in the morning, et cetera. So, well... if you don’t want, please, don’t do zazen. But still you want. If you want, please come. But you don’t want. So always back and forth, back and forth. How can I help? 
 
-So, this is Buddhist faith. This is the point of the practice in terms of Buddhist faith. 
+So all you have to do is, you have to forsake knowing and being known, “shall I” or “shall I not.” You just be. At that time, you are a really great person, so-called Avalokiteshvara Bodhisattva, who can have a really willing ear to listen to the sound of the world, the sound of you. And then, you can help. This is *compassion*. 
 
-So, constantly, first of all, you are a great container. Anyway, trust in this: you are a great container, beyond good or bad, right or wrong. Don’t put yourself down, don’t despise yourself. Anyway, encourage yourself constantly, and do it. 
+So, this is the point of the practice in terms of Buddhist faith. 
 
-That’s why Dogen Zen says practice is just like walking in the mist. It’s a really good example: walking in the mist constantly, and then, before you conscious of it, your dress gets wet. This is our practice. Otherwise, you cannot continue to practice, no; it’s very difficult to build up peaceful world. But if your practice is exactly just like walking in the mist, before you are conscious of it, your dress gets wet. If you practice like this, you really create peaceful life. And you can help all sentient beings. 
+Constantly, first of all, you are a great container. Trust in this: you are a great container, beyond good or bad, right or wrong. Don’t put yourself down, don’t despise yourself. Anyway, encourage yourself constantly, and do it. 
+
+That’s why Dogen Zenji says practice is just like walking in the mist. It’s a really good example: walking in the mist, constantly, and then, before you are conscious of it, your dress gets wet. This is our practice. Otherwise, you cannot continue to practice, no. It’s very difficult to build up peaceful world. But if your practice is exactly just like walking in the mist, before you are conscious of it, your dress gets wet. If you practice like this, you really create peaceful life. And you can help all sentient beings. 
 
 Okay. Do you have a question? 
 
@@ -240,19 +242,29 @@ Okay. Do you have a question?
 
 #### 1:06:35
 
-So, I think usually you can see the person who really wants to [do] religious practice, always judging people, and criticizing people, in an intellectual sense, always. For instance, if somebody makes a mistake: “You are a bad boy!” You [can’t] do it in that way, because you exactly eliminate the great capability of human beings as a dharma container. You cannot do it. Whoever or whatever people make a mistake, et cetera, basically, you have to really respect the person, or beings, et cetera, and then encourage them to stand up straight again. 
+So, I think usually you can see the person who really wants to [do] religious practice always judging people, and criticizing people, in an intellectual sense, always. For instance, if somebody makes a mistake: “You are a bad boy!” You [can’t] do it in that way, because you exactly eliminate the great capability of human beings as a dharma container. You cannot do it. Whoever or whatever people make a mistake, et cetera, basically, you have to really respect the person, or beings, et cetera, and then encourage them to stand up straight again. 
 
-But we don’t do it, usually. That’s why Dogen Zenji says, the basic attitude is this. 
+But we don’t do it, usually. 
 
-But nevertheless, you cannot follow the exactly, it’s very difficult. That’s why you need the compassion, wisdom, encouragement, practicing together, et cetera. Read this *Record of Things Heard*. *Shobogenzo* is very strict in a sense, but on the other hand, this *Record of Things Heard* tries to encourage us to practice, to follow the Buddha’s way, continually, with really deep compassion. 
+That’s why Dogen Zenji says, the basic attitude is *this*, but nevertheless, you cannot follow it exactly, it’s very difficult. That’s why you need the compassion, wisdom, encouragement, practicing together, et cetera. 
 
-So, I’m talking [about] the Precepts and Lay Ordination every Saturday, but not this time. But maybe from next Saturday, I will continue to talk about, the same applies to the precepts. Buddhist precepts have a pretty deep meaning. To break the precept is, of course, to break the precept. But it doesn’t mean that breaking a precept completely destroys the human life – I don’t mean this. Do you understand this? But most people say, if you break the precept, you are [out of the question]. That is really cold, don’t you think so? No compassion. In a sense, strictly speaking, it’s pretty good – because it’s very serious, very strict. You love so much practicing strictly... but on the other hand, you don’t like strict. So you must be strict, but on the other hand, you must be very compassionate. So strict practice must be backed by compassion and kindness, generosity. And then you can really keep going, and living in peace. Otherwise, it’s very difficult to understand what the Precepts are, what human beings are; why we have to follow the precepts, why we have to believe the Triple Treasure, and why we have to make repentance, et cetera. It’s very difficult. 
+Read this *Record of Things Heard*. *Shobogenzo* is very strict in a sense, but on the other hand, this *Record of Things Heard* tries to encourage us to practice, to follow the Buddha’s way, continually, with really deep compassion. 
 
-So, in general Buddhism, always first Buddhism shows us very basic principles: you have to stand up there, and you have to practice there. [...] This is universal. On the other hand, Buddhism shows us, look at your everyday life. Are you alright? Can you follow this way? Are you standing up in this principle or disciplines given by the buddhas and ancestors? Are you standing there? Look at your everyday life. 
+#### 1:08:38
 
-And then if you see your everyday life, completely your life is *far* from this principle or discipline, et cetera. And then most of people give up. But this is not compassionate toward the human life. Because it is not reason why your practice, your real practice, your real life should be dispensed with. No. 
+So, I’m talking [about] the Precepts and Lay Ordination every Saturday, but not this [Saturday]. But maybe from next Saturday, I will continue to talk about [this, because] the same applies to the Precepts. 
 
-So, you have to continue, anyway go back to, you have to stand up constantly in the basis of the teaching. Anyway, that is “learn the backward step.” Constantly go back, go back, go back. And then, take care of your everydayness with compassion, encouragement, generosity. That’s why there are the six *paramitas* there.
+Buddhist precepts have a pretty deep meaning. To break the precept is, of course, to break the precept. But it doesn’t mean that breaking a precept completely destroys the human life; I don’t mean this! Do you understand this? But most people say, if you break the precept, you are [out of the question]. That is really cold, don’t you think so? No compassion. *[He laughs.]* In a sense, strictly speaking, it’s pretty good, you know? Because it’s very serious, very strict. You love so much practicing strictly... but on the other hand, you don’t like strictness. *[He laughs.]*
+
+So you must be strict, but on the other hand, you must be very compassionate. Strict practice must be backed by compassion and kindness, generosity. And then, you can really keep going, and living in peace. But otherwise, it’s very difficult to understand what the Precepts are, what human beings are... why we have to follow the precepts, why we have to believe the Triple Treasure, and why we have to make repentance, et cetera. It’s very difficult. 
+
+So, in general Buddhism, always first Buddhism shows us very basic principles: you have to stand up there, and you have to practice there. This is universal. On the other hand, Buddhism shows us: look at your everyday life. Are you alright? Can you follow this way? Are you standing up in this principle or discipline given by the buddhas and ancestors? Are you standing there? Look at your everyday life. 
+
+And then if you see your everyday life, completely your life is *far* from this principle or discipline, et cetera. And then most of people give up. But this is not compassionate toward the human life! Because it is not a reason why your practice, your real practice, your real life should be dispensed with. No. 
+
+So, you have to continue, go back, you have to stand up constantly in the basis of the teaching. That is “learn the backward step.” Constantly go back, go back, go back.
+
+And then, take care of your everydayness with compassion, encouragement, generosity. That’s why there are the six *paramitas* there.
 
 #### 1:12:33
 
