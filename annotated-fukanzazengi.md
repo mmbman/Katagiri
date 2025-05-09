@@ -46,11 +46,16 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice?
 
-> Therefore, put aside the intellectual practice of investigating words and chasing phrases, and learn to take the backward step that turns the light and shines it inward. 
+> Therefore, put aside the intellectual practice of investigating words and chasing phrases, ..
 
-- “Learn to take the backward step that turns the light and shines it inward”: Katagiri Roshi translates this in slightly different ways; one way is, “To learn the backward step that turns your light inwardly to illuminate yourself.” This is perhaps one of the most challenging lines to interpret reliably. The meaning is presumably simple, and yet common interpretations quickly veer toward problems. Particularly, any interpretation that approaches “withdrawing from the world” does not quite line up with Katagiri Roshi’s or Dogen’s teachings. “The backward step” means to “return to the very inception of the moment.” It implies “cutting off the root of discriminative thought.” It does not mean to withdraw, nor to escape from. See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4), and [“Principles of Practice – Talk 5”](1986-03-23-Principles-of-Practice-Talk-5).
-- “The backward step” is closely related to *prajna*. See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where it is discussed as the function of *prajna* (“wisdom”).
-- Another KR translation is “To learn that one withdraws one step, and turns the light inward on oneself.” See [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life), where the backward step discussed in relationship to *eko*, “dedicating the merit.” To be honest, I’m not quite sure what’s going on there yet, but it probably relates to the connection to *prajna* noted above.
+> ... and learn to take the backward step that turns the light and shines it inward. 
+
+- “Turn the light and shine it inward” is *ekō henshō* (回光返照). This key phrase is translated and understood in slightly different ways. 
+- One way Katagiri Roshi translates this line is, “To learn the backward step that turns your light inwardly to illuminate yourself.” See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4).
+- “The backward step” means to “return to the very inception of the moment.” It implies “cutting off the root of discriminative thought.” It does not mean “to withdraw,” nor “to escape from.” See [“Principles of Practice – Talk 4”](1986-03-22-Principles-of-Practice-Talk-4), and [“Principles of Practice – Talk 5”](1986-03-23-Principles-of-Practice-Talk-5).
+- This is perhaps one of the most challenging lines to interpret reliably. The meaning is presumably simple, and yet common interpretations seem to veer toward problems. Particularly, any interpretation that approaches “withdrawing from the world” does not line up with the rest of Katagiri Roshi’s or Dogen’s teachings. The point seems to be that one takes the backward step, the whole world is present. 
+- “The backward step” is closely related to *prajna* (“wisdom”). See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where it is discussed as the function of *prajna*.
+- Another translation is “to learn that one withdraws one step and turns the light inward on oneself.” In [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life), Katagiri Roshi discusses the backward step of *ekō henshō* in relationship to the word *ekō* which means “dedicating the merit.” To be honest, I’m not quite sure what’s going on there yet. More to follow.
 
 > Body and mind of themselves will drop away, and your original face will manifest. 
 
