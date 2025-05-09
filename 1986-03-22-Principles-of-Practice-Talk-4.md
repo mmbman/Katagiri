@@ -184,32 +184,33 @@ So don’t be discouraged; please continue to practice, by virtue of the turning
 
 [...] “Learn the backward step” means, let’s return to that very inception of the moment. The very inception of the time and space. The very inception of *gassho*, or zazen. In other words, just put yourself right in the midst of the inception of doing zazen, *gassho*, standing, et cetera. It means let’s go back to the original moment, the first moment. Again and again, again and again. And then, if you *do it*, even for a moment, it “turns your light inwardly to illuminate yourself.” Very naturally you create a wholesome world, a peaceful, harmonious world, even [if] you don’t see it. This is, naturally it’s going. 
 
-So that’s why, if you continue to do it, naturally you will come to enhance or to deepen your life. Even though you don’t know how much your practice is progressing or not, it doesn’t matter. Sometimes you can see how much; sometimes you cannot see. *Most of* the time you don’t see how much your practice is making progress. No. But all you have to do is constantly go back to that source of being, existence. Anyway, let’s go back, let’s go back, every day. And then, that is called *the backward step*. Not withdraw; anyway, let’s go [back]. That is called backward step, that is called reflection. That’s why this reflection is beget suffering, really suffering. But that suffering is completely beyond your intellectual understanding, before your intellect is suffering there. Because everyone has to go back to there. Consciously or unconsciously, the root of your being is coming from that realm. 
+So that’s why, if you continue to do it, naturally you will come to enhance or to deepen your life. Even though you don’t know how much your practice is progressing or not, it doesn’t matter. Sometimes you can see how much; sometimes you cannot see. *Most of* the time you don’t see how much your practice is making progress. No. But all you have to do is constantly go back to that source of being, existence. Anyway, let’s go back, let’s go back, every day. And then, that is called *the backward step*. Not withdraw. Anyway, let’s go [back]. 
 
-So very naturally, everyone always go back to there, consciously or unconsciously. But most people don’t realize it – even though they are standing there, they don’t realize it. But they are very interested in the world after second moment, second thought, third thought. That is the so-called *samsaric world*. That’s why the problem is going on and on. There is no peace. The more they try to get the peace, the more they beget, you know, not peace, in order to get the peace. That is *samsara*. That’s why if you want to be peaceful, please go back to the source of the first moment of the peace you have thought. Let’s go back. 
+That is called *backward step*, that is called *reflection*. That’s why this reflection [begets] suffering, really suffering. (*Transcriber’s Note:* It’s not clear here whether he means reflection begets suffering, or suffering begets reflection.) But that suffering is completely beyond your intellectual understanding, [it’s] before your intellect is suffering there. Because everyone has to go back to there. Consciously or unconsciously, the root of your being is coming from that realm. 
 
-This is the backward step. The backward step is not escaping from. Anyway let’s go back. That first moment of peace you have thought. 
+So very naturally, everyone always goes back to there, consciously or unconsciously. But most people don’t realize it. Even though they are standing there, they don’t realize it. But they are very interested in the world *after* second moment, second thought, third thought. That is the so-called *samsaric world*. That’s why the problem is going on and on. There is no peace. The more they try to get the peace, the more they beget not peace, in order to get the peace. That is *samsara*. 
 
-In other words, cutting off the root of discriminating mind, anyway be peace *right now*. Right now. With your whole body and mind. And that is immediately you create peace, peaceful world. 
+That’s why if you want to be peaceful, please go back to the source of the first moment of the peace you have thought. Let’s go back. This is the backward step. The backward step is not escaping from. Anyway, let’s go back to that first moment of peace you have thought. 
+
+In other words, cutting off the root of discriminating mind, be peace *right now*. Right now, with your whole body and mind. And that is immediately you create peace, peaceful world. 
 
 But it is [an] event which occurs just in a moment. So you don’t see it. 
 
-So that’s why very naturally according to your intellectual sense, you can see no hit among a hundred thousand attempts to try to hit the bullseye, nothing. That’s why we need the encouragement – “please, follow like this” – [which] Dogen mentions. 
+So that’s why very naturally according to your intellectual sense, you can see “no hit” among a hundred thousand attempts to try to hit the bullseye. Nothing. 
+
+That’s why we need the encouragement – “please, follow like this” – [which] Dogen mentions. 
 
 #### 55:14
 
-And that is called reflection. 
-
-And also Dogen Zenji mentions, that is in this book – Number Six, page 53 – the second paragraph from the bottom:
+That is called *reflection*. And also Dogen Zenji mentions in this book – Number Six, page 53 – the second paragraph from the bottom:
 
 > The Buddha Sakyamuni said, “Turning the sound-perceiving stream of the mind inward, forsake knowing and being known.” 
 > 
 > (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
+This is cutting off the root of discriminating mind, so-called reflection. Learn the backward step, and turn your light inwardly to illuminate yourself. How do you do this? This is “Avalokiteshvara turns the sound-perceiving.” 
 
-This is a cutting off root of discriminating mind, so-called reflection. Learn the backward step, and turn your light inwardly to illuminate yourself. How do you do this? This is Avalokiteshvara turns the sound-perceiving. 
-
-Avalokiteshvara is [...] a Bodhisattva who listens to the sound of perfect observation closely the world, observation of the world. By means of observing very closely what the human world, what human beings are, then he can listen to the kind of sound, very deep sound. In other words, very minute vibration of the world and of the human beings. Very deep. That is called suffering. 
+Avalokiteshvara is [...] a Bodhisattva who listens to the sound of perfect observation closely the world, observation of the world. By means of observing very closely what the human world, what human beings are, then he can listen to the kind of sound, very deep sound. In other words, very minute vibration of the world and of the human beings. Very deep. That is called *suffering*. 
 
 Suffering is completely beyond your consciousness. It’s there. Because constantly we are returned to the source, returned to the source. Even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep beyond consciousness or unconsciousness. That is they try to get that first moment of being present right now, right here. Where two worlds make one. Intellect, spiritual world. This is this partition. Okay?  
 
