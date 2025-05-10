@@ -7,7 +7,7 @@ title: "Principles of Practice, Talk 5: Direct Transmission"
 
 ### Transcript
 
-<p align="center"><b>This transcript is in rough draft stage.</b></p>
+<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/direct-transmission" target="_blank">Listen to this talk</a>
@@ -15,45 +15,59 @@ title: "Principles of Practice, Talk 5: Direct Transmission"
 
 #### 0:00
 
-**Katagiri Roshi:** The topic today is the key point of *jikige joto*, in Japanese. It’s very difficult to translate it. Jiki-ge, J-I-K-I-G-E, joto, J-O-T-O. *Jikige* means “direct”; directness or direct. *Joto*: I think in this translation it says “realization.” “Realization” is fine... but, I don’t know how can I say it. 
+**Katagiri Roshi:** The topic today is the key point of practice in terms of *jikige jōtō*, in Japanese. It’s very difficult to translate it. *Jiki-ge*, J-I-K-I-G-E, *jōtō*, J-O-T-O. 
 
-*Jo* of *joto* is to receive, to ingest, or to assimilate, or to absorb. Literally, *jo* of *joto* is to receive, to accept. But this is something more than just to receive or to accept. So, to assimilate, to absorb, to ingest. That is the meaning of *jo* of *joto*. 
+*Jikige* means “direct”; “directness” or “direct.” 
 
-*To* of *joto* is “it,” or the ultimate identity. Do you understand? “Ultimate identity” means the ultimate itself. Exactly [the] ultimate itself; no separation between you and the ultimate. Ultimate identity of being. So, you are exactly the ultimate of being. So, that is “it.” 
+*Jōtō*: I think in this translation it says “realization.” “Realization” is fine, but... I don’t know how can I say it. 
 
-So, to receive, and, how can I say... So, as a whole, *joto* means to – it’s a little difficult [to say in English] – to assimilate or to receive and actualize it. Is that okay? To assimilate *and* to actualize it. You have to digest it, and then actualize it. That is *joto*. 
+*Jō* of *jōtō* is “to receive,” “to ingest,” or “to assimilate,” or “to absorb.” Literally, *jō* of *jōtō* is “to receive,” “to accept,” but this is something more than just to receive or to accept. So, “to assimilate,” “to absorb,” “to ingest.” That is the meaning of *jō* of *jōtō*. 
 
-So, “realization”... realization is *almost* fine. Realization means in a sense to make real, or to actualize. But *joto* [does not mean] something you should accept from outside, and digest, and then actualize. This is not the meaning of *joto*. Because, this *it* doesn’t come from outside; it is *in* you. It is already with you. So, we are present in it. And then you can do, you can actualize yourself, what you are. 
+*Tō* of *jōtō* is “it,” or the ultimate identity. Do you understand? “Ultimate identity” means the ultimate itself. Exactly [the] ultimate itself; no separation between you and the ultimate of being. So, you are exactly the ultimate of being. So, that is “it.” 
 
-So, this is the meaning of *joto*. That’s why *jikige* means “direct”: direct *joto*, direct accepting and actualizing it. It is not something coming from outside, that’s why *direct*. Direct means no gap between. 
+So as a whole, *jōtō* means to – it’s a little difficult *[he laughs]* – to assimilate or to receive and actualize *it*. Is that okay? To assimilate *and* to actualize it. You have to digest *it*, and then actualize it. That is *jōtō*. 
 
-#### 
+So, “realization” is *almost* fine. “Realization” means in a sense to make real, or to actualize. But *jōtō* [does not mean] something you should accept from outside, and digest, and then actualize. This is not the meaning of *jōtō*. Because, this *it* doesn’t come from outside; it is *in* you. It is already with you. So we are present in *it*; and then you can actualize yourself, what you are. 
+
+So, this is the meaning of *jōtō*. That’s why *jikige* means “direct”: direct *jōtō*, direct accepting and actualizing *it*. It is not something coming from outside, that’s why *direct*. *Direct* means no gap between. 
+
+#### 5:35
 
 Okay, let’s [look at] *Gakudō-yōjinshū* number 10. The title is “The Direct Realization of the Way.” Here [this translation] uses “the Way,” but literally it says “it” – the ultimate. 
 
-So far I have spoken about *bodhicitta* and also *faith* as the key point of the practice. And then next, you have to actualize it, you have to ingest the *bodhicitta* and faith, and actualize it. Actualize these two, in our everyday practice. 
+So far I have spoken about *bodhicitta* and also *faith* as the key point of the practice. And then next, you have to *actualize* it; you have to ingest the *bodhicitta* and *faith*, and actualize these two in our everyday practice. 
 
 That’s why Dogen Zenji [says here]:
 
 > There are two ways to settle body and mind in oneness. One is to listen to the dharma under a great teacher. The other is to do zazen wholeheartedly. 
 
-So, “there are two ways to settle body and mind in oneness.” This is my translation. In this book it says there are two ways to realize enlightenment; that’s it. But originally Dogen Zenji says “there are two ways to settle the body and mind.” It’s very difficult to translate, but I think... well, “to settle body and mind in oneness.” *[He chuckles.]* In other words, if your body is here and listening to the Buddha’s teaching, so all you have to do is your body and mind must be settled, right here, right now, becoming one with the Buddha’s teaching. That is called *settling*: to settle your body and mind in oneness. 
+So, “there are two ways to settle body and mind in oneness.” This is my translation. 
 
-In other words, you have to settle your body and mind in repose and bliss, right here, right now. For this, there are two ways. [The first] is, listen to the Buddha’s teaching under the guidance of a great teacher. Second is to do zazen wholeheartedly. *Wholeheartly* is constantly... well, Dr. Abe says, “negotiating the Way.” I don’t know [about] “negotiating the Way.” *[He chuckles.]* Well, anyway, in many ways “you have to negotiate” means you have to watch carefully and closely, very closely. Just like a friend, just like your body and mind, very closely you have to constantly watch, taking care of. This is “negotiating the Way.” So, I think *wholeheartedly* means that constantly you have to do zazen wholeheartedly, which means negotiating the zazen you are doing. Because we are standing up in the moment, which is very subtle, very subtle. *Subtle* means... in a sense, very crisis point. You are at the crisis point: whichever you go, you can go. Whatever you want to do, you can do it. So it’s very ... crisis point, situation. Is that clear? Crisis situation? For instance, at the first very moment, the first thought, which you cannot realize it, is a very crisis situation. You can go this way or you can go that way – truth, or samsaric world. Very freely, you can do. So, that first, the very first moment or thought is completely free from any conceptual ideas. That is reality we live in. That’s why from this reality you can create your life. It depends on you. [...] It depends on you to create a samsaric world, by your discriminating mind. 
+In this book (*Zen Master Dogen: An Introduction with Selected Writings*) it says, “There are two ways to realize enlightenment”; that’s it. But originally Dogen Zenji says, “There are two ways to settle the body and mind.” It’s very difficult to translate, but I think... well, “to settle body and mind in oneness.” *[He chuckles.]* In other words, if your body is here and listening to the Buddha’s teaching, all you have to do is your body and mind must be *settled*, right here, right now, becoming one with the Buddha’s teaching. That is called *settling*: to settle your body and mind in oneness. 
 
-Yesterday I mentioned, should I run a business? But I don’t have money? But I want to do. What should I do? So you are always juggling: this way and that way, this way and that way. Finally, nothing to do. So this is really a picture of the human suffering we create. This is called *samsara*. 
+In other words, you have to settle your body and mind in repose and bliss, right here, right now. For this, there are two ways. 
 
-So finally what you have to do is, if you don’t have money, anyway, stop it. That’s very clear. 
+[The first] is, listen to the Buddha’s teaching under the guidance of a great teacher. The second is to do zazen wholeheartedly. 
+
+*Wholeheartly* is constantly... well, Dr. Abe says, “negotiating the Way.” *[He chuckles.]* I don’t know [about] “negotiating the Way.” But anyway, in many ways “you have to negotiate.” [That] means you have to watch carefully and closely, very closely. Just like a friend, just like your body and mind, very closely you have to constantly watch, taking care of. This is the “negotiating the Way.” 
+
+So, I think *wholeheartedly* means that constantly you have to do zazen wholeheartedly, which means negotiating the zazen which you are doing. Because we are standing up in the moment, which is very subtle, very subtle. *Subtle* means... in a sense, very “crisis point.” You are at the crisis point: whichever [way] you go, you can go. Whatever you want to do, you can do it. So it’s a very ... crisis situation. Is that clear? For instance, at the first very moment, the first thought, which you cannot realize it, is a very crisis situation. You can go this way or you can go that way – *truth*, or *samsaric world*. Very freely, you can do. So, that very first moment or thought is completely free from any conceptual ideas.
+
+That is the reality we live in. That’s why from this reality you can create your life. It depends on you! [...] It depends on you to create a samsaric world, by your discriminating mind. 
+
+Yesterday I mentioned, “Should I run a business? But I don’t have money. But I want to do it. What should I do?” So you are always juggling: this way and that way, this way, that way. Finally, nothing to do. So this is really a picture of the human suffering we create. This is called *samsara*. 
+
+So finally what you have to do is: if you don’t have money, stop it. That’s very clear. 
 
 So you can stop it, [or] you can create *samsara*. That is your situation that you live in constantly. So that, is I mentioned, the very first beginning, the very first thought or moment. 
 
-It’s very difficult to say “moment,” but temporarily I say “first moment,” very first moment. But it is not something you can put a name on. It’s the very first, very beginning. So nothing there. But it’s working. Something. 
+It’s very difficult to say “moment,” but temporarily I say “first moment,” very first moment. But it is not something you can put a name on. It’s the very first, very beginning. So nothing there. But it’s working; something. 
 
 So that is the “wholeheartedly”: you have to do it wholeheartedly, otherwise you cannot be there *exactly*. 
 
 So one [way] is to listen to the dharma under a good teacher. The other is to do zazen wholeheartedly. 
 
-#### 
+#### 14:25
 
 And then Dogen Zenji says, 
 
@@ -61,21 +75,23 @@ And then Dogen Zenji says,
 
 “Full play.” Dr. Abe [translates this as] “to disport yourself in *samadhi*.” If you do zazen, you disport yourself in *samadhi*. 
 
-To listen to the dharma – so-called listening to Buddha’s teaching – is to disport yourself in *samadhi*. Because discriminating mind is characterized by attachment. Just like a wood tick, you know? Wherever discriminating mind goes – a world of intellect or a world of sensation – any way, discriminating mind always attaches to [it], like a wood tick. 
+To listen to the dharma – so-called listening to Buddha’s teaching – is to disport yourself in *samadhi*. Because discriminating mind is characterized by attachment. Just like a wood tick, you know? Wherever discriminating mind goes – a world of intellect or a world of sensation – anyway, discriminating mind always attaches to [it], like a wood tick. 
 
-So you have to understand the characteristics of discriminating mind. On the other hand, discriminating mind doesn’t have a particular solid nature, so-called attachment. If you don’t meddle with discriminating mind, discriminating mind is always working in every area of existence freely. 
+So you have to understand the characteristics of discriminating mind. On the other hand, discriminating mind doesn’t have a particular solid nature, so-called *attachment*. If you don’t meddle with discriminating mind, discriminating mind is always working in every area of existence freely. 
 
-So when you concentrate on breathing, just breathe, concentrate on breathing. Discriminating mind allows you to watch, reflect upon yourself, what you are doing as a result; you are always watching the result. This is really attachment, so-called attachment, created by reflection. Automatically we do it, and then attach to it. [But] if you *don’t* do it – perfectly you use your whole energy and just plunge into *samadhi* itself – well, there is no room for the discriminating mind to reflect upon what you are doing, because you and your body and mind are exactly one with *samadhi*, or breathing itself. 
+So when you concentrate on breathing, just breathe, concentrate on breathing. But discriminating mind allows you to watch, reflect upon yourself, what you are doing as a result; you are always watching the result. This is really attachment, so-called attachment, created by reflection. 
+
+So automatically we do it, and then attach to it. [But] if you *don’t* do it – perfectly you use your whole energy and just plunge into *samadhi* itself – well, there is no room for the discriminating mind to reflect upon what you are doing, because you and your body and mind are exactly one with *samadhi*, or breathing itself. 
 
 So that’s why “listening to the dharma” means “to give full play to discriminating mind.” 
 
-So if you have the attachment, very strong attachment to your ideas or your *ism*, your standpoint, very naturally you are critical of others, and you cannot actually open your heart. You cannot accept, you cannot listen to dharma. Dharma means *universe*. Okay? Your body and mind is very small, so if you don’t open your heart, there is no space to allow the whole universe to [be] let in. 
+So if you have the attachment, very strong attachment to your ideas or your *ism*, your standpoint, very naturally you are critical of others, and you cannot actually open your heart. And you cannot accept, you cannot listen to dharma. Dharma means *universe*. Okay? Your body and mind is very small, so if you don’t open your heart, there is no space to allow the whole universe to be let in. 
 
-Usually we don’t do it; always we have a discriminating mind of our own, and then we see it – we see ourselves and others, et cetera. So very naturally you become critical. You become critical to others very naturally, that is simultaneously you are critical to yourself. So there is no way to be free from discriminating mind. So you are completely caught by discriminating mind. 
+But usually we don’t do it; always we have a discriminating mind of our own, and then we see it – we see ourselves and others, et cetera. So very naturally you become critical. [When] you become critical to others, very naturally that is simultaneously you are critical to yourself. So there is no way to be free from discriminating mind. So you are completely caught by discriminating mind. 
 
-So *listening to Buddha’s teaching* is to learn something, to allow your discriminating mind to be free, anyway free. To open your heart – this is listening to the Buddha’s teaching. 
+So *listening to Buddha’s teaching* is to learn something, to allow your discriminating mind to be *free*, anyway free. To open your heart – this is listening to the Buddha’s teaching. 
 
-#### 
+#### 20:12
 
 So through the teacher you can listen to Buddha’s teaching, but we are always critical toward the teaching and also the teacher. 
 
@@ -131,11 +147,11 @@ And then next, Dogen Zenji [says],
 
 > Everyone is endowed with body and mind, though their actions inevitably vary, being either strong or weak, brave or cowardly. It is through the daily actions of our body and mind, however, that we directly become Buddha with our body and mind. This is known as realization of the Way.
 
-Here it says “realization of the Way”: *joto*. So, *joto*, to assimilate and actualize *it*, is to become Buddha with your body and mind directly. Not to become Buddha *after* doing something. Okay? 
+Here it says “realization of the Way”: *jōtō*. So, *jōtō*, to assimilate and actualize *it*, is to become Buddha with your body and mind directly. Not to become Buddha *after* doing something. Okay? 
 
-We always think, “By practice, then I will be Buddha. I am not good, that’s why I want to practice – and then after practice, I will be Buddha. I will be a good boy.” This is dualistic. So, *joto* is directly you have to become Buddha with whole body and mind, your body and mind. This is *joto*. 
+We always think, “By practice, then I will be Buddha. I am not good, that’s why I want to practice – and then after practice, I will be Buddha. I will be a good boy.” This is dualistic. So, *jōtō* is directly you have to become Buddha with whole body and mind, your body and mind. This is *jōtō*. 
 
-Well, without *joto*, assimilating and actualizing *it*, no one grows, no one is educated. That is real education of human beings. Because everyone lives in that way. But people misuse that *it*, okay? Even though they are there. They are present in it, but they always misunderstand and misuse. So very naturally, if you don’t teach that way, teach *joto*, assimilating and actualizing *itself*, *it* – you cannot educate anybody properly. 
+Well, without *jōtō*, assimilating and actualizing *it*, no one grows, no one is educated. That is real education of human beings. Because everyone lives in that way. But people misuse that *it*, okay? Even though they are there. They are present in it, but they always misunderstand and misuse. So very naturally, if you don’t teach that way, teach *jōtō*, assimilating and actualizing *itself*, *it* – you cannot educate anybody properly. 
 
 Of course, school educates many people. But what does school teach? I don’t think school teaches how to assimilate, how to realize *it*. No. Always *something*, you know, something floating on the surface of oceans – always we teach those. So, we completely forget *it* – where we always are present in it. 
 
@@ -145,7 +161,7 @@ So we have to teach this. That’s why Zen Buddhism teaches that. Otherwise you 
 
 ... through the daily actions of our body and mind, however, that we directly become the Buddha. 
 
-This is known as *joto* – assimilating and actualizing *it*. 
+This is known as *jōtō* – assimilating and actualizing *it*. 
 
 This is called *transmit*. Transmit the sublimity of human life to the next generation.
 
@@ -201,7 +217,7 @@ Do you have a question?
 
 **Katagiri Roshi:** *Hai.*
 
-**Questioner:** Is *joto*, the assimilating and actualizing, the same as [where] in the opening sutra [it] says, “Having it to see and listen to, remember and accept”? Is “accept” here the same as *joto*?
+**Questioner:** Is *jōtō*, the assimilating and actualizing, the same as [where] in the opening sutra [it] says, “Having it to see and listen to, remember and accept”? Is “accept” here the same as *jōtō*?
 
 [...]
 
