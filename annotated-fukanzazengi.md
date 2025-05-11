@@ -24,8 +24,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
 
-- Katagiri Roshi (KR) translates this as: “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” 
-- See [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
+- Katagiri Roshi (KR) translates this as: “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” See [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1).
 
 > Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? It is never apart from this very place; what is the use of traveling around to practice? 
 
