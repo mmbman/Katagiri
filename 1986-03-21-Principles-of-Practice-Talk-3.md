@@ -186,7 +186,7 @@ So it’s very simple, a very simple world. But it’s really huge, you know, th
 
 So the purpose of spiritual life [is], simply speaking, you should touch this enormous surprise. That’s it. 
 
-Well, if you explain what it is, it is simple, very simple, and clear, and silent. But simultaneously, the whole world is coming up. That’s why Dogen Zenji constantly says in *Shobogenzo*, “Self is the whole universe.” The mountains, rivers, pebbles, are all sentient beings. All are buddhas. The whole world is coming up. 
+Well, if you explain what it is, it is simple, very simple, and clear, and silent. But simultaneously, the whole world is coming up. That’s why Dogen Zenji constantly says in *Shōbōgenzō*, “Self is the whole universe.” The mountains, rivers, pebbles, are all sentient beings. All are buddhas. The whole world is coming up. 
 
 But that whole world coming up [is] very simple situations. That is first thought, we can [confront] it with. This is the egolessness. We have to practice this. 
 
@@ -200,7 +200,7 @@ Okay, do you have a question?
 
 #### 55:55
 
-In [*Shobogenzo*] *Zuimonki* and also *Diamond Sutra*, Dogen Zenji mentions very strongly the practice of egolessness. Very often, here and there. If you read the *Record of Things Heard*, he constantly recommends us to practice egolessness. 
+In [*Shōbōgenzō*] *Zuimonki* and also *Diamond Sutra*, Dogen Zenji mentions very strongly the practice of egolessness. Very often, here and there. If you read the *Record of Things Heard*, he constantly recommends us to practice egolessness. 
 
 It’s not the negative, pessimistic way, okay? That’s why I explain like this. You should accept it in this way. 
 

@@ -28,7 +28,7 @@ Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* fu
 
 ##### [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
 
-Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature (*kenshō*) and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
+Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature (*kenshō*) and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shōbōgenzō* which relates to four kinds of misunderstanding of Buddhism. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
 
 ---
 

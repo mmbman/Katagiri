@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo Kokyo: Form and Mirror – Talk 2"
+title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 2"
 ---
 ## October 19, 1986 Dharma Talk by Dainin Katagiri Roshi
 

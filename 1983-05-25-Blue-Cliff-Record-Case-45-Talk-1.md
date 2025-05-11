@@ -33,7 +33,7 @@ The Case:
 > 
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
-Chao Chou (Zhaozhou Congshen, or in Japanese Jōshū Jūshin, 778–897) was one of the most famous Zen Masters in China. Dogen Zenji really admired and respected this Zen master. He was a monk when he was sixty, and he attained enlightenment at the age of eighty. And he died at age 120. *[They laugh.]* Amazing. I wish I could live to 120, but... really amazing. For forty years, anyway, he taught Zen Buddhism in China. He is a really famous Zen Master. Lots of stories in koans, the *Blue Cliff Record*, and also Dogen Zenji mentions him in *Shobogenzo* very often. 
+Chao Chou (Zhaozhou Congshen, or in Japanese Jōshū Jūshin, 778–897) was one of the most famous Zen Masters in China. Dogen Zenji really admired and respected this Zen master. He was a monk when he was sixty, and he attained enlightenment at the age of eighty. And he died at age 120. *[They laugh.]* Amazing. I wish I could live to 120, but... really amazing. For forty years, anyway, he taught Zen Buddhism in China. He is a really famous Zen Master. Lots of stories in koans, the *Blue Cliff Record*, and also Dogen Zenji mentions him in *Shōbōgenzō* very often. 
 
 This koan is also pretty famous. 
 

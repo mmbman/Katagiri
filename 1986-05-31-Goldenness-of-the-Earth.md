@@ -18,7 +18,7 @@ title: "The Goldenness of the Earth, the Sweet Milk of the Long River"
 
 #### 0:00
 
-The last sentence of *Genjokoan* in *Shobogenzo* says:
+The last sentence of *Genjokoan* in *Shōbōgenzō* says:
 
 > The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.
 
@@ -48,7 +48,7 @@ This is our peace movement.
 
 We ask people to light a candle every Sunday night. If you do this in your own narrow understanding, it is a really tiny activity. No one knows. But I think this is pretty good for us. Because there is a goal for human life, [some gold,] \[toward] which you should go, instead of drifting in the ocean. You can sail across the ocean of human life.
 
-Dogen Zenji says in *Shobogenzo* that life is like riding in a boat. But usually people are always just riding in the boat, because the big ship of the whole universe, where you ride, is going, carrying you. And then we don’t know in which [way] to go. So that’s why people say, “We don’t know what will happen in the future, so let’s leave the rest to fate.” This is exactly the way to be drifting in the ocean. It is not good. So Dogen Zenji says to please use a tiller, a pole, to row the boat. This is important for us. 
+Dogen Zenji says in *Shōbōgenzō* that life is like riding in a boat. But usually people are always just riding in the boat, because the big ship of the whole universe, where you ride, is going, carrying you. And then we don’t know in which [way] to go. So that’s why people say, “We don’t know what will happen in the future, so let’s leave the rest to fate.” This is exactly the way to be drifting in the ocean. It is not good. So Dogen Zenji says to please use a tiller, a pole, to row the boat. This is important for us. 
 
 I mention constantly, if you really practice spiritual life, you cannot carry the spiritual life in terms of your understanding. If you want to practice spiritual life for the long run, you should live in vow. Vow means you should live your life. In peace, in harmony, with deep, profound aspiration. Living in peace and harmony with all sentient beings.
 

@@ -248,7 +248,7 @@ But we don’t do it, usually.
 
 That’s why Dogen Zenji says, the basic attitude is *this*, but nevertheless, you cannot follow it exactly, it’s very difficult. That’s why you need the compassion, wisdom, encouragement, practicing together, et cetera. 
 
-Read this *Record of Things Heard*. *Shobogenzo* is very strict in a sense, but on the other hand, this *Record of Things Heard* tries to encourage us to practice, to follow the Buddha’s way, continually, with really deep compassion. 
+Read this *Record of Things Heard*. *Shōbōgenzō* is very strict in a sense, but on the other hand, this *Record of Things Heard* tries to encourage us to practice, to follow the Buddha’s way, continually, with really deep compassion. 
 
 #### 1:08:38
 

@@ -148,7 +148,7 @@ The “I don’t know” of Emperor Wu – I don’t know which of the two it wa
 
 So finally, the National Teacher was silent for a long time. Then he said, “Do you understand?” 
 
-In [Shobogenzo “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Dogen Zenji](glossary#dogen) says, \[quoting from a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
+In [Shōbōgenzō “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Dogen Zenji](glossary#dogen) says, \[quoting from a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
 
 > The Buddha said to the assembled monks, “There are four kinds of horses. The first kind immediately follows its rider's will when, in surprise and fear, it sees the shadow of a whip. The second does likewise when the whip strikes its hair. The third, however, does not obey its master until after the whip has struck its flesh. The fourth, finally, does not do so until the whip has reached its very bones.”
 > 

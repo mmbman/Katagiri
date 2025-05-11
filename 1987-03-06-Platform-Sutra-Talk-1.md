@@ -52,7 +52,7 @@ The Fifth Patriarch constantly emphasizes the spirit of the *Diamond Sutra*, say
 
 But I think this is a little bit questionable. 
 
-Dogen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shobogenzo*. And also in [the book] *Zen Master Dogen*, Dogen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
+Dogen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shōbōgenzō*. And also in [the book] *Zen Master Dogen*, Dogen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
 
 > The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
@@ -68,7 +68,7 @@ And in the “Sutra of the Mountains and Waters”, Dogen Zenji [says] also,
 
 > ... is something not approved by Buddhas and Zen adepts; *seeing into the mind*, *seeing into one’s own nature* is the livelihood of heretics; *sticking to words and phrases* is not the expression of liberation.
 >
-> (From *Shobogenzo: Zen Essays by Dogen*, translated by Thomas Cleary, page 91.)
+> (From *Shōbōgenzō: Zen Essays by Dogen*, translated by Thomas Cleary, page 91.)
 
 So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
 
@@ -78,7 +78,7 @@ But Dogen Zenji always [says] your basic nature is exactly buddha. It is not [ju
 
 #### 11:00
 
-I think if you read the “Buddha Nature” [chapter] of *Shobogenzo* (“Busshō”), [it’s] a little bit difficult to understand, but you would taste what the buddha-nature is. So that is a most important chapter for you, to understand Dogen Zenji’s teaching and also Buddha’s teaching, [that is,] in terms of general Buddhism. 
+I think if you read the “Buddha Nature” [chapter] of *Shōbōgenzō* (“Busshō”), [it’s] a little bit difficult to understand, but you would taste what the buddha-nature is. So that is a most important chapter for you, to understand Dogen Zenji’s teaching and also Buddha’s teaching, [that is,] in terms of general Buddhism. 
 
 So according to [Dogen in] “Buddha Nature,” there are two points. He [talks] about buddha-nature [according to *Nirvana Sutra*]; he quotes a sentence of *Nirvana Sutra* and comments on this. So there are two points he mentioned.
 
@@ -271,7 +271,7 @@ Okay. *Hai.* Do you have questions?
 
 **Katagiri Roshi:** Uh, not only Dogen. I think the introduction written by Echū, who was one of Hui Neng’s disciples, [talks about this]. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it, and then other monks, other disciples, always carried it, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] “mixed up.”
 
-(*Transcriber’s Note:* It’s not clear what introduction is referred to above, but there is a reference to Echū, also known as National Master Daishō, in *Shobogenzo* *Soku-shin-ze-butsu* – “Mind Here and Now Is Buddha” – where ostensibly he discusses *The Platform Sutra*.)
+(*Transcriber’s Note:* It’s not clear what introduction is referred to above, but there is a reference to Echū, also known as National Master Daishō, in *Shōbōgenzō* *Soku-shin-ze-butsu* – “Mind Here and Now Is Buddha” – where ostensibly he discusses *The Platform Sutra*.)
 
 That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. 
 
@@ -279,7 +279,7 @@ We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s
 
 So that’s why Dogen Zenji criticizes [it]... [Although] criticism is [not the right word]. Dogen Zenji tries to let us know what the *real* teaching of the Sixth Patriarch is, instead of putting it down. 
 
-So that’s why a key point of Zen practice is “to see into one’s own nature and become buddha.” But that is pretty dualistic; that is the point Dogen Zenji tries to [say] in *Shobogenzo*.
+So that’s why a key point of Zen practice is “to see into one’s own nature and become buddha.” But that is pretty dualistic; that is the point Dogen Zenji tries to [say] in *Shōbōgenzō*.
 
 Another question? 
 
@@ -345,7 +345,7 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 **Katagiri Roshi:** Because, as Dogen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
 
-It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (“*Shoji*” in *Shobogenzo*)? Dogen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe next day, please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
+It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (“*Shoji*” in *Shōbōgenzō*)? Dogen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe next day, please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
 
 [That is what] “no buddha-nature” [means]. “No buddha-nature” is *pretty* close. *[He chuckles slightly.]* Pretty close to the buddha-nature. [...]
 

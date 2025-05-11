@@ -292,7 +292,7 @@ So, again: you have to keep silent; then, just do it. “Just do it” is also e
 
 #### 1:03:19
 
-[Dogen](glossary#dogen) says in Shobogenzo Zuimonki, in “Nansen Kills The Cat”: [Nanquan says,] “Give a word of Zen; I let the [cat](glossary#cat) go” – [finally Dogen says that he] would let go of the cat, because the monk didn’t say anything, just kept silent. Silence is already an answer, a real answer. Silence is not silence, silence is a real answer: expression, manifesting yourself in the world. That’s why [Dogen](glossary#dogen) Zenji says, “I would let go of the cat.” 
+Dogen says in *Shōbōgenzō Zuimonki*, in “Nansen Kills The Cat”: [Nanquan says,] “Give a word of Zen; I let the [cat](glossary#cat) go” – [finally Dogen says that he] would let go of the cat, because the monk didn’t say anything, just kept silent. Silence is already an answer, a real answer. Silence is not silence, silence is a real answer: expression, manifesting yourself in the world. That’s why Dogen Zenji says, “I would let go of the cat.” 
 
 It’s not necessary to kill the cat. But in a sense, *to kill the cat* is great *[unintelligible]* – experience – to awaken the monk, because it’s very powerful to help somebody say something. “This is a picture. You don’t say the picture, you don’t say not picture, you don’t use real worlds, I mean *say* something about it.” It’s very powerful. Completely you come to a dead end, but you have to say [something]. So finally, you can say [something].
 

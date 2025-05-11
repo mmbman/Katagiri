@@ -38,9 +38,9 @@ The same applies to our lives, in many ways. Social status, position, and your l
 
 So that’s why in ancient times Buddha Shakyamuni told his disciples and followers to practice this mindfulness, contemplating the body as impure. Not only in Buddhism, but also in Christian monasteries they practice this, looking at human skeletons. That is very common, not only in Buddhist practice. 
 
-But Dogen Zenji understands this practice very deeply, so his teaching is quite different. He gives this teaching in *Shobogenzo*. 
+But Dogen Zenji understands this practice very deeply, so his teaching is quite different. He gives this teaching in *Shōbōgenzō*. 
 
-*Shobogenzo* is already translated into English, but we don’t understand it completely when we read it. Even the Japanese don’t understand it. So if you translate it, it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
+*Shōbōgenzō* is already translated into English, but we don’t understand it completely when we read it. Even the Japanese don’t understand it. So if you translate it, it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
 
 [I will start with] one translation by Nishiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness in Japanese, it’s kind of like repeating a magic spell. [...] 
 
@@ -52,7 +52,7 @@ But even though you don’t understand, I have to say something. That’s the be
 
 > “Observation that the body is impure” is observing that the body is a bag of skin that covers the entire universe of the ten directions. This becomes the true body, and therefore transcends pure and impure. If there is no detachment, there can be no attainment of this observation. If there is no body there can be no attainment of practice, teaching, or observation of the body’s impurity. Yet the attainment of this observation has already been actualized, so we should know that it is gained through detachment. The attainment of this observation appears in such daily activities as sweeping the grounds and wiping the zazen platform. If we practice like this for months and years, it will become an absolute fact, covering the great earth in its total suchness.
 >
-> (From *Shobogenzo: The Eye and Treasury of the True Law, Volume 2*, translated by Kōzen Nishiyama.)
+> (From *Shōbōgenzō: The Eye and Treasury of the True Law, Volume 2*, translated by Kōzen Nishiyama.)
 
 This is one paragraph. As a conclusion, this paragraph says [that] practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. 
 

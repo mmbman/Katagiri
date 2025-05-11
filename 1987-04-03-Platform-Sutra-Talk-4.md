@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 4"
 
 ### Summary
 
-Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature (*kenshō*) and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shobogenzo* which relates to four kinds of misunderstanding of Buddhism. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
+Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature (*kenshō*) and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shōbōgenzō* which relates to four kinds of misunderstanding of Buddhism. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
 
 ### Transcript
 
@@ -41,7 +41,7 @@ Today I would like to say a little bit about this point.
 
 #### 8:05
 
-I think in *Shobogenzo* “*Shizen-biku*”, “Four Zen *Bhikkhus*,” Dogen Zenji [talks] about the misunderstanding of Zen practice [or] Buddhist practice by many Zen monks in those days, quoting one of the Zen teacher’s statements. The Zen teacher [talks] about the realization of the truth based on [the] oneness of [...] three [ancient] teachings in China and also Buddhism. There are three: Taoism, Confucianism, and one more; I forgot the Chinese [name]. One more, three, and also Buddhism. [...] So one of the Zen teachers [talks about] the unity of the four religions [in China]. And then [for] each of the religions, [he states] the purpose of its own practice: what is the purpose of Confucianism, what is the purpose of Taoism, what is the purpose of Buddhist practice. [The Zen teacher says the purpose of] Buddhist practice is to see into one’s own nature. Then Dogen Zenji [says] that is a misunderstanding of Buddhism. 
+I think in *Shōbōgenzō* “*Shizen-biku*”, “Four Zen *Bhikkhus*,” Dogen Zenji [talks] about the misunderstanding of Zen practice [or] Buddhist practice by many Zen monks in those days, quoting one of the Zen teacher’s statements. The Zen teacher [talks] about the realization of the truth based on [the] oneness of [...] three [ancient] teachings in China and also Buddhism. There are three: Taoism, Confucianism, and one more; I forgot the Chinese [name]. One more, three, and also Buddhism. [...] So one of the Zen teachers [talks about] the unity of the four religions [in China]. And then [for] each of the religions, [he states] the purpose of its own practice: what is the purpose of Confucianism, what is the purpose of Taoism, what is the purpose of Buddhist practice. [The Zen teacher says the purpose of] Buddhist practice is to see into one’s own nature. Then Dogen Zenji [says] that is a misunderstanding of Buddhism. 
 
 And even though the sutra of the Sixth Patriarch [says it] like this... Do you remember, in the beginning I think, the Sixth Patriarch sutra [talks] about this point? [...] Page 43:
 
@@ -61,11 +61,11 @@ So very naturally you have to see your self-nature; this is the purpose of Buddh
 
 #### 13:40
 
-Then, I think in *Shobogenzo* there is a very interesting point [in] “Scripture of Mountains and Waters.” I think I gave a *teisho* last year about this one. But on page 91, it is a very interesting point here, so let me read [it]:
+Then, I think in *Shōbōgenzō* there is a very interesting point [in] “Scripture of Mountains and Waters.” I think I gave a *teisho* last year about this one. But on page 91, it is a very interesting point here, so let me read [it]:
 
 > So it is that the total bringing forth of amassed qualities is made into form and name, into the lifeline. There is *walking*, there is *flowing*. There is a time when mountains give birth to mountain children. Because of the principle of mountains becoming Buddhas and Zen adepts, Buddhas and Zen adepts emerge and appear in this way. Even when we may have eyes for the manifestation of *plants and trees, earth and stones, walls and fences,* we are not in doubt, not disturbed – this is not *total manifestation of being*. Even though a time may manifest when it is seen as *arrays of treasures*, this is not the true ultimate. Even if there is *manifestation of being* seen as the realm of the Buddhas’ practice of the way, it is not necessarily something to love. Even if we attain the summit of *seeing manifestation of being* as the inconceivable qualities of the Buddhas, reality as it is is not only like this. Individual views of being are individual objects and subjects. This is not to say that they are to be considered *the work on the Way* of Buddhas and Zen adepts – they are limited views of one corner. 
 >
-> (From *Shobogenzo: Zen Essays by Dogen*, translated by Thomas Cleary, page 90.)
+> (From *Shōbōgenzō: Zen Essays by Dogen*, translated by Thomas Cleary, page 90.)
 
 [Here] Dogen Zenji mentions four views [of] many people. The first one, [it says here, is,] “When we may have eyes for the manifestation of *plants and trees, earth and stones, walls and fences,* we are not in doubt, not disturbed – this is not *total manifestation of being*.”
 

@@ -80,7 +80,7 @@ So from this point, it’s impossible for us to understand, even philosophically
 
 That is *the truth*. If so, you cannot say truth creates samsara. But some Buddhist scholars understood by the activity of the absolute truth, samsaric world is created through this. But that is a little bit misunderstanding. 
 
-So, if so, that’s why this course, anyway, find out another category, so-called *tathagatagarbha*. *Tathagatagarbha* is very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shobogenzo*, the meaning of *time-being*, mentioned by Dogen himself. You can see a little bit. 
+So, if so, that’s why this course, anyway, find out another category, so-called *tathagatagarbha*. *Tathagatagarbha* is very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being*, mentioned by Dogen himself. You can see a little bit. 
 
 So, *tathagatagarbha*. That’s why this discourse brings up another term, so-called *tathagatagarbha*. So, *tathagatagarbha* is the truth dwelling in... us. And “all beings”. Not abstracted. Not abstracted idea of the principle or action – no. *Tathagatagarbha* is the very important ground of life. So, not abstract, an idea.
 

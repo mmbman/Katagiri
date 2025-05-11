@@ -88,7 +88,7 @@ So we should totally accept this everydayness. And then naturally you remember t
 
 #### 34:38
 
-Second, *the wheel of anger*. How can you turn the *poison* of anger into the *wheel* of anger? I think Dogen Zenji says it (in *Sanjūshichi-bon-bodai-bunpō*, the “Thirty-Seven Elements of Bodhi” fascicle of *Shobogenzo*) like this:
+Second, *the wheel of anger*. How can you turn the *poison* of anger into the *wheel* of anger? I think Dogen Zenji says it (in *Sanjūshichi-bon-bodai-bunpō*, the “Thirty-Seven Elements of Bodhi” fascicle of *Shōbōgenzō*) like this:
 
 > When a demon becomes Buddha, you should subdue him and let him become the Buddha by dealing with it. When the Buddha becomes the Buddha, you should intend to become the Buddha and let him become Buddha by dealing with the Buddha. When a person becomes the Buddha, you should harmonize him and let him become the Buddha by dealing with him. You should know that there is a passage to freedom the moment when you deal with.
 

@@ -1,5 +1,5 @@
 ---
-title: "Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 4"
+title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 4"
 ---
 ## March 14, 1987 Dharma Talk by Dainin Katagiri Roshi
 

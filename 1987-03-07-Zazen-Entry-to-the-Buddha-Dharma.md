@@ -137,7 +137,7 @@ Simple activity means using your consciousness and using your whole body with wh
 
 This is why that simple activity is important: in order to experience intimacy. Let me explain this once again. 
 
-Dogen Zenji explains about washing the robe in *Shobogenzo*: how you can wash the robe using [water with ashes]. In ancient time we didn’t have soap, so using [water with ashes]. I don’t want to explain this [way], I want to explain [using] your washing machine. 
+Dogen Zenji explains about washing the robe in *Shōbōgenzō*: how you can wash the robe using [water with ashes]. In ancient time we didn’t have soap, so using [water with ashes]. I don’t want to explain this [way], I want to explain [using] your washing machine. 
 
 So, look at the washing machine. If you want to wash your dirty clothes, you have to put the dirty clothes in the washing machine, and also, next, the pure, clean water there. That is called the dualistic world: dullness, distractions, and good or bad, right and wrong; the phenomenal world. 
 

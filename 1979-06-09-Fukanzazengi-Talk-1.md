@@ -133,7 +133,7 @@ If you meddle with “all involvements” or “all affairs” right in the midd
 
 And next, our *sensory system*. We have a sensory system; but it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
-That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the [*Zazengi*](topics#zazengi) chapter of [*Shobogenzo*](topics#shobogenzo), which is distinct from [*Fukan zazengi*](topics#fukanzazengi).)
+That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the *Zazengi* chapter of *Shōbōgenzō*, which is distinct from *Fukan zazengi*.)
 
 First of all, you should make a choice of circumstances, what kind of a room you have to use. Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
@@ -165,7 +165,7 @@ But there is one thing which you can control, and that is the breath. And the br
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe; see [*The Heart of Dogen's Shobogenzo* (PDF File)](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf). Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
+(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe, from *The Heart of Dogen's Shobogenzo*. Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
 
 That is the brain-nerve system. According to the brain-nerve system, we have to regulate mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
 

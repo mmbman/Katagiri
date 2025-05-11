@@ -47,7 +47,7 @@ And then in the next passage, Dogen Zenji takes the method of washing the robe a
 
 > For example, it is just like the method of washing a robe. Water is contaminated by the robe; the robe is soaked in water. Although the robe is cleaned with the aid of water and by changing the water, water is still being used, and the robe is being washed. More than one or two washings are necessary, and we shouldn’t rest until it is clean. When the water is used up, we put more water in. We wash the clean robe again to make it cleaner. It is good for the robe to be clean that all kinds of water are used. We must clarify the principle that there is a fish in dirty water. 
 > 
-> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice,” in *Shobogenzo*.)
+> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice,” in *Shōbōgenzō*.)
 
 In the context of this passage there is something more than a method of washing the robe. He takes the method of washing a robe as an example, but this is the method of Buddhist practice. So I would like to explain a little bit about this.
 
@@ -125,7 +125,7 @@ So, that means Tozan Zen Master found the very strong arrogance within this monk
 
 So that is not Buddhist practice, because Buddhist practice is very warm, compassionate. Very compassionate. 
 
-That’s why Dogen Zenji says in the *Shobogenzo* something like this: “Hearing the proclaiming [of] the dharma life after life, existence after existence, is to hear the dharma world after world. We can hear in our present existence the dharma which has been transmitted from the past up to the present. Within the dharma there is creation and destruction. Therefore, if we rightly transmit the dharma throughout the entire universe of the ten directions, we can hear it life after life and practice it existence after existence, since the dharma is actualized life after life and manifested in existence after existence.” 
+That’s why Dogen Zenji says in the *Shōbōgenzō* something like this: “Hearing the proclaiming [of] the dharma life after life, existence after existence, is to hear the dharma world after world. We can hear in our present existence the dharma which has been transmitted from the past up to the present. Within the dharma there is creation and destruction. Therefore, if we rightly transmit the dharma throughout the entire universe of the ten directions, we can hear it life after life and practice it existence after existence, since the dharma is actualized life after life and manifested in existence after existence.” 
 
 So, washing the clean robe – in other words, preserving the seed of buddha, buddha-nature – preserving the crops in autumn. That practice is something going constantly. You don’t know when you preserve perfectly. You don’t know when small holes appear in storage. So, you have to anyway take best care of storage. *Storage* means the circumstances, your human body, human mind, and people – taking care of [them] with our best [effort]. And then, you don’t know when you complete your practice, the practice of preserving the crops. We don’t know. We don’t know when [there is] failure of preserving. We don’t know. So constantly we have to do. Even though materialistically you preserve something perfectly, [still] the weather, everything, circumstances are changing. So, we don’t know what’s happening. 
 

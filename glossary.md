@@ -282,7 +282,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dogen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shobogenzo](topics#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shōbōgenzō](topics#shobogenzo). 
 
 Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
 
@@ -395,7 +395,7 @@ Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa
 
 ## Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shobogenzo](#shobogenzo). It is both an introduction to and overview of Dogen's teachings. 
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shōbōgenzō](#shobogenzo). It is both an introduction to and overview of Dogen's teachings. 
 
 [See Topic Index](topics#genjokoan)
 

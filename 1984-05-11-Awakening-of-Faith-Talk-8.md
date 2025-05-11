@@ -287,7 +287,7 @@ So, that’s why we have to understand the world in terms of phenomena. Through 
 
 That’s why we have to research. 
 
-So that’s why Dogen Zenji mentions in the *Shobogenzo* and the awakening of the bodhi-mind. The awakening of the bodhi mind. Explaining about time. Moment.
+So that’s why Dogen Zenji mentions in the *Shōbōgenzō* and the awakening of the bodhi-mind. The awakening of the bodhi mind. Explaining about time. Moment.
 
 Okay. Do you have questions about this? 
 

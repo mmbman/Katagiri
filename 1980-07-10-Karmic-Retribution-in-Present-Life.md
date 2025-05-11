@@ -200,7 +200,7 @@ So, his death teaches us in that way. If you understand his death in that way, w
 
 That’s why Dogen Zenji also says it like this. Because [...] the bear’s life [is not only] helping the woodcutter in this story, but all beings benefit [all beings]. So there is no reason we should hurt anything. We should take best care of all sentient beings, with wholeheartedness. That is our effort, our practice: sharing compassion with all sentient beings.
 
-[Here] I explained one of the three karmic retributions, which is called *retribution experienced in one’s present life*. But if you want to know more, you can read this [chapter from *Shobogenzo*], *Sanji-no-gō*, “Karma in Three Times”, in this book, *Zen Master Dogen*. Karmic retribution in the three stages of time: past, present, and future. [It is presented as] very simple stories there.
+[Here] I explained one of the three karmic retributions, which is called *retribution experienced in one’s present life*. But if you want to know more, you can read this [chapter from *Shōbōgenzō*], *Sanji-no-gō*, “Karma in Three Times”, in this book, *Zen Master Dogen*. Karmic retribution in the three stages of time: past, present, and future. [It is presented as] very simple stories there.
 
 #### 1:21:21 end of recording
 

@@ -89,7 +89,7 @@ That is zazen. [It is a] simple form, simple practice: let’s return home. That
 
 #### 27:27
 
-Dogen Zenji comments [...] on the statement, “Supernatural powers and their wondrous functioning: hauling water and carrying firewood.” *(Transcriber’s Note: This is in* Shobogenzo Jinzū: “On the Marvelous Spiritual Abilities”. *The statement is from a verse by Layman P’ang.)*
+Dogen Zenji comments [...] on the statement, “Supernatural powers and their wondrous functioning: hauling water and carrying firewood.” (*Transcriber’s Note:* This is in *Shōbōgenzō Jinzu*̄, “On the Marvelous Spiritual Abilities”. The statement is from a verse by Layman P’ang.)
 
 Hauling water and carrying firewood are nothing but daily living. Hauling water and carrying firewood are not something *you* do, they are nothing but tuning into the rhythm of the universe – not only tuning in to the rhythm of your life, but also the rhythm of the universe. That is energy. So hauling water is hauling water *you* do, but hauling water is the manifestation of Buddha. That is called *supernatural power* or *spiritual power*.
 

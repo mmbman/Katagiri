@@ -21,7 +21,7 @@ Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-budd
 
 > Studying in such a manner, in the time of demons-becoming-buddha we subdue demons and make buddha with demons. In the time of buddhas-becoming-buddhas we are mindful of buddhas and make buddhas with buddhas. In the time of people-becoming-buddhas, we bring harmony to people and make buddhas with people. We should study the truth that there is the approach to buddhas where we are taking advantage of.
 > 
-> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shobogenzo*.)
+> (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shōbōgenzō*.)
 
 #### 1 - 02:16
 

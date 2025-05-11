@@ -146,7 +146,7 @@ So this is a fact of your life. Even though you believe you have attained enligh
 
 > “Why don’t you, from within your own mind, suddenly see the true suchness of your original nature?
 
-So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] about the buddha-nature very in detail in the *Shobogenzo*.
+So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] about the buddha-nature very in detail in the *Shōbōgenzō*.
 
 **Question:** So this double mask is the ongoing need to awaken to *[unintelligible]*?
 
