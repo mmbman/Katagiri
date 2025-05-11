@@ -93,55 +93,61 @@ So *listening to Buddha’s teaching* is to learn something, to allow your discr
 
 #### 20:12
 
-So through the teacher you can listen to Buddha’s teaching, but we are always critical toward the teaching and also the teacher. 
+So through the teacher you can listen to Buddha’s teaching, but we are always critical toward the teaching, and also the teacher. 
 
-If I say “don’t be critical of the teacher,” immediately [you might respond], “Should I be blind? Should I accept the teacher exactly?” This is also critical. Completely beyond this, you have to throw yourself into the buddha-dharma, and listen to. Otherwise you never know what the freedom is. Why do you practice spiritual life? It’s ridiculous. If you are always critical toward something, toward life, toward teaching, that is not necessary. If you do this, I think it’s necessary for you to practice zazen and Buddha’s teaching. [...] 
+If I say “don’t be critical of the teacher,” immediately [you might respond], “Should I be blind? Should I accept the teacher exactly?” This is also critical. Completely beyond this, you have to throw yourself into the buddha-dharma, and listen to [it]. Otherwise, you never know what the freedom is. Why do you practice spiritual life? It’s ridiculous. If you are always critical toward something – toward life, toward the teaching – that is not necessary. If you do this, I think it’s necessary for you to practice zazen and Buddha’s teaching and [religion]. 
 
-If you go to the Christianity, Christian people very simply tell you, “believe in God.” What do [they] mean? Can you understand what God is? No one understands what God is. But everyone accepts God. 
+If you go to Christianity, Christian people very simply tell you, “Believe in God.” What do [they] mean? Can you understand what God is? *No one* understands what God is. But everyone accepts God. 
 
-Do you have your own discriminating mind toward God? Oh, of course. But finally you don’t have any ideas of God, so you always open your heart right in front of God. That’s why Christianity is very strong, powerful to human beings, anybody. Because simply they present the existence of God. You have to believe, whether you like or it not. Anyway, they just present God, right there. 
+Do you have your own discriminating mind toward God? Oh, of course, but finally you don’t have any ideas of God, so you always open your heart right in front of God. 
+
+That’s why Christianity is very strong, powerful to human beings, anybody, because simply they present the existence of God. You have to believe, whether you like or it not. Anyway, they just present God, right there. 
 
 But Buddhism doesn’t. *[He laughs.]* That’s why Buddhism is pretty good in a sense, but Buddhism is very dangerous, you know? Because it allows you to be very critical, intellectual. That’s not good for us. 
 
-Very intellectual. *[He laughs.]* 
+Very intellectual. *[He laughs.]* So, Buddhism allows you to make your head *big*. And when you are young, you like Buddhism very much, because it’s very intellectual, scientific, psychological, and very humanistic, and you *love* it. But I don’t think that is the real spirit of Buddhism. You have to go beyond. Anyway, you have to go *through* this one. Otherwise, you don’t understand the real spirit of Buddhism. 
 
-So, Buddhism allows you to make your head *big*. And when you are young, you like Buddhism very much, because it’s very intellectual, scientific, psychological, and very humanistic, and you love it. But I don’t think it is the real spirit of Buddhism. You have to go beyond. Anyway, you have to go *through* this one. Otherwise, you don’t understand the real spirit of Buddhism. 
+So, that’s why we have to practice under the guidance of a person who lives here, and you need this kind of guidance through the real person – the first [and] second point I have mentioned, as [key points] of practice. We have to understand those two, and next we have to actualize those two key points of our practice, under the guidance of a person who lives with you. And then, we have to listen to Buddha’s teaching this. 
 
-So, that’s why we have to practice under the guidance of a person who lives here, and you need this kind of guidance through the real person – the first [and] second point I have mentioned, as [key points] of practice. We have to understand those two, and next we have to actualize those two key points of our practice, under the guidance of a person who lives with you. 
+So that’s why Dogen Zenji says “to listen to the dharma means to give full play to the discriminating mind.” 
 
-And then, we have to listen to Buddha’s teaching this. That’s why Dogen Zenji says “to listen to the dharma means to give full play to the discriminating mind.” 
-
-So no matter how long you discuss about what is the right teacher, what is the wrong teacher – forget it! It’s ridiculous to discuss about this. Instead of this, please *do*, please practice – according to these points I have mentioned. This is most important. Otherwise, no matter how long you are critical toward Buddha’s teaching, toward your teachers, et cetera, it doesn’t make sense for you as a Buddhist, if you really want to know what is the spiritual life. 
+So no matter how long you discuss about what is the right teacher, what is the wrong teacher – forget it! It’s ridiculous to discuss about this. Instead of this, please *do*. Please practice – according to these points I have mentioned. This is most important. Otherwise, no matter how long you are critical toward the Buddha’s teaching, toward your teachers, et cetera, it doesn’t make sense for you as a Buddhist, if you *really* want to know what is the spiritual life. 
 
 So [both] teacher and also student have to constantly practice these key points of practice, every day. And then you can know what the right teacher, true teacher is. 
 
-I mention sometimes, you have to continually seek for what the true teacher is. Forever, you have to research, you have to seek for it. Don’t think that this person or that person is right teacher for you. Don’t think in that way. But *temporarily*, this teacher or that teacher *is* your teacher, according to the causes and conditions. So, no way to escape. So, temporarily, let’s practice. Let’s practice under this teacher or that teacher [who] you have met in your lifetime by virtue of conditions and causes. So this is a unique opportunity for you. No other way to go. 
+I mention sometimes, you have to continually seek for what the true teacher is. *Forever*, you have to research, you have to seek for it. 
 
-And then – this is important – what you have to practice, instead of thinking or discussing what the right teacher is. It’s [secondary], anyway. Right teacher is, you have to show or practice Buddha’s teaching day by day. And teacher also exactly teaching, practicing Buddha’s teaching, with you. And then, we will understand what the right teacher is. 
+Don’t think that this person or that person is the right teacher for you. Don’t think in that way. But *temporarily*, this teacher or that teacher *is* your teacher, according to the causes and conditions. So, no way to escape. 
+
+So, temporarily, let’s practice! Let’s practice under this teacher or that teacher, [who] you have met in your lifetime by virtue of conditions and causes. So this is a unique opportunity for you. No other way to go. 
+
+And then, what do you have to practice? This is important: what you have to practice, instead of thinking or discussing what the right teacher is. That’s [secondary], anyway. Right teacher is [that] you have to show or practice Buddha’s teaching, day by day. And the teacher also is exactly teaching, practicing Buddha’s teaching with you. And then, we will understand what the right teacher is. 
 
 Okay. 
 
 That’s why “to listen to the dharma means to give full play to the discriminating mind.” Zazen is to manage free practice and realization. 
 
-Yesterday I [talked] about the practice. The practice is constantly you have to come back to the beginning, the very beginning of your existence. You come back to the very beginning of your birth, come back to the very beginning of standing right now, right here. The very beginning. Not to come back to the result, which you can see. Standing [is] not a result. You have to come back to the *real* source of standing right now, right here. And then, this is real managing zazen. Okay?
+Yesterday I [talked] about the practice. The practice is constantly you have to come back to the beginning, the very beginning of your existence. You come back to the very beginning of your birth, come back to the very beginning of standing right now, right here. The very beginning. Not to come back to the result, which you can see. Standing, [for example]. [Standing is] not a result. You have to come back to the *real* source of standing right now, right here. And then, this is real managing zazen. Okay?
 
-What is this? When you come back to the real source, that is called “managing free practice and realization.” Because, when you come back, that source, this is pretty hard, pretty hard practice. So, it’s practice. Because we are already creating our own life, and then put them aside, and then we have to go back to that one, that source. That’s pretty hard practice. But when you go back to there, it’s not hard practice. Immediately you are supported. 
+What is this? When you come back to the real source, that is called “managing free practice and realization.” Because, when you come back [to] that source, this is pretty hard, pretty hard practice. So, it’s practice! Because we are already creating our own life, and then put them aside, and then we have to go back to that one, that source. That’s pretty hard practice. But when you go back to there, it’s not hard practice! Immediately you are supported. 
 
-Just like jumping into the ocean. Before you jump into the ocean, you have to think what the ocean is, what swimming is, what the fear is, [what will happen]... I don’t know what happens in my body and mind. Maybe the moment when I jump into the ocean I could die. I don’t know. There is no guarantee. So, lots of stuff is coming up. That’s pretty hard practice. Anyway, training your body, your mind; understanding swimming, oceans, and the form of swimming, et cetera. But when you jump in, [...] when you sink into the ocean, the moment when you jump, simultaneously your body floats. Very naturally, you are supported. 
+Just like jumping into the ocean. Before you jump into the ocean, you have to think what the ocean is, what swimming is, what the fear is... I don’t know what happens in my body and mind. Maybe the moment when I jump into the ocean, I could die. I don’t know; there is no guarantee. So, lots of stuff is coming up. That’s pretty hard practice. Anyway, training your body, your mind; understanding swimming, oceans, and the form of swimming, et cetera. But when you jump in, [...] when you sink into the ocean, the moment when you jump, simultaneously your body floats. Very naturally, you are supported. 
 
-So, this is what is called “to learn the backward step which turns your light inwardly to illuminate yourself.” *Fukanzazengi* says this. Or, plainly speaking, it is called reflection. 
+So, this is what is called “to learn the backward step which turns your light inwardly to illuminate yourself.” *Fukanzazengi* says this. Or, plainly speaking, it is called *reflection*. 
 
-So, in a sense, reflection is considered as human suffering beyond human consciousness. [...] It’s really hard practice, because suffering is really a serious matter in life, proportion. Because you cannot get out from this. 
+So, in a sense, *reflection* is considered as human suffering beyond human consciousness. [It’s considered] in terms of hard practice. It’s really hard practice, because suffering is really a serious matter in life. [...] Because you cannot get out from this. 
 
-But [due to] this suffering, you can survive, anyway. You have to appreciate this suffering, because we are seeking for constantly something more than the conscious world or unconscious world. We are seeking for always. This is the suffering. So, that suffering comes into existence beyond your consciousness, the functioning of your consciousness. So, it is very serious in life. 
+But [because of] this suffering, you can survive. You have to appreciate this suffering, because we are seeking constantly for something more than the conscious world or unconscious world. We are seeking for it, always. This is the suffering. So, that suffering comes into existence beyond the functioning of your consciousness. So, it is very serious in life. 
 
-But if you realize it – if you realize that suffering, real suffering coming from the first moment of your being exactly – then you can attain enlightenment. 
+But if you realize that suffering, real suffering coming from the first moment of your being, exactly – then you can attain enlightenment. 
 
-So, suffering makes you sad and painful, but on the other hand, suffering makes you become big laughter, relief. You can be relieved, exactly. 
+So, suffering makes you sad and painful, but on the other hand, suffering makes you become big laughter, relief. You can [be relieved], exactly. 
 
-Well, you can experience this in your life. If you cry day [after] day, one moment, complete crying makes you big laughter. Just like the bottom of a bucket broken and the water rushing away from this, all of a sudden. So, this is the real picture of human suffering. 
+Well, you can experience this in your life. If you cry day [after] day, one moment completely crying [turns into] big laughter. Just like the bottom of a bucket broken and the water rushing away from it, all of a sudden. 
 
-#### 
+So, this is the real picture of human suffering. 
+
+#### 34:07
 
 And then next, Dogen Zenji [says], 
 
@@ -149,27 +155,31 @@ And then next, Dogen Zenji [says],
 
 Here it says “realization of the Way”: *jōtō*. So, *jōtō*, to assimilate and actualize *it*, is to become Buddha with your body and mind directly. Not to become Buddha *after* doing something. Okay? 
 
-We always think, “By practice, then I will be Buddha. I am not good, that’s why I want to practice – and then after practice, I will be Buddha. I will be a good boy.” This is dualistic. So, *jōtō* is directly you have to become Buddha with whole body and mind, your body and mind. This is *jōtō*. 
+We always think, “By practice, *then* I will be Buddha. I am not good, that’s why I want to practice. and then after practice, I will be Buddha. I will be a good boy.” This is dualistic. So *jōtō* is directly you have to become Buddha with whole body and mind, your body and mind. This is *jōtō*. 
 
-Well, without *jōtō*, assimilating and actualizing *it*, no one grows, no one is educated. That is real education of human beings. Because everyone lives in that way. But people misuse that *it*, okay? Even though they are there. They are present in it, but they always misunderstand and misuse. So very naturally, if you don’t teach that way, teach *jōtō*, assimilating and actualizing *itself*, *it* – you cannot educate anybody properly. 
+Well, without *jōtō*, assimilating and actualizing *it*, no one grows, no one is educated. That is real education of human beings. Because everyone lives in that way. 
 
-Of course, school educates many people. But what does school teach? I don’t think school teaches how to assimilate, how to realize *it*. No. Always *something*, you know, something floating on the surface of oceans – always we teach those. So, we completely forget *it* – where we always are present in it. 
+But people misuse that *it*. Okay? Even though they are there. They are present in it, but they always misunderstand and misuse. So very naturally, if you don’t teach that way, teach *jōtō*, assimilating and actualizing *itself*, *it* – you cannot educate anybody properly. 
 
-So we have to teach this. That’s why Zen Buddhism teaches that. Otherwise you cannot grow, you cannot educate yourself, you cannot teach, you cannot help anybody...
+Of course, school educates many people. But what does school teach? I don’t think school teaches how to assimilate *it*, how to realize *it*. No. [It’s] always *something* floating on the surface of oceans – always we teach those. We completely forget *it*, where we always are present in it. 
+
+So we have to teach this. That’s why Zen Buddhism teaches that. Otherwise you cannot grow, you cannot educate yourself, you cannot teach, you cannot help anybody.
 
 *[Tape change.]*
 
-... through the daily actions of our body and mind, however, that we directly become the Buddha. 
+... “It is through the daily actions of our body and mind, however, that we directly become the Buddha.” 
 
 This is known as *jōtō* – assimilating and actualizing *it*. 
 
 This is called *transmit*. Transmit the sublimity of human life to the next generation.
 
+#### 39:47
+
 And next it says:
 
-> There is no need to change our existing body and mind, for the direct realization of the Way simply...
+> There is no need to change our existing body and mind, for the direct realization of the Way simply means...
 
-... means here Dogen Zenji tries to explain what *direct* means, what *directness* means. 
+... here Dogen Zenji tries to explain what *direct* means, what *directness* means. 
 
 *Directness* means to allow to be realized by... the teacher. “Teacher” means the Buddha; by the Buddha. So the two... *direct* means to allow to be realized. Okay? By the teacher, by the Buddha... means you do not try to realize. If you try to realize, you are already attaching to your own discriminating mind. That’s why you always look at yourself and look at the teachers, look at the teaching and look at the process of your practice. So very naturally lots of criticism coming up. But actually, *direct* means you have to realize *where you are*. If you put yourself properly in the proper place, you are allowed to be realized. 
 
