@@ -231,15 +231,13 @@ Do you have a question?
 
 **Katagiri Roshi:** *Hai.*
 
-**Questioner:** Is *jōtō*, the assimilating and actualizing, the same as [where] in the opening sutra [it] says, “Having it to see and listen to, remember and accept”? Is “accept” here the same as *jōtō*?
+**Questioner:** Is *jōtō*, the assimilating and actualizing, the same as [where] in the opening sutra it says, “Having it to see and listen to, remember and accept”? Is “accept” here the same as *jōtō*?
 
 [...]
 
-**Katagiri Roshi:** Mm-hmm. Let’s [look at] the Japanese, okay? 
+**Katagiri Roshi:** Mmm. Let’s [look at] the Japanese, okay? *Ware ima ken mon shi juji suru koto e etari*.
 
-*Ware ima ken mon shi juji suru koto e etari*.
-
-*Ware* means “we” or “I”. 
+*Ware* means “we” or “I.” 
 
 *Ima* means “right now, right here.” 
 
@@ -249,31 +247,23 @@ Do you have a question?
 
 [...] So “to receive and keep.” *Koto e etari* means “I have received and kept dharma.” 
 
-So that means, yes, exactly – that’s why “*ima*”  – now – “I have seen and received.” And “accepted” or “received and maintained” – “kept” – “the Dharma.” Which is difficult for a human being to meet.
-
-So that is direct. But intellectually we don’t see it. It’s very difficult to see. 
+So, yes, exactly – that’s why *ima*  – now – “I have seen and received.” And “accepted” or “received and maintained” – “kept” – “the dharma.” Which is difficult for a human being to meet. So that is *direct*, but intellectually we don’t see it. It’s very difficult to see. 
 
 Is that alright?
 
 **Questioner:** Uh-huh. Also I was wondering if, from the point of view of the twelvefold chain of causation, what is the first thought? 
 
-**Katagiri Roshi:** Ignorance. The first thought, according to the twelve chains of causation, is ignorance. 
+**Katagiri Roshi:** *Ignorance*. The first thought, according to the twelve chains of causation, it is ignorance. 
 
 And then the world is coming up. Alright? 
 
-But ignorance... According to *The Awakening of Faith*, ignorance is the bottom of the *alayavijnana*, exactly the bottom of the *alayavijnana*. Which is *very* close to *tathagatagarbha*, so-called *eternity*.
+But ignorance... According to *The Awakening of Faith*, ignorance is the bottom of the *alayavijnana*, exactly the bottom of the *alayavijnana*. Which is *very* close to *tathagatagarbha*, so-called *eternity*. So that is a real partition between *tathagatagarbha* and *alayavijnana*. And then when something goes through this partition – something happens. 
 
-So that is a real partition, between *tathagatagarbha* and *alayavijnana*. And then when something goes through this partition – something happens. 
+So that is *ignorance*, we say. We don’t know *what* [it is]. Ignorance comes into existence by causes and conditions, conditioned elements – *that* we can say. Because we cannot trace back to [where ignorance comes from].
 
-So that is ignorance, we say. We don’t know *what* [it is]. Ignorance comes into existence by causes and conditions, conditioned elements, that we can say. Because we cannot trace back to [where ignorance comes from].
+**Question:** I thought maybe it would be the first thought would be *contact*.
 
-**Question:** *[inaudible]* That would be contact. This first thought. *[Inaudible.]*
-
-**Katagiri Roshi:** Oh, *contact*. I am talking about according to twelve chained causation. The first thought is, according to it, I think, *ignorance*. And then how ignorance creates the human world – *then* you can say *contact*.
-
-So at least five consciousnesses there. Consciousnesses exist. Whatever circumstances you may be, at least five consciousnesses exist there. Under all circumstances. Okay? 
-
-And then, ignorance creates lots of samsaric world.
+**Katagiri Roshi:** Oh, *contact*. I am talking about according to twelve chained causation. The first thought is, according to it, I think, *ignorance*. And then how ignorance creates the human world – *then* you can say *contact*. So at least five consciousnesses there. Whatever circumstances you may be in, at least five consciousnesses exist there. Under all circumstances. Okay? And then, ignorance creates lots of samsaric world.
 
 #### 1:00:50
 
@@ -291,7 +281,7 @@ And then, ignorance creates lots of samsaric world.
 
 Is there anyone [else]... ?
 
-**Someone:** [It’s] sort of like, the big horse pasture, is give ... *[inaudible]*. You know, in [*Zen Mind, Beginner’s Mind*], the saying is... “give the cows a big pasture.”
+**Someone:** Hojo-san, is it sort of like, a big horse pasture, ... You know, in [*Zen Mind, Beginner’s Mind*], the saying is... “give the cows a big pasture.”
 
 **Someone:** A horse pasture is for horses. *[Laughter.]*
 
@@ -299,15 +289,13 @@ Is there anyone [else]... ?
 
 **Katagiri Roshi:** Sure. 
 
-**Someone:** It’s the same thing. It’s just leave it flow and observe. *[inaudible]*
+**Someone:** It’s the same thing. It’s just leave it [flow and observe]. *[inaudible]*
 
 **Katagiri Roshi:** [Yes.]
 
-Is there anyone? 
+[Are there more] questions? 
 
-#### 1:03:24
-
-There are no questions? 
+#### 1:03:30
 
 **Question:** Hojo-san? Taking the backward step, it’s like saying, “please shut up”?
 
@@ -317,13 +305,13 @@ There are no questions?
 
 You don’t like it? *[He chuckles.]*
 
-Well, even though you don’t like it, that is a final thing you can do. A unique, final thing you can do... after struggling for a long time. *[He laughs.]*
+Well, even though you don’t like it, that is a final thing you can do; a unique, final thing you can do... after struggling for a long time. *[He laughs.]*
 
 So that is a unique way to allow you to exist, fully. 
 
-No? Is there anyone to comment? 
+Don’t you think? No? Is there anyone to comment? 
 
-**Someone:** When you said that taking the backward step is reflection... ? 
+**Someone:** When you said that taking the backward step is *reflection*... ? 
 
 **Katagiri Roshi:** Yes, reflection.
 
@@ -331,47 +319,49 @@ No? Is there anyone to comment?
 
 **Katagiri Roshi:** *Attention*. *[He chuckles.]* Maybe.
 
-Reflection is something more than attention. Attention is just look at, but reflection is creating something by the attention. So very naturally, [critical thinking]; if you see something, you can think, thinking comes up. Then next, judgment, evaluation, and affective preferences come up. Lots of stuff. This is reflection. But attention is just to pay attention, to *see*. 
+Reflection is something more than attention. Attention is just look at, but reflection is creating something by the attention. So very naturally, [...] if you see something, thinking comes up. Then next, judgment, evaluation, and affective preferences come up. Lots of stuff. This is reflection. But attention is just to pay attention, to *see*. 
 
 **Same person:** But which one is taking the backward step?
 
-**Katagiri Roshi:** Of course, [...] plainly speaking, I think reflection. So under all circumstances, in favorable conditions and unfavorable conditions, we always reflect [on] ourselves. Even in a perfect situation, we reflect upon ourselves, we look at ourselves. Not only just to pay attention to myself, but also creating something. Do you understand? 
+**Katagiri Roshi:** Of course, [...] plainly speaking, I think reflection. Under all circumstances, in favorable conditions and unfavorable conditions, we always reflect [on] ourselves. Even in a perfect situation, we reflect upon ourselves, we look at ourselves. Not only just pay attention to myself, but also creating something. Do you understand? 
 
-I said dancing, or playing piano. Right in the middle of playing piano or dancing, still we reflect upon ourselves: “How are you? How is [it going]?” You know? Sometimes you judge, “Oh, pretty good now.” Next moment you slip off, and, “Oh, I made a mistake,” something like that. We always reflect, in many ways. That is really minute vibration of the mind there. And then why do we create this one? We don’t know. But we want to know. This is reflection, constantly. We don’t know from where it comes, but we want to know what makes it possible for this minute vibration to be. So that is reflection. Really reflection. Pretty deep. 
+I [mentioned] dancing, or playing piano. Right in the middle of playing piano or dancing, still we reflect upon ourselves: “How are you? How is [it going]?” You know? Sometimes you judge, “Oh, pretty good now.” Next moment you slip off, and a little bit, “Oh, I made a mistake,” something like that. We always reflect, in many ways. That is really minute vibration of the mind there. 
+
+And then why do we create this? We don’t know. But we want to know. This is reflection, constantly. We don’t know from where it comes, but we want to know what makes it possible for this minute vibration to be. So that is reflection. Really reflection. Pretty deep. 
 
 So very naturally we have to “learn the backward step,” that means we have to come back to that beginning, the *very* beginning. The beginning of standing, and chanting... the *very* beginning. 
 
 #### 1:08:17
 
-**Question:** Hojo-san? I thought first thoughts were first thoughts. I don’t understand how ignorance ... arises naturally. Does ignorance arise naturally? 
+**Question:** Hojo-san? I thought first thoughts were first thoughts. I don’t understand how the ignorance... I thought they arise naturally. Does ignorance arise naturally? 
 
 **Katagiri Roshi:** Naturally? I don’t know what naturally means. 
 
-**Questioner:** Well...
+**Questioner:** Uh...
 
-**Katagiri Roshi:** “Naturally” means maybe causes and conditioned elements, by conditioned elements, and then it comes up. But maybe we can say this is naturally. 
+**Katagiri Roshi:** “Naturally” means maybe causes and conditioned elements, by conditioned elements, and then it comes up. Maybe we can say this is naturally. 
 
 But naturally means still there is some reason why it comes up. Nothing comes up at random without any reason; there is some reason. That’s why everything is produced according to the law of causation. 
 
-So even if a thought comes up, by virtue of the law of causation, it has some reason. But [the reason is] very deep, that’s why we don’t know from where it comes. 
+So even the first thought comes up by virtue of the law of causation. It has some reason. But [the reason is] very deep, that’s why we don’t know from where it comes. 
 
-“The first thought” means the very beginning, very beginning. Before you can put the name on it – so you don’t know it is the first thought or not. That’s what I’m talking about. By temporality I put the name on it, *first thought*. 
+“The first thought” means the very beginning, *very* beginning. Before you can put the name on it – you don’t know if it is the first thought or not! That’s [what I’m talking about], but temporarily I put the name on it, *first thought*. 
 
-Because we cannot know something more than the first thought. It’s very vast – eternity. What we can know is maybe the very beginning of *samsara*. 
+Because we cannot know something more than the first thought. It’s very vast – eternity. So what we can know is maybe the very beginning of *samsara*. 
 
-So that very beginning means the very first, the inception of the thought. That’s what I mean. But it is exactly the same as eternity. 
+So that very beginning means the inception of the thought. That’s what I mean. But it is exactly the same as eternity. 
 
 Do you have some comment on this? Anyone? 
 
-**Someone:** *[inaudible]*
+**Someone:** Well I think usually when people use the word “thought,” it’s something like a sentence.
 
 **Katagiri Roshi:** Thought? Sentence?
 
 **Same person:** *[inaudible]*
 
-**Katagiri Roshi:** Mm-hmm. That’s why I say the very beginning. The *very* beginning of a sentence, whatever it is.
+**Katagiri Roshi:** Mm-hmm. That’s why I say “the very beginning.” The *very* beginning of a sentence, [or] whatever it is.
 
-The very beginning of forming something, the very beginning of taking something in the possession of a form – that’s what I mean. The very beginning. 
+The very beginning [of] forming something. The very beginning of taking something in the possession of a form – that’s what I mean. The very beginning. 
 
 How can I say it? Do you have a comment on this, anyone? 
 
@@ -387,41 +377,37 @@ How can I say it? Do you have a comment on this, anyone?
 
 **Katagiri Roshi:** Mm-hmm.
 
-Anyone? 
+Anyone [else]? 
 
-**Someone:** First thought is like the precondition leading *to* thought. Without first thought there wouldn’t be any... *[inaudible]*
+**Someone:** First thought is like the precondition leading *to* thought. Without first thought there wouldn’t be any... *[inaudible]* 
 
 **Katagiri Roshi:** Sure. Mm-hmm.
 
-You can be present, but... It can appear in the conscious level, but you can pass through [...] this one. [...] It is something more than the experience and discriminating thought. So you just pass through.
+You can be present, but you cannot... It can appear in the conscious level, but you can pass through [...] this one. [...] It is something more than the experience and discriminating thought. So you just pass through.
 
-So the other day, [someone] asked me, “Do you experience that one?” *[He laughs.]* Do you remember? 
+So the other day, when [someone] asked me, “Do you experience that one?” *[He laughs.]* Do you remember? The *main* point is that it is not important whether you can experience it or not, because *anyone* can experience [it]. Okay? *[He laughs.]* The main point is *how can you live to the full*, without being caught by experience. That is our practice, the final goal every day. Under the guidance of a teacher; that’s why we need a *real* person there. Is that clear? 
 
-The *main* point is that it is not important whether you can experience it or not, because *anyone* can experience [it]. The main point is *how can you live to the full*, without being caught by experience. That is our practice, the final goal every day. Under the guidance of a teacher; that’s why we need a *real* person there. Is that clear? 
+Usually we are always interested in the *experience*. So we are always checking everyone: “Have they ever had [that experience]?” Et cetera. And then if you say, “*Yes!* I know. I have [experienced it],” then the people really admire you. But life is not something like that. *[He laughs.]* Life is not something you can “mold” into a certain form, so-called “experience.” No. Of course experience is a *part* of your life, but life as a whole is constantly moving – with the whole world, past, present, future. So we don’t know still what it is. But actually you have to deal with that life as a whole. That’s why experience is just a speck of dust. *[He laughs.]* I’m sorry – for us – but it is true. 
 
-Usually we are always interested in the *experience*. So we are always checking everyone: “Have they ever had [that experience]?” Et cetera. And then if you say, “*Yes!* I know. I have [experienced it],” then the people really admire you. But life is not something like that. *[He laughs.]* 
+So finally, [...] experience is very important, but we cannot be *caught by* individual experience. So the point is, *how do you live to the full* – without being caught by individual experience, individual ideas, and *isms*, et cetera. 
 
-Life is not something you can “mold” into a certain form, so-called “experience.” No. Of course experience is a *part* of your life, but life as a whole is constantly moving – with the whole world, past, present, future. So we don’t know, we still don’t know what it is – but actually you have to deal with that life as a whole. That’s why experience is just a speck of dust. *[He laughs.]* I’m sorry – for us – but it is true. 
+Is that okay? Is that okay, [name]-san? *[He laughs.]* Do you have a question?
 
-So finally, [...] experience is very important, but we cannot be caught by individual experience. So the point is, *how do you live to the full* – without being caught by individual experience, individual ideas, and *isms*, et cetera. 
+**Question:** Yes... My question [is about] how desire is connected with ignorance. Is desire ignorance? [...] comes from ignorance?
 
-Is that okay? Is that okay, [name]-san? *[He chuckles.]* Do you have a question?
-
-**Question:** Yes... My question [is about] how desire is connected with ignorance. *[Inaudible]* ... comes from ignorance?
-
-**Katagiri Roshi:** [...] Yes, they come from ignorance. But *desire* is already... what would you say... an unfolded parachute, okay? *Ignorance* is still the folded parachute. 
+**Katagiri Roshi:** Yes, they come from ignorance. But *desire* is already... what would you say... an unfolded parachute, okay? *Ignorance* is still the folded parachute. 
 
 Desire is the unfolded parachute, and you are enjoying very much flying in the sky. *[He laughs.]* Okay? But no guarantee, you know? Can you continue to fly in the sky? No way. Many people enjoy individually their own parachute – but they are always bumping into each other, and making a hole in the parachute, and fighting, and crashing down on the ground, and crying, screaming... always. This is *samsara*. Do you understand? *[He laughs.]*
 
 So desire is an unfolded parachute. Okay? That’s wonderful, anyway. That’s why we enjoy very much.
 
-That’s a good idea, an unfolded parachute. *[He laughs.]* Or a balloon – if you ride on a balloon. A parachute is more fun than a balloon. You can feel many things: air, skies, and the people. 
+That’s a good idea, an unfolded parachute. *[He laughs.]* Or a balloon – if you ride on a balloon, you know? A parachute is more fun than a balloon. You can feel many things: air, skies, and the people. 
 
-Uchiyama Roshi took the example of the helicopter. Individual life is just like a helicopter, you know: three propellers, and three poisonous desires. And flying in the sky, and bumping each other, you know, and hurting each other, crying, screaming, crashing on the ground. And fixing [the helicopter] again and fly again. *[He laughs.]* That’s what Uchiyama Roshi said. That’s an interesting world, don’t you think? That’s fun. 
+Uchiyama Roshi took the example of the helicopter. Individual life is just like a helicopter, you know: three propellers, and three poisonous desires. And flying in the sky, and bumping each other, you know, and hurting each other, crying, screaming, and crashing on the ground. And fixing [the helicopter] again and fly again. *[He laughs.]* That’s what Uchiyama Roshi said. That’s an interesting world, don’t you think? That’s fun. 
 
 *[He laughs]* Parachute. *[The audience laughs.]*
 
-Now (today), a helicopter is a very modernized helicopter, you know? With a machine gun. *[He makes a noise like a machine gun.]* *[He laughs.]* In the future, I don’t know what kind of parachute you can create. Maybe you can have a parachute with an automatic gun, you know? *[He makes another noise.]*
+[That] helicopter is a very modernized helicopter, you know? With a machine gun. *[He makes a noise like a machine gun. He laughs.]* In the future, I don’t know what kind of parachute you can create. Maybe you can have a parachute with an automatic gun, you know? *[He makes another noise, and laughs.]*
 
 #### 1:21:19 end of recording
 
