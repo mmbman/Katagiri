@@ -177,47 +177,51 @@ This is called *transmit*. Transmit the sublimity of human life to the next gene
 
 And next it says:
 
-> There is no need to change our existing body and mind, for the direct realization of the Way simply means...
+> There is no need to change our existing body and mind, for the direct realization of the Way simply means [to become enlightened through training under a true Zen master.]
 
-... here Dogen Zenji tries to explain what *direct* means, what *directness* means. 
+... Here Dogen Zenji tries to explain what *direct* means, what *directness* means. *Directness* means to allow to be realized by the teacher. “Teacher” means the Buddha; [to allow to be realized] by the Buddha. 
 
-*Directness* means to allow to be realized by... the teacher. “Teacher” means the Buddha; by the Buddha. So the two... *direct* means to allow to be realized. Okay? By the teacher, by the Buddha... means you do not try to realize. If you try to realize, you are already attaching to your own discriminating mind. That’s why you always look at yourself and look at the teachers, look at the teaching and look at the process of your practice. So very naturally lots of criticism coming up. But actually, *direct* means you have to realize *where you are*. If you put yourself properly in the proper place, you are allowed to be realized. 
+So [that] *direct* means to allow to be realized by the teacher, by the Buddha, means you do not try to realize. If you try to realize, you are already attaching to your own discriminating mind. That’s why you always look at yourself and look at the teachers, look at the teaching, and look at the process of your practice, so very naturally lots of criticism is coming up. But actually, *direct* means you have to realize *where you are*. If you put yourself properly in the proper place, you are allowed to be realized. 
 
-In other words, “to be realized” is like jumping into the ocean. If you put your body and mind *properly*, in the proper place, so-called *ocean*, and properly you have to jump into it. And then, you can swim. So swim is not something *you* try to swim, because you are *allowed to be swimmed*. By what? Something more than you, your effort. So ocean, technique, teacher, your emotions, something more than your emotions, and many things – you are exactly allowed to swim. That is *direct*. 
+In other words, “to be realized” is like jumping into the ocean. If you properly put your body and mind [...] in the proper place, so-called *ocean*. And properly you have to jump into it. And then, you can swim. So swimming is not something *you try* to [do], because you are *allowed to be swimmed*. By what? Something more than you, your effort. So the ocean, technique, teacher, your emotions – something more than your emotions, and many things – you are exactly allowed to swim. 
 
-So directness doesn’t mean you try to get something directly. Okay? In other words, you do not try to understand, do not try to know it. But instead of trying to know or try to understand, you put yourself properly in the proper place. That is first. And then, you are supported. 
+That is *direct*. So directness doesn’t mean you try to get something directly. Okay? In other words, you do not try to understand, do not try to know it. But instead of trying to know or trying to understand, you put yourself properly in the proper place. That is first. And then, you are supported. 
 
-But the everydayness you live would be completely reversed. Is that clear? You always try to know, you try to understand first. That means you come first. So you always comes first, that’s why you want to know object. This is very usual everyday life.
+But the everydayness you live [is] completely reversed. Is that clear? You always try to know, you try to understand first. That means *you* come first. You always comes first, that’s why you want to know the object. This is very usual everyday life.
 
-So at that time you cannot get anything directly from the lifeline of the grandeur of nature. No, you never get it. Even though you get the wilderness, you never get the life rhythm, the rhythm of life of the wilderness. Never. So if you really want to get something *directly*, you put your body and mind properly in the proper place. Then, you are exactly allowed to be realized. This is a most important key point of our practice. 
+So at that time you cannot get anything *directly* from the lifeline of the grandeur of nature. No, you never get it. Even though you go to the wilderness, you never get the rhythm of life of the wilderness. Never. 
+
+If you really want to get something *directly*, you put your body and mind properly in the proper place. Then, you are exactly allowed to be realized. This is a most important key point of our practice. 
 
 It is not only in Buddhism. Particularly Christianity; Christianity always says, “Believe [in] God.” This is a very strong and powerful inspiration you can get: “believe [in] God.” In front of God, you have to see yourself, everything. That’s really powerful. 
 
-So, consciously or unconsciously, Western people always put themselves exactly in the kingdom of God. So it’s pretty powerful. And then, we are supported. So that’s why people always believe that religion is something accompanied by mysterious and [miraculous] experiences, if you do it, constantly you can do it. But this is also very important practice for us. 
+So, consciously or unconsciously, Western people always put themselves exactly in the kingdom of God. So it’s pretty powerful. And then, we are supported. 
 
-So, even Buddhism never ignores that point. But Buddhism doesn’t emphasize only that one. But on the other hand, Buddhism emphasizes many things. In order to manage that strong, powerful belief. Which allows you to be realized by something more than you, more than effort. Buddhism tries to see something more. 
+So that’s why people always believe that religion is something accompanied by mysterious and [miraculous] experiences, if you do it, constantly you can do it. But this is also very important practice for us. 
 
-So, in *Shoji* *[unknown]*, “Life and Death,” there is a very famous passage. You know it already: 
+So, even Buddhism never ignores that point. But Buddhism doesn’t emphasize only that one. But [rather], Buddhism emphasizes many things, in order to manage that strong, powerful belief. Which allows you to be realized by something more than you, more than effort. Buddhism tries to see something more. 
 
-> “When you simply release and forget both your body and your mind, and throw yourself into the house of Buddha, and when functioning comes from the direction of the Buddha and you go in accord with it, then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then there can be no obstacle in any man’s mind.” 
+#### 48:05
 
-So, your mind, discriminating mind, is given full play. In where? In so-called *samadhi*. 
+So, in *Shōji* [...], “Life and Death,” there is a very famous passage. You know it already: 
 
-So, you have to simply release. If you really want to release and forget both your body and mind, so-called freedom, you have to throw yourself into the house of Buddha. That is [the] rhythm of life, rhythm of the grandeur of nature. Anyway, the huge universe. You have to open your heart. This is opening your heart. *Throw*, okay? Instead of shutting off yourself, always in the small house, so-called discriminating mind. 
+> When you simply release and forget both your body and your mind, and throw yourself into the house of Buddha, and when functioning comes from the direction of the Buddha and you go in accord with it, then, with no strength needed and no thought expended, free from birth and death, you become Buddha. Then there can be no obstacle in any man’s mind.
 
-“And when functioning comes from the direction of the Buddha,” – if you open yourself and throw yourself into the rhythm of the grandeur of nature, very naturally, function comes not from you, [but] from the rhythm of the grandeur of nature. 
+So your discriminating mind is given full play. In where? In so-called *samadhi*. 
 
-So, very naturally you can learn something, even if you don’t want to learn. If you put yourself properly in the proper place, very naturally you can learn the spirit of the wilderness, if you want. But even if you don’t want to learn anything, if you put yourself there, exactly you can learn something. 
+So, you have to simply release. If you really want to release and forget both your body and mind, so-called *freedom*, you have to throw yourself into the house of Buddha. That is [the] rhythm of life, rhythm of the grandeur of nature. Anyway, the huge universe. You have to open your heart; this is opening your heart. *Throw*, okay? Instead of always shutting yourself off in the small house, so-called discriminating mind. 
 
-So, [when is that]? Dogen Zenji says, “When the functioning comes from the direction of the Buddha, and you go in accord with it” – you really become one with it – “then with no strength needed and no thought expended, free from birth and death” – free from discriminating mind, free from your thoughts – “you become Buddha.” “You become Buddha” means you are allowed to be exactly in peace and harmony. 
+“And when functioning comes from the direction of the Buddha” – if you open yourself and throw yourself into the rhythm of the grandeur of nature, very naturally, function comes not from you, [but] from the rhythm of the grandeur of nature. 
 
-That is what? It is really something surprising. It is really surprising – astonishment, big shock. Then from this, you can see the broader picture, the panorama picture of life. Through the wilderness, through the grandeur of nature –  including your life, including birds, pebbles, and the skies, the whole universe – you can learn. From where? All life of the whole universe. It’s simple. 
+So, very naturally you can learn something. Even if you don’t want to learn. If you put yourself properly in the proper place, very naturally you can learn the spirit of the wilderness, if you want. But even if you don’t want to learn anything, if you put yourself there, exactly you can learn something. 
 
-Surprise, astonishment. When you really touch the spirit of the grandeur of nature, it is just simple. 
+So Dogen Zenji says, “When the functioning comes from the direction of the Buddha, and you go in accord with it” – you really become one with it – “then with no strength needed and no thought expended, free from birth and death” – free from discriminating mind, free from your thoughts – “you become Buddha.” “You become Buddha” means you are *allowed* to be exactly in peace and harmony. 
 
-By that simplicity, it is unfolded and [you learn] many things: philosophy, psychology, physics, religions, many worlds come up from that. 
+That is what? It is really something surprising. It is really a surprise – astonishment, big shock. Then from this, you can see the broader picture, the panorama picture of life. Through the wilderness, through the grandeur of nature. Including your life, including birds, pebbles, and the skies, the whole universe – you can learn. From where? All life of the whole universe. It’s simple. Surprise, astonishment. When you really touch the spirit of the grandeur of nature, it’s just simple. 
 
-“To do this is neither to be bound by viewpoints, nor to create new ones. It is simply to realize the Way.” 
+But that simplicity is unfolded and [you] learn many things: philosophy, psychology, physics, religions. Many worlds come up from that. 
+
+> To do this is neither to be bound by old viewpoints nor to create new ones; it is simply to realize the Way.
 
 Do you have a question? 
 
