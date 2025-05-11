@@ -15,7 +15,7 @@ title: "Principles of Practice, Talk 5: Direct Transmission"
 
 #### 0:00
 
-**Katagiri Roshi:** The topic today is the key point of practice in terms of *jikige jōtō*, in Japanese. It’s very difficult to translate it. *Jiki-ge*, J-I-K-I-G-E, *jōtō*, J-O-T-O. 
+**Katagiri Roshi:** The topic today is the key point of practice in terms of *jikige jōtō*, in Japanese. It’s very difficult to translate it.
 
 *Jikige* means “direct”; “directness” or “direct.” 
 
