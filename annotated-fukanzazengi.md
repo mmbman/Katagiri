@@ -4,7 +4,7 @@ title: "Annotated Fukanzazengi"
 
 #### Annotations by Kikan Michael Howard
 
-#### Updated May 9, 2025
+#### Updated May 11, 2025
 
 Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dogen’s “Universal Recommendation for Zazen” – in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This is very much a work in progress; I will update this page as I transcribe talks and find additional references.
 
@@ -55,8 +55,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 - “Turn the light and shine it inward” is *ekō henshō* (回光返照). This key phrase is translated and understood in slightly different ways. 
 - One way Katagiri Roshi translates this line is, “To learn the backward step that turns your light inwardly to illuminate yourself.”
-- “The backward step” means to “return to the very inception of the moment.” It implies “cutting off the root of discriminative thought.” It does not mean “to withdraw,” nor “to escape from.” See [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4), and [“Principles of Practice, Talk 5: Direct Transmission”](1986-03-23-Principles-of-Practice-Talk-5).
-- This is perhaps one of the most challenging lines to interpret reliably. The meaning is almost certainly simple, and yet interpretations often seem to veer toward problems. Particularly, any interpretation that approaches “withdrawing from the world” does not line up with the rest of Katagiri Roshi’s or Dogen’s teachings. The point seems to be that when one takes the backward step, the whole world is present. Taking the backward step is taking a step toward life as it is.
+- “The backward step” means to “return to the very inception of the moment.” It implies “cutting off the root of discriminative thought.” It does not mean “to withdraw,” nor “to escape from.” See [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4). Also see [“Principles of Practice, Talk 5: Direct Transmission”](1986-03-23-Principles-of-Practice-Talk-5), where the backward step is considered as *reflection*.
+- This is perhaps one of the most challenging lines to interpret reliably. The meaning is almost certainly simple, and yet interpretations often seem to veer toward “withdrawing from the world and focusing on the small self,” which does not really line up with Dogen’s teaching. That’s probably why Katagiri Roshi mentions that it’s not “to withdraw” or “to escape” (see above). The point seems to be that when one takes the backward step, the whole world is present. Another way to say it might be that it’s taking a step back from our concepts of life and our grasping of those concepts, and toward life as it is.
 - “The backward step” is closely related to *prajna* (“wisdom”). See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where it is discussed as the function of *prajna*.
 - Another translation is “to learn that one withdraws one step and turns the light inward on oneself.” In [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life), Katagiri Roshi discusses the backward step of *ekō henshō* in relationship to the word *ekō* which means “dedicating the merit.” To be honest, I’m not quite sure what’s going on there yet. More to follow.
 
