@@ -3,11 +3,11 @@ title: "Zazen: Entry to the Buddha Dharma"
 ---
 ## March 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-11-Bendowa-Talk-1) | Series: [Fundamentals](fundamentals), [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-11-Bendowa-Talk-1) | Series: [Fundamentals](fundamentals), [*Bendōwa*](bendowa)
 
 ### Summary
 
-Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendowa*, “A Talk on Pursuing the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
+Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendōwa*, “A Talk on Pursuing the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
 
 ### Transcript
 
@@ -17,7 +17,7 @@ Katagiri Roshi introduces a series of talks on the question-and-answer section o
 
 #### 0:00
 
-**Katagiri Roshi:** During the training *sesshin* starting this week, we [will] study the questions and answers which occur toward the end of *Bendowa*, written by Dogen. In the first and second question, Dogen Zenji [talks about] how important zazen or Zen meditation is. The first question is:
+**Katagiri Roshi:** During the training *sesshin* starting this week, we [will] study the questions and answers which occur toward the end of *Bendōwa*, written by Dogen. In the first and second question, Dogen Zenji [talks about] how important zazen or Zen meditation is. The first question is:
 
 > [Question 1:] Now I have heard and understand the sublime merits of zazen...
 
@@ -345,4 +345,4 @@ Do you understand? No?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-11-Bendowa-Talk-1) | Series: [Fundamentals](fundamentals), [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-06-Platform-Sutra-Talk-1) \| [Next](1987-03-11-Bendowa-Talk-1) | Series: [Fundamentals](fundamentals), [*Bendōwa*](bendowa)

@@ -1,9 +1,9 @@
 ---
-title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 5"
+title: "Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 5"
 ---
 ## March 15, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-14-Bendowa-Talk-4) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-14-Bendowa-Talk-4) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -81,7 +81,7 @@ So we say “dirty clothes; I don’t want them”; we want to be free from it. 
 
 #### 24:10
 
-And then, in *Bendowa*, Dogen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *sho*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
+And then, in *Bendōwa*, Dogen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *sho*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
 
 That is, in terms of practice, *sho* is explained as *jijiyu samadhi*: self becomes self, and is self-ing, and settles in the self, exactly. That is a unique way to manifest the ultimate nature of existence called *sho*. Very deep, deep experience of enlightenment. Very deep, profound – *before* you put the name on it. This is called *sho*. 
 
@@ -363,4 +363,4 @@ So, faith and belief is your activity. It must be based on activity. Religious a
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-14-Bendowa-Talk-4) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-14-Bendowa-Talk-4) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendōwa*](bendowa)

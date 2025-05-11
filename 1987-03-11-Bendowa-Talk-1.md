@@ -1,9 +1,9 @@
 ---
-title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1"
+title: "Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 1"
 ---
 ## March 11, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -15,7 +15,7 @@ title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendowa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendowa* – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [one of the first works] of Dogen Zenji. It’s a very interesting article, this one.
+**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendōwa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendōwa* – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [one of the first works] of Dogen Zenji. It’s a very interesting article, this one.
 
 I think in those days there were many questions about the zazen he emphasized. So he made eighteen questions and answered those questions. It’s a very interesting question and answer. 
 
@@ -177,7 +177,7 @@ Well, what it means, he says,
 
 It’s ridiculous! But we do it. We are buddha, but we don’t believe it. Sitting down in zazen with wholeheartedness, this is simultaneously the great Way to get into the Buddha’s world beyond your speculation – but we don’t believe it. Even if you believe and do it, still you don’t believe how much your practice is progressing. You don’t believe it. 
 
-So, that’s why Dogen Zenji [says] in this *Bendowa*, “Even if you sit down for a minute, you become Buddha.” But that is so-called *right entrance*. *Right* means no gap between you and Buddha’s world. That is *thoroughgoing*. How can you get no gap between you and Buddha’s world? That is *thoroughgoing* practice. You have to do it. 
+So, that’s why Dogen Zenji [says] in this *Bendōwa*, “Even if you sit down for a minute, you become Buddha.” But that is so-called *right entrance*. *Right* means no gap between you and Buddha’s world. That is *thoroughgoing*. How can you get no gap between you and Buddha’s world? That is *thoroughgoing* practice. You have to do it. 
 
 So, zazen is a very simple way to participate in this thoroughgoing state of existence. It’s *very* simple. And also, this is all we want to do. And then we make a schedule and let you sit down, and then the moment when you are there, you start grumbling at it. That is so-called *ignorance*, we say. *[He laughs a little.]* 
 
@@ -195,7 +195,7 @@ This is a very simple analogy: he says it is like being in the middle of a great
 
 That is called *jijuyu samadhi*. That’s why zazen is very simple – a very simple form, and you can do in your everyday life. Just simple form and simple circumstances. It’s a very wonderful opportunity to do this. 
 
-So that’s why zazen is *jijuyu samadhi*, [which] Dogen Zenji [says] in this *Bendowa*.
+So that’s why zazen is *jijuyu samadhi*, [which] Dogen Zenji [says] in this *Bendōwa*.
 
 > Does this not constitute extensive merit? 
 
@@ -265,4 +265,4 @@ That is what Dogen Zenji [says] here: if it doesn’t arise, you should cease fo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendōwa*](bendowa)

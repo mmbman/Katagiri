@@ -19,8 +19,8 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
-- The meaning of *shō* (證) – often translated as “realization” – should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment.” See [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5).
-- The oneness of practice and realization is often presented as a key point of Dogen’s teaching, if not his key point, period. On the statement “to think practice and realization are not one is a heretical view” from *Bendowa*, see [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4).
+- The meaning of *shō* (證) – often translated as “realization” – should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō* – and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment.” See [“*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5).
+- The oneness of practice and realization is often presented as a key point of Dogen’s teaching, if not his key point, period. On the statement “to think practice and realization are not one is a heretical view” from *Bendōwa*, see [“*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4).
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
 
@@ -43,7 +43,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
 - KR translates this as: “Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.”
-- This is extensively discussed in [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
+- This is extensively discussed in [“*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
 > Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice?
 
@@ -111,7 +111,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. 
 
-- The “dharma gate of repose and joy” or “dharma gate of repose and bliss” is discussed in [“Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 3”](1987-03-13-Bendowa-Talk-3) at [55:17](1987-03-13-Bendowa-Talk-3#5517) and [1:11:57](1987-03-13-Bendowa-Talk-3#11157).
+- The “dharma gate of repose and joy” or “dharma gate of repose and bliss” is discussed in [“Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 3”](1987-03-13-Bendowa-Talk-3) at [55:17](1987-03-13-Bendowa-Talk-3#5517) and [1:11:57](1987-03-13-Bendowa-Talk-3#11157).
 
 > It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. 
 
@@ -125,7 +125,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. 
 
-- A practical example of moving calmly and deliberately appears in [“*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2) at [55:32](1987-03-12-Bendowa-Talk-2#5532)
+- A practical example of moving calmly and deliberately appears in [“*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2) at [55:32](1987-03-12-Bendowa-Talk-2#5532)
 
 > In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
 
@@ -151,4 +151,4 @@ Practice-realization is naturally undefiled. Going forward is, after all, an eve
 
 > Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely.
 
-- “If you follow this practice, your treasure chest will open of itself and you can use it at will” is discussed in Q&A in [“Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4) at [1:16:15](1987-03-14-Bendowa-Talk-4#11615).
+- “If you follow this practice, your treasure chest will open of itself and you can use it at will” is discussed in Q&A in [“Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4) at [1:16:15](1987-03-14-Bendowa-Talk-4#11615).

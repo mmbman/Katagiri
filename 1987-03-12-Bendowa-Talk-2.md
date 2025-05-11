@@ -1,9 +1,9 @@
 ---
-title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 2"
+title: "Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 2"
 ---
 ## March 12, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-11-Bendowa-Talk-1) \| [Next](1987-03-13-Bendowa-Talk-3) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-11-Bendowa-Talk-1) \| [Next](1987-03-13-Bendowa-Talk-3) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -241,4 +241,4 @@ But this is a little easier practice. *[Someone laughs.]* Just sitting is comfor
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-11-Bendowa-Talk-1) \| [Next](1987-03-13-Bendowa-Talk-3) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-11-Bendowa-Talk-1) \| [Next](1987-03-13-Bendowa-Talk-3) | Series: [*Bendōwa*](bendowa)

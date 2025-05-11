@@ -391,11 +391,11 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 
 1. [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
-1. [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
-1. [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
-1. [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
-1. [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
-1. [*Shobogenzo Bendowa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
+1. [*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
+1. [*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
+1. [*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
+1. [*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
+1. [*Shobogenzo Bendōwa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
 
 1. [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
 1. [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)

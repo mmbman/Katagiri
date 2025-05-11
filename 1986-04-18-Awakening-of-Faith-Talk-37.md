@@ -103,7 +103,7 @@ So I think we don't know what is exactly death, what’s happened. But it is ver
 
 That's why sometimes in the funeral service and memorial service we can say something. We say something to the dead. But that dead, we think that statement, message, we have a doubt whether that message is helping the dead or not. This is human speculation. But that statement must be expressed in the realm of essence of the truth. 
 
-So from this point we have to be one with message. Then it really extends to every inch of the beings – mountains, rivers, and trees. That is the point which Dogen Zenji mentions in *Bendowa*. If you read *Jijiyu Samadhi* in the sutra [book], Dogen Zenji mentions always, “if you do zazen, exactly in samadhi, that is helping, that sitting influences all over: trees, birds, et cetera.” Working as a Buddha – Buddha's affairs, he mentions.
+So from this point we have to be one with message. Then it really extends to every inch of the beings – mountains, rivers, and trees. That is the point which Dogen Zenji mentions in *Bendōwa*. If you read *Jijiyu Samadhi* in the sutra [book], Dogen Zenji mentions always, “if you do zazen, exactly in samadhi, that is helping, that sitting influences all over: trees, birds, et cetera.” Working as a Buddha – Buddha's affairs, he mentions.
 
 So actually, I don't know. We [can’t] say exactly, the truth helping death, how? Funeral service. And the message you can say. But a point is, how do you give the quality or content of the reading message and content of the message. How do you do this? That is the most important point.
 

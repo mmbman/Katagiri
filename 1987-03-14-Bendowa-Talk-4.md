@@ -1,9 +1,9 @@
 ---
-title: "Shobogenzo Bendowa: Dogen's Questions & Answers – Talk 4"
+title: "Shobogenzo Bendōwa: Dogen's Questions & Answers – Talk 4"
 ---
 ## March 14, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-15-Bendowa-Talk-5) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-15-Bendowa-Talk-5) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -31,7 +31,7 @@ I think [the answer] is a little bit difficult for you, because it is a quite di
 
 This is very strict. *[He chuckles.]* Very strict. *[Laughter.]* Very strict, very “pithy” remarks. *[He laughs.]* Exactly [what he says] is really fitting into all of us, don’t you think so? We don’t understand [what] Dogen Zenji [is saying]. “What are you talking about, Dogen?” 
 
-I read *Bendowa* when I was at Eiheiji monastery. *Completely* I didn’t understand. Just like a dream! *[He laughs.]* Actually there was something there; I felt something there, but I didn’t understand it. Still what Dogen Zenji [said] was far from my life, but it was very attractive. His point is really attractive. Just like listening to orchestra music, you know? We don’t understand how to organize lots of instruments, but when he starts to talk about zazen, he becomes a conductor, and creates wonderful music there. But I didn’t understand *how* he did it. What does he mean? I didn’t understand it. 
+I read *Bendōwa* when I was at Eiheiji monastery. *Completely* I didn’t understand. Just like a dream! *[He laughs.]* Actually there was something there; I felt something there, but I didn’t understand it. Still what Dogen Zenji [said] was far from my life, but it was very attractive. His point is really attractive. Just like listening to orchestra music, you know? We don’t understand how to organize lots of instruments, but when he starts to talk about zazen, he becomes a conductor, and creates wonderful music there. But I didn’t understand *how* he did it. What does he mean? I didn’t understand it. 
 
 If you read the *Jijuyu Zanmai* in the afternoon service – you don’t understand that one! *[Laughter.]* Nobody understands. *[He laughs.]* But pretty interesting, don’t you think so? 
 
@@ -107,8 +107,7 @@ So when you practice, all you can do is still practice must be practice. Because
 
 That’s why yesterday I [said] “zazen is *jijiyu samadhi*” means self becomes self, and is selfing. You become you, you are you-ing, and you settle yourself in the self, exactly. And then you are not you – you are Buddha. That means creative life [is] coming up. Something which you have never thought before. 
 
-So that is [why] Dogen Zenji says zazen is *jijiyu samadhi*. In the beginning of *Bendowa*, he [speaks] 
-about zazen very clearly:
+So that is [why] Dogen Zenji says zazen is *jijiyu samadhi*. In the beginning of *Bendowa*, he [speaks] about zazen very clearly:
 
 > That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi*, which is its touchstone.
 
@@ -138,7 +137,7 @@ So how can how can a woman become a woman, so-called growth? Well, [get] married
 
 > In the buddha-dharma, practice and realization are identical. Because one’s present practice is practice in realization, one’s initial negotiation of the way in itself is the whole of original realization. 
 
-This is called *bendo*, we say – *bendo* of *Bendowa*. [The translator] says “negotiation of the way.” [...] The real meaning of practice is exactly like this. 
+This is called *bendo*, we say – *bendo* of *Bendōwa*. [The translator] says “negotiation of the way.” [...] The real meaning of practice is exactly like this. 
 
 > Thus even while one is directed to practice, he is told not to anticipate realization apart from practice, ... 
 
@@ -372,7 +371,7 @@ Is that what you mean? Is that alright?
 
 **Katagiri Roshi:** What do you mean, one prescription? 
 
-**Questioner:** Like it says in *Bendowa*, practice and realization are the same, and just full devotion to sitting? 
+**Questioner:** Like it says in *Bendōwa*, practice and realization are the same, and just full devotion to sitting? 
 
 **Katagiri Roshi:** Practice and realization are one? 
 
@@ -506,4 +505,4 @@ So I don’t mean that what you mention is something wrong; it’s all right. Bu
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-15-Bendowa-Talk-5) | Series: [*Bendowa*](bendowa)
+#### [List](list#1987) \| [Previous](1987-03-13-Bendowa-Talk-3) \| [Next](1987-03-15-Bendowa-Talk-5) | Series: [*Bendōwa*](bendowa)

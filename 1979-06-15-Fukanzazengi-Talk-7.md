@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7"
 
 ### Summary
 
-The conclusion to the series of talks on *Fukanzazengi* takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness, and the meaning of the term *jijuyu* (usually translated as “self-fulfillment”) in *Bendowa*. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
+The conclusion to the series of talks on *Fukanzazengi* takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness, and the meaning of the term *jijuyu* (usually translated as “self-fulfillment”) in *Bendōwa*. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
 ### Transcript
 
@@ -52,7 +52,7 @@ In those days, the attainment of [samadhi](glossary#samadhi) with no consciousne
 
 #### 9:14
 
-Also, Dogen Zenji said in [Bendowa](topics#bendowa): 
+Also, Dogen Zenji said in Bendōwa:
 
 > Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.
 

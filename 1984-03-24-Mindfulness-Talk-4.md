@@ -199,7 +199,7 @@ So the important practice is for us to bring harmony day by day to your mind, to
 
 Using what? Not using your body and mind, using the Buddha. If you use your body, at that time that body is already something evaluated by your sense. So that body is already [putting] a certain label on it, “dirty” or “pure.” But you have to use human body as a buddha. That means your body is always fresh, every day fresh. Every day your body, your mind has great opportunity to grow, to develop. Whatever kind of physical or mental type you have, basically your body and mind are always fresh, like a white canvas. You can put any kind of color on it. 
 
-That’s why in *Bendowa*, Dogen Zenji [says], “Even though dharma is amply present in you, it is not manifested if you don’t practice it.” So your body and mind are exactly buddha – but we have to use it. Using, taking the form of body and mind as a buddha. And you have to bring harmony. Very naturally you can bring the harmony to your life and make a buddha. If you make a buddha, you can live your life in peace and harmony with the people, together, very naturally. 
+That’s why in *Bendōwa*, Dogen Zenji [says], “Even though dharma is amply present in you, it is not manifested if you don’t practice it.” So your body and mind are exactly buddha – but we have to use it. Using, taking the form of body and mind as a buddha. And you have to bring harmony. Very naturally you can bring the harmony to your life and make a buddha. If you make a buddha, you can live your life in peace and harmony with the people, together, very naturally. 
 
 #### 3 - 05:50
 
