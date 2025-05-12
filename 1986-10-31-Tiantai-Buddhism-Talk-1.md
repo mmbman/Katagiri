@@ -69,7 +69,7 @@ And the third one is *unity of all-knowing and the way-seed wisdom*, which is [.
 
 That is the three wisdoms. Those observations of the world through the three wisdoms can work in *one mind*. *One mind* means, if you say *emptiness*, the rest of the two, *middle way* and also *provisional existence* can be included. If you see human life in terms of the *middle way*, I think *emptiness* and also *provisional existence* can be included. So, all one. 
 
-Dogen Zenji [says it] in a different way: “when one is manifested, the other one is in darkness.” Like this. So when you see the gassho in terms of its own full function, at that time it's not necessary to say that full function of gassho [is] based on emptiness and provisional existence. It's not necessary. Exactly functioning of the gassho, that's it. Totally. Without attaching to form of emptiness or teaching of emptiness and provisional beings. 
+Dōgen Zenji [says it] in a different way: “when one is manifested, the other one is in darkness.” Like this. So when you see the gassho in terms of its own full function, at that time it's not necessary to say that full function of gassho [is] based on emptiness and provisional existence. It's not necessary. Exactly functioning of the gassho, that's it. Totally. Without attaching to form of emptiness or teaching of emptiness and provisional beings. 
 
 So in terms of provisional being, so-called *form* of gassho, I think it's not necessary to [...] devalue [it]. Well, if you see the form of gassho, and think we should accept the form of gassho fully, because form of gassho is supported by emptiness and also middle way, which means full function of gassho beyond form and emptiness. This is a form of gassho we should deal with. That's why I [say] always the form doesn't have any thought. It really depends on the person, how much we can give the quality to the form you are dealing with. When you devalue the form of gassho, form of tape recorder, form of your five skandhas... well, your life doesn't work. [There’s] not [a] problem within the tape recorder, [within the] form of your five skandhas. 
 
@@ -121,7 +121,7 @@ However, the decline of Tendai teaching didn't [result in ignoring] the teaching
 
 And also the Chinese Tendai school was handed down to Japan. The founder's name is Saichō, and Saichō founded the Tendai school in Japan at Mount Hiei, which exists [today] in Japan, where major founders of new Buddhism [in the] Kamakura [era] studie[d] at Mount Hiei and Tendai teaching first. 
 
-And then Nichiren, founder of the Nichiren school, and Shinran, founder of Shinshū Pure Land school. And Zen: Dogen Zenji, founder of Soto Zen. And also Hōnen, the founder of Jodo Shinshu Pure Land school; Hōnen is Shinran's teacher. Those teachers studied at Mount Hiei and the Tendai teaching first. 
+And then Nichiren, founder of the Nichiren school, and Shinran, founder of Shinshū Pure Land school. And Zen: Dōgen Zenji, founder of Soto Zen. And also Hōnen, the founder of Jodo Shinshu Pure Land school; Hōnen is Shinran's teacher. Those teachers studied at Mount Hiei and the Tendai teaching first. 
 
 [The] Japanese Tendai school is a little different taste from Chinese Tendai. But in this book, I think [there is] the general point of Tendai teaching in China. 
 
