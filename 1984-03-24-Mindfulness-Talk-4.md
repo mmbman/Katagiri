@@ -27,7 +27,7 @@ Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-budd
 
 > Studying in such a manner, ...
 
-First of all Dogen Zenji [says] “studying in such a manner.” That is a point we studied yesterday, but briefly speaking: 
+First of all Dōgen Zenji [says] “studying in such a manner.” That is a point we studied yesterday, but briefly speaking: 
 
 A body is that which is completely beyond a sense of purity or impurity. That is [a] body; that is *your* body. 
 
@@ -49,19 +49,19 @@ That is, here it says, “studying in such a manner.” We have to study, we hav
 
 But in the usual life in this human society, we don’t take advantage of human activity like this. We don’t do it. When you wash your face, [you] just wash your face. That’s it, you know? No meaning. 
 
-Apparently [whether it’s] you washing your face or another person washing their face, almost everyone does the same thing. But the quality is completely different. And also you can manifest your life in a completely different way from others. It’s not a matter of discussion, you know? Because creating the world, creating life is always going [on] right now, right here. Every day you have to do it. How to wash your face? Wash your face just like a bird bathing in the lake? [That is] also washing your face; it’s not different from [the washing of the face] by buddhas and by Dogen. Dogen’s washing of face, Buddha’s patriarchs did it in the same way as we do. Or a bird bathing in the lake – same thing. But quite different! 
+Apparently [whether it’s] you washing your face or another person washing their face, almost everyone does the same thing. But the quality is completely different. And also you can manifest your life in a completely different way from others. It’s not a matter of discussion, you know? Because creating the world, creating life is always going [on] right now, right here. Every day you have to do it. How to wash your face? Wash your face just like a bird bathing in the lake? [That is] also washing your face; it’s not different from [the washing of the face] by buddhas and by Dōgen. Dōgen’s washing of face, Buddha’s patriarchs did it in the same way as we do. Or a bird bathing in the lake – same thing. But quite different! 
 
-Anyway, that’s why Dogen Zenji says, “Studying in such a manner.” We have to study, observe, contemplate, and research our life in this way. That is called deepening your life. Not seeing your life in the flat dimension. Seeing your life in the flat dimension, that life is very realistic, reasonable – but very thin. Not so deep. 
+Anyway, that’s why Dōgen Zenji says, “Studying in such a manner.” We have to study, observe, contemplate, and research our life in this way. That is called deepening your life. Not seeing your life in the flat dimension. Seeing your life in the flat dimension, that life is very realistic, reasonable – but very thin. Not so deep. 
 
 #### 1 - 13:24
 
-So Dogen Zenji first says like this, “Studying in such a manner, ...”, and,
+So Dōgen Zenji first says like this, “Studying in such a manner, ...”, and,
 
 > ... in the time of demons-becoming-buddha we subdue demons and make buddha with demons.
 
 Well, this is a big question for you. 
 
-Because *demons-becoming-buddha*, that one word, means demons are not demons, demons are buddha. Completely beyond the sense of purity or impurity – anyway demons, buddha. That’s why Dogen Zenji uses one word. *Demons-becoming-buddha* means demon is exactly buddha, buddha is demon. Exactly one. No gap, no space between. So that’s why it’s one word. 
+Because *demons-becoming-buddha*, that one word, means demons are not demons, demons are buddha. Completely beyond the sense of purity or impurity – anyway demons, buddha. That’s why Dōgen Zenji uses one word. *Demons-becoming-buddha* means demon is exactly buddha, buddha is demon. Exactly one. No gap, no space between. So that’s why it’s one word. 
 
 “In the time” means everything: tape recorder becoming buddha. Tape recorder is buddha, floor is buddha, your nail is also buddha, your hair is buddha. So that is [that] the presence of your hair is “*hair-being*.” Hair-being is great opportunity of manifestation of buddha. 
 
@@ -89,11 +89,11 @@ You know, [when] you eat the food, [...] sometimes you should [think about] the 
 
 When the cigarette belongs to a certain particular person, that cigarette shows its own virtuous quality, so-called *bad*. On the other hand, an old man who died, I forgot his name, who lived in Chicago for many, many years. 96 years old, but he smoked! He loved smoking and he loved drinking so much, but he lived to 96 or 97 years old. *[He laughs.]* So for *him*, what is a cigarette? The cigarette is nothing to damage his body. Pretty good; enjoying his life, he enjoyed very much his smoking. So smoking itself doesn’t have any particular ideas. That’s why it is buddha. 
 
-If you see the demons [...] you have to deal with the demons just like this, alright? That’s pretty hard, because if you deal with the demons, very naturally you deal with the demons *for what*? You know, immediately you say, “For what?” “Katagiri says demons are buddha, so I want to deal with the demons, they’re buddhas.” Well, how can you deal with the demons as buddha *practically*? Let me know. *[He chuckles.]* It’s very complicated. You cannot deal with demons as buddha in terms of what Shakyamuni Buddha or Dogen [talk about]. Practice is not so simple. People misunderstand demons, buddhas. If you say “the bar is buddha” or “gambling is Buddha” – whatever it is, wherever you may be, all are buddhas. So if you understand very simply, you can go anyplace, you know? You can enjoy your life. But, *practically*... *[he chuckles,]* your life becomes messy. 
+If you see the demons [...] you have to deal with the demons just like this, alright? That’s pretty hard, because if you deal with the demons, very naturally you deal with the demons *for what*? You know, immediately you say, “For what?” “Katagiri says demons are buddha, so I want to deal with the demons, they’re buddhas.” Well, how can you deal with the demons as buddha *practically*? Let me know. *[He chuckles.]* It’s very complicated. You cannot deal with demons as buddha in terms of what Shakyamuni Buddha or Dōgen [talk about]. Practice is not so simple. People misunderstand demons, buddhas. If you say “the bar is buddha” or “gambling is Buddha” – whatever it is, wherever you may be, all are buddhas. So if you understand very simply, you can go anyplace, you know? You can enjoy your life. But, *practically*... *[he chuckles,]* your life becomes messy. 
 
 [So] you handle the demons when you see the demons, but you always cope with the demons for the sake of your desire. In many ways, for the sake of *something*. Enjoying, or satisfying your desire, in a big scale or in a small scale. [You know,] just a little bit... sometimes you don’t notice. But psychologically, that desire is always working. You deal with the demons, but demons are pretty good for you: at that time you can say demons are buddha. You know? For instance, “cigarettes are buddha.” And then if you smoke a cigarette, cigarette is pretty good for you, you feel good. You enjoy smoking; at that time cigarette is not demon. You say, “Demons become buddha.” That is alright, but at that time, check your mind once again. Study and observe your mind. Is there any sense, even slightly, is there no sense of satisfying your desire? Satisfying your desire means good or bad, in many ways. In a good way, in a bad way, in a neutral way, you [are] always satisfying your desires. That’s very common. But people don’t pay attention to it. [They] just simply handle the demons according to the “teaching.” So, “The teaching says demons are buddha, so let’s use [that].” But I don’t think it’s so simple. 
 
-That’s why Dogen Zenji says, “In the time of demons becoming buddhas, *you subdue demons*.” You cannot handle the demons recklessly. No. You cannot handle demons according to your desires, your sense. Because if “demons are buddha” means demons are completely perfect beings beyond the idea of purity or impurity, [that means] you have to deal with the demons just like this. *How*? You must be very simple. Your activity must be very simple, just like a stream of water: just pass by from moment to moment. Don’t stay with it. That’s pretty hard practice. 
+That’s why Dōgen Zenji says, “In the time of demons becoming buddhas, *you subdue demons*.” You cannot handle the demons recklessly. No. You cannot handle demons according to your desires, your sense. Because if “demons are buddha” means demons are completely perfect beings beyond the idea of purity or impurity, [that means] you have to deal with the demons just like this. *How*? You must be very simple. Your activity must be very simple, just like a stream of water: just pass by from moment to moment. Don’t stay with it. That’s pretty hard practice. 
 
 [If] somebody hits you from [behind] without any reason: at that, time can you handle this as a buddha? *Maybe*... maybe not. But no guarantees. But the question is, at the moment when somebody hits you without any reason, at that time you have to practically deal with that person as a buddha... and the situation, and you. That’s pretty hard. 
 
@@ -137,7 +137,7 @@ To live in peace and harmony means you should become buddha ...
 
 But we don’t do it. If we stumble over in the realm of woman, we try to get something, and expect a certain paradise in the heavens, and try to spring back again over there. That is [like] borrowing the man’s body and mind, job, status, et cetera, and *then* try to stand up. That is always fighting [...] or *ism*. 
 
-But anyway, even [if] you don’t understand the meaning [of] “[in the time of] demons-becoming-buddha we subdue demons and make buddha with demons,” this is really true. So in your whole life, what does it mean? You have to contemplate, you have to observe the significance of Dogen’s statement in your whole life. 
+But anyway, even [if] you don’t understand the meaning [of] “[in the time of] demons-becoming-buddha we subdue demons and make buddha with demons,” this is really true. So in your whole life, what does it mean? You have to contemplate, you have to observe the significance of Dōgen’s statement in your whole life. 
 
 #### 2 - 01:22
 
@@ -179,7 +179,7 @@ The trees, birds, and sparrows [have a] very simple life. When the severe winter
 
 So that is simplicity in life. After we pass through the filter again and again, then we can see simplicity. That simplicity is really polished, refined, taking [...] many, many years. It is completely different from the simplicity in life which birds, trees possess. Completely different. They live in a simple way. We live in a simple way, but [the] simplicity is different. Thanks to our emotions [and] consciousness, we can [make] profound and refine [...] simplicity in life. That is called *buddha*. 
 
-So that’s why the Dogen Zen says, “In the time of people-becoming-buddhas, we bring harmony to people.” This is our practice. Constantly we bring harmony and peace to people, to us. Everyday. [Nothing-special] practice...
+So that’s why the Dōgen Zen says, “In the time of people-becoming-buddhas, we bring harmony to people.” This is our practice. Constantly we bring harmony and peace to people, to us. Everyday. [Nothing-special] practice...
 
 #### Part 3
 
@@ -199,7 +199,7 @@ So the important practice is for us to bring harmony day by day to your mind, to
 
 Using what? Not using your body and mind, using the Buddha. If you use your body, at that time that body is already something evaluated by your sense. So that body is already [putting] a certain label on it, “dirty” or “pure.” But you have to use human body as a buddha. That means your body is always fresh, every day fresh. Every day your body, your mind has great opportunity to grow, to develop. Whatever kind of physical or mental type you have, basically your body and mind are always fresh, like a white canvas. You can put any kind of color on it. 
 
-That’s why in *Bendōwa*, Dogen Zenji [says], “Even though dharma is amply present in you, it is not manifested if you don’t practice it.” So your body and mind are exactly buddha – but we have to use it. Using, taking the form of body and mind as a buddha. And you have to bring harmony. Very naturally you can bring the harmony to your life and make a buddha. If you make a buddha, you can live your life in peace and harmony with the people, together, very naturally. 
+That’s why in *Bendōwa*, Dōgen Zenji [says], “Even though dharma is amply present in you, it is not manifested if you don’t practice it.” So your body and mind are exactly buddha – but we have to use it. Using, taking the form of body and mind as a buddha. And you have to bring harmony. Very naturally you can bring the harmony to your life and make a buddha. If you make a buddha, you can live your life in peace and harmony with the people, together, very naturally. 
 
 #### 3 - 05:50
 
@@ -213,11 +213,11 @@ When I do gassho and bow to you – whatever you do, whatever you think [of] me,
 
 That is nothing but practice. That is using, taking advantage of yourself and your object, and your partners: microphone, whatever it is. It really depends on your practice, from day to day. That’s all we have to do. 
 
-That’s why Dogen Zenji says the most difficult practice is to bring harmony and peace to our human body and mind. It is [the] most difficult practice. More than [having] mysterious powers, you know, by particular practice. Anyone can have mysterious powers by particular practice! But it is very difficult to bring harmony and peace to your mind, to your body, and live in peace. Making buddhas everyday, and helping others – it’s very difficult. 
+That’s why Dōgen Zenji says the most difficult practice is to bring harmony and peace to our human body and mind. It is [the] most difficult practice. More than [having] mysterious powers, you know, by particular practice. Anyone can have mysterious powers by particular practice! But it is very difficult to bring harmony and peace to your mind, to your body, and live in peace. Making buddhas everyday, and helping others – it’s very difficult. 
 
 But that is most important. That is called the practice of mindfulness through your body. 
 
-That’s why Dogen Zenji [talks about] in this section the meaning of observing the body as not-pure. That is, anyway, through your body. “Let’s observe your body” means your body and your object, or the human world, and various aspects of the life manifested by your body and mind. [What’s that?] All the things you can see are something beyond the idea of purity or impurity. That is the point we have to observe, contemplate, as the practice of mindfulness. 
+That’s why Dōgen Zenji [talks about] in this section the meaning of observing the body as not-pure. That is, anyway, through your body. “Let’s observe your body” means your body and your object, or the human world, and various aspects of the life manifested by your body and mind. [What’s that?] All the things you can see are something beyond the idea of purity or impurity. That is the point we have to observe, contemplate, as the practice of mindfulness. 
 
 #### 3 - 12:18
 

@@ -148,7 +148,7 @@ For instance, if you chant the sutra to the Buddha, this is practice. But throug
 
 So, no merit. Always putting aside individual experience, whatever it is, and then [continuing to] chant – that is no-merit. But this no-merit is really merit, because you can deeply settle yourself in the middle of ritual. It’s very stable. So sooner or later, you can touch the core of existence. 
 
-And that is no-heap of merit. So according to [Dogen](glossary#dogen)’s term, giving is not to covet.
+And that is no-heap of merit. So according to Dōgen’s term, giving is not to covet.
 
 #### 45:10
 

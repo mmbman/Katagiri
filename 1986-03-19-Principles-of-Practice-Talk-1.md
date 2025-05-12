@@ -20,7 +20,7 @@ title: "Principles of Practice, Talk 1: The Purpose of Practice"
 
 Before we go into these three issues, today I would like to talk about the purpose of the practice generally: why we have to practice; what is the purpose of the practice. What is the purpose of spiritual life? 
 
-In *Gakudō-yōjinshū*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dogen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dogen Zenji [says]:
+In *Gakudō-yōjinshū*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dōgen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dōgen Zenji [says]:
 
 > The study of the Way through the practice of zazen is of vital importance.
 
@@ -28,9 +28,9 @@ I think I have to say the same sentence in a different way:
 
 > *Sanzen gakudō* is the great matter of one’s whole life. 
 
-I think “the great matter of one’s whole life” is not only [in Dogen’s works]; you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, Chapter Two, “Skillfulness,” I think [it says] that “the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter.” It is the same meaning as Dogen mentions here. *Sanzen gakudō* is translated according to this book as “the study of the Way through the practice of zazen” – *sanzen gakudō* is the great matter of one’s whole life. 
+I think “the great matter of one’s whole life” is not only [in Dōgen’s works]; you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, Chapter Two, “Skillfulness,” I think [it says] that “the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter.” It is the same meaning as Dōgen mentions here. *Sanzen gakudō* is translated according to this book as “the study of the Way through the practice of zazen” – *sanzen gakudō* is the great matter of one’s whole life. 
 
-*Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the way. So *gakudō* is a pretty technical term Dogen Zenji uses very often: *gakudō*, to study or to learn the Way. 
+*Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 
 *The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 
@@ -82,13 +82,13 @@ That’s why in the *Prajnaparamita Sutra* we say we have to attain *anuttara-sa
 
 Even though you don’t understand this, we are struggling [toward] attaining this. That’s why we practice. That’s why we live in this world. 
 
-You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dogen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life is very important, because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is [the] real reality [which] your life is. 
+You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dōgen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life is very important, because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is [the] real reality [which] your life is. 
 
 So you shouldn’t neglect it or treat it lightly. That’s why this is “the great matter of your *whole* life.” 
 
 #### 30:14
 
-That’s why next [Dogen] says:
+That’s why next [Dōgen] says:
 
 > In China there are the excellent examples of former Zen masters who cut off their arms or fingers. [...]
 
@@ -100,7 +100,7 @@ So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up fro
 
 So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. For him it is not hard practice, or not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
 
-That’s why Dogen Zenji says here, “In China there are the excellent examples of former Zen masters who cut off their arms or fingers.”
+That’s why Dōgen Zenji says here, “In China there are the excellent examples of former Zen masters who cut off their arms or fingers.”
 
 And also he says:
 
@@ -110,13 +110,13 @@ This is laziness. This is the nature of human beings. Unconsciously we try to ju
 
 But what you *just do* doesn’t hurt anybody. [Still], lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you [their idea].
 
-That’s why here Dogen Zenji says it like this: “Their words are very mistaken.” [They are]. 
+That’s why here Dōgen Zenji says it like this: “Their words are very mistaken.” [They are]. 
 
 So, if you see the example of what the ancestors did, like the Second Patriarch, maybe we say it’s impossible for us to do this in the modern age. But I don’t mean you should imitate that example. But I [also] don’t mean that you should ignore that example. Because that example happened in the natural way for the people who really realized something very important: the great matter of his or her whole life. At that time, naturally you can do it, beyond hard or easy. 
 
 #### 39:04
 
-And also, Dogen Zenji says:
+And also, Dōgen Zenji says:
 
 > If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious. 
 
@@ -136,7 +136,7 @@ And many people said, “You are crazy”; “you are stupid.” But, well, I ju
 
 I didn’t want to do something strange apart from the other monks; I was not against others’ doing. So I tried to find the opportunity to do zazen and other activities. While the other monks, my friends, slept in their bed, took a nap, et cetera, [...] I went to zazen and other activities. 
 
-So, I think that is what Dogen Zenji mentions here: “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.”
+So, I think that is what Dōgen Zenji mentions here: “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.”
 
 >  If one thing becomes tedious, all things become tedious. 
 
@@ -144,14 +144,14 @@ That’s very natural too. If you become very tedious [in] taking care of one th
 
 For instance, I really experienced this when I was in my temple. I was tedious for a certain period of time: I didn’t want to get up in the morning. Even though my master got up in the morning, I didn’t. On purpose. *[He laughs.]* So my life all day was completely tedious. All day didn’t go smoothly; always something cloudy. So I became very lazy. 
 
-So that is what Dogen Zenji mentions here: “If one thing becomes tedious, all things become tedious.”
+So that is what Dōgen Zenji mentions here: “If one thing becomes tedious, all things become tedious.”
 
 > You should know that those who like easy things are, as a matter of course, unworthy of the practice of the
 Way.
 
 [For] “unworthy of the practice of the Way,” originally it says, “you are not an appropriate *container* of the Way.” [It] means you are incompetent as an appropriate practitioner of the Way. You are a great container of the dharma, but it doesn’t appear; so that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That [is] the practice: make it alive! 
 
-So [...] your body and mind is a great dharma container, but it doesn’t work. At that time you are a container but your container doesn’t work. That’s the point Dogen Zenji mentions here. 
+So [...] your body and mind is a great dharma container, but it doesn’t work. At that time you are a container but your container doesn’t work. That’s the point Dōgen Zenji mentions here. 
 
 So this is [the] purpose of practice. Tomorrow I would like to talk about *bodhi-mind*. Do you have questions? 
 

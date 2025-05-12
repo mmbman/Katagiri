@@ -146,7 +146,7 @@ So this is a fact of your life. Even though you believe you have attained enligh
 
 > “Why don’t you, from within your own mind, suddenly see the true suchness of your original nature?
 
-So, what is buddha-nature? What is buddha? That’s why Dogen Zenji [talks] about the buddha-nature very in detail in the *Shōbōgenzō*.
+So, what is buddha-nature? What is buddha? That’s why Dōgen Zenji [talks] about the buddha-nature very in detail in the *Shōbōgenzō*.
 
 **Question:** So this double mask is the ongoing need to awaken to *[unintelligible]*?
 
@@ -240,7 +240,7 @@ Do you have something to say to his question?
 
 **Katagiri Roshi:** Okay. We can listen once again.
 
-**Questioner:** Okay, I'm referring to, if I see the floor, then I’ve created objects. Okay, this is delusion. So I'm asking, what is the difference between the experience of the floor as object [or] as delusion, or between pure vision, true vision of the floor. And you're making it sound like you’re talking about some... There's no relation, or some other experience. You’re not answering my question. Like, Dogen says, “From the first, dullness and distraction are struck aside,” he doesn't say, “Some day you will see the truth and then dullness and distraction will be struck aside.” But *you* seem to be saying *that*. You’re not answering my question. 
+**Questioner:** Okay, I'm referring to, if I see the floor, then I’ve created objects. Okay, this is delusion. So I'm asking, what is the difference between the experience of the floor as object [or] as delusion, or between pure vision, true vision of the floor. And you're making it sound like you’re talking about some... There's no relation, or some other experience. You’re not answering my question. Like, Dōgen says, “From the first, dullness and distraction are struck aside,” he doesn't say, “Some day you will see the truth and then dullness and distraction will be struck aside.” But *you* seem to be saying *that*. You’re not answering my question. 
 
 **Katagiri Roshi:** I think a little bit the spiritual life... [...] Uh, how can I say it? [The] *quality* of spiritual life is based on two points. One is awareness, awakening. Okay? Seeing deeply the ultimate nature of existence. That is *awareness*, or *enlightenment*, we say. Second is *salvation*. 
 
@@ -308,9 +308,9 @@ So I'm not [ignoring]. But I always taste how limited knowledge is, how knowledg
 
 **Same person:** ... yourself and the floor, and there’s also the activating of the belief system. It sounds like your belief system that “I have to take care of this as a Buddha.” So there's some idea of what a buddha is, et cetera, et cetera.
 
-**Katagiri Roshi:** Yes. That's why Dogen Zenji [says], what is the buddha-nature you believe? That's why Joshu Zen Master says, “dog has no buddha-nature.” And sometimes he says, “dog has buddha-nature.” That is our belief system you mentioned, you know? So whatever you say  – [...] “I believe the truth that we are buddha” – this is already limited. So that's why Joshu has to say, “no buddha.” Okay?
+**Katagiri Roshi:** Yes. That's why Dōgen Zenji [says], what is the buddha-nature you believe? That's why Joshu Zen Master says, “dog has no buddha-nature.” And sometimes he says, “dog has buddha-nature.” That is our belief system you mentioned, you know? So whatever you say  – [...] “I believe the truth that we are buddha” – this is already limited. So that's why Joshu has to say, “no buddha.” Okay?
 
-But how can you know true buddha? That's why Dogen Zenji finally says “no buddha” is pretty close to the true buddha-nature. That’s it. That's why finally we use the negative term. So again and again we have to use a negative term, and to awaken ourself. Is that clear? 
+But how can you know true buddha? That's why Dōgen Zenji finally says “no buddha” is pretty close to the true buddha-nature. That’s it. That's why finally we use the negative term. So again and again we have to use a negative term, and to awaken ourself. Is that clear? 
 
 So that is what? That is a practice already. We have to practice, we have to deal [with]. How can we deal with the floor? That is a point. When you practice, there is a certain form. We need this; it is necessary. Because there are many forms to use to deal with the floor – according to individuals’ characters and personalities, very different. That's why form should be refined, in order to be saved in the world of you and floors, beyond the delusion of object or purity of object. Because where is salvation? Salvation is *right there*, in the practice.
 
@@ -344,9 +344,9 @@ If you have something you can tell him. Okay?
 
 **Katagiri Roshi:** Do you have something?
 
-**Question:** I have a question, Roshi, which I think might be related to that, but I'm not sure. But it is related to something Mike said in his talk the other day, about lay practice and priest practice, and how Dogen says in two different places different things. You run across those contradictions often, it seems, in Buddhism: is that to try to take you beyond, to get you to that limitation of knowledge?
+**Question:** I have a question, Roshi, which I think might be related to that, but I'm not sure. But it is related to something Mike said in his talk the other day, about lay practice and priest practice, and how Dōgen says in two different places different things. You run across those contradictions often, it seems, in Buddhism: is that to try to take you beyond, to get you to that limitation of knowledge?
 
-**Katagiri Roshi:** Mm-hmm. Yes. Dogen Zenji mentions [that] in priest life. Why Dogen Zenji [says] priest life is the highest level of spiritual life [for] humans, [and] on the other hand, no limitation, you know? [...] So that is pretty contradictory. But what if you come to the dead-end limitation of lay life? Very naturally you can go beyond this, so you want to do something. Do you understand?
+**Katagiri Roshi:** Mm-hmm. Yes. Dōgen Zenji mentions [that] in priest life. Why Dōgen Zenji [says] priest life is the highest level of spiritual life [for] humans, [and] on the other hand, no limitation, you know? [...] So that is pretty contradictory. But what if you come to the dead-end limitation of lay life? Very naturally you can go beyond this, so you want to do something. Do you understand?
 
 The same applies to the realization of limitation of human knowledge, and then you can go beyond. It's not your business, it's not individual business. It’s really the Buddha’s business.
 
@@ -354,7 +354,7 @@ Is that clear? *[He laughs.]*
 
 For instance, I always [say], you can study the station master and how can you become a station master, what is a station master’s business and duties, you know? As a lay Buddhist, as a professional, you can study. But when you *really* want to to be a station master, you have to be. So how can you get into the profession of station master? You have to know the limitation of station master, looking at the different [...] lay station master. Do you understand?
 
-But if you try to explain, there are two things, always. But actually, not two: one. So very naturally [...] you can find two different emphasis in Dogen’s [writing], which seems to be contradictory, but he accepted both worlds, not ignored. People always [say] Dogen always emphasizes [that] the priest life is highest, but I don't think so. It is not discrimination.
+But if you try to explain, there are two things, always. But actually, not two: one. So very naturally [...] you can find two different emphasis in Dōgen’s [writing], which seems to be contradictory, but he accepted both worlds, not ignored. People always [say] Dōgen always emphasizes [that] the priest life is highest, but I don't think so. It is not discrimination.
 
 #### 1:11:19 end of recording
 

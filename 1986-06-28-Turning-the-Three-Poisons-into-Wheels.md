@@ -14,7 +14,7 @@ title: "Turning the Three Poisons into Wheels"
 
 #### 0:00
 
-**Katagiri Roshi:** Today I would like to talk about the third of the Ten Prohibitory Precepts: abstaining from sexual greed. The comment [on this] by Dogen Zenji says:
+**Katagiri Roshi:** Today I would like to talk about the third of the Ten Prohibitory Precepts: abstaining from sexual greed. The comment [on this] by Dōgen Zenji says:
 
 > The threefold wheel is pure and clean, nothing to be desired. They go along together with the Buddhas.
 
@@ -38,15 +38,15 @@ But as you know pretty well, we usually understand that body, mouth, and mind ar
 
 So how can you turn the *poison* of greed into the *wheel* of greed? Simply speaking, as you know, the Buddha taught us that we are Buddha. So if Buddha [teaches us] that we are perfectly Buddha, if [it is] so, we can use this teaching completely, inexhaustibly, constantly. From the beginning to end – in the beginning, in the middle, and in the end of life – we should accept this teaching and the truth, and digest it, and make it alive in our everyday lives. This is called *samadhi*, we say; [or] *jijiyu [zanmai]*. The *ji* means the self. *Ju* means *receive*. *Yu* means *use*. The *zanmai* is *samadhi*. So *jijiyu samadhi* means you yourself receive the truth that Buddha mentions, that all are Buddha, and use it inexhaustibly – being present in the truth that all are perfect and pure. 
 
-I think in the *Prajnaparamita Sutra*, it says that constantly everything is perfectly innocent and naive. And also everything is perfectly contented with itself, because it is perfectly innocent and naive; [there is] nothing to be contaminated. This is the basic of existence we live in. This state of existence is going constantly, beyond human speculation. This is a point which the *Prajnaparamita Sutra* and the *Avatamsaka Sutra*, *Madhyamaka*, all Buddhist scriptures constantly [teach]. And then, finally, they emphasize that we should receive this truth and *use it*, and be with it. That means *samadhi*. Constantly you have to be present in this truth in samadhi. *In samadhi* means constantly focusing on this truth, and being present with it, by virtue of total recieving and using it. This is called *jijiyu samadhi*. I think in our sutra book there is the sutra called *Jijiyu Samadhi* by Dogen Zen Master. It is a very beautiful sutra. So you should read this one again and again; that’s why I put it there.
+I think in the *Prajnaparamita Sutra*, it says that constantly everything is perfectly innocent and naive. And also everything is perfectly contented with itself, because it is perfectly innocent and naive; [there is] nothing to be contaminated. This is the basic of existence we live in. This state of existence is going constantly, beyond human speculation. This is a point which the *Prajnaparamita Sutra* and the *Avatamsaka Sutra*, *Madhyamaka*, all Buddhist scriptures constantly [teach]. And then, finally, they emphasize that we should receive this truth and *use it*, and be with it. That means *samadhi*. Constantly you have to be present in this truth in samadhi. *In samadhi* means constantly focusing on this truth, and being present with it, by virtue of total recieving and using it. This is called *jijiyu samadhi*. I think in our sutra book there is the sutra called *Jijiyu Samadhi* by Dōgen Zen Master. It is a very beautiful sutra. So you should read this one again and again; that’s why I put it there.
 
 So in order to turn the poison of greed into the wheel of greed, we should receive and use that truth that all are Buddha, and constantly be present with it, in samadhi. *In samadhi* means in one-pointedness. What is the target we have to aim at? That target is the truth that all are Buddha, all are perfectly innocent and naive, very pure, undefiled. So we should have this target and constantly move toward it and aim at it. This is samadhi. Every day, we have to do it. So at that time, it is called the *wheel* of greed. In other words, *great* greed. *Great* greed means living in vow, which makes your life totally alive; not for a certain period of time, but life after life. This is *great greed*; in other words, living in vow. 
 
 #### 22:57
 
-I think Dogen Zenji constantly presents this point in words; that’s why it is difficult to believe it and to accept it. Other sutras, whatever kind of sutra you read, always [explain] this point, but Dogen Zenji constantly [expresses] this point regardless of whether you believe it or not, and then awakens people to this truth. If you read his works, it’s really amazing, because first of all he [blows it up]; he presents something in oneness, [something which is not an idea but] is really alive, immediately, right in front of you. So we are very surprised, amazed, startled. That’s why we don’t believe it. 
+I think Dōgen Zenji constantly presents this point in words; that’s why it is difficult to believe it and to accept it. Other sutras, whatever kind of sutra you read, always [explain] this point, but Dōgen Zenji constantly [expresses] this point regardless of whether you believe it or not, and then awakens people to this truth. If you read his works, it’s really amazing, because first of all he [blows it up]; he presents something in oneness, [something which is not an idea but] is really alive, immediately, right in front of you. So we are very surprised, amazed, startled. That’s why we don’t believe it. 
 
-Here is an example. In *Baika*, which means “Plum Blossoms,” Dogen Zenji quotes his master Tiantong’s poem. In Japan, the plum tree blooms in midwinter. It’s very beautiful, with scarlet flowers; everywhere is covered with snow, and the plum flowers bloom. It’s really beautiful. So Dogen Zenji and his teacher love the plum trees very much. The poem says: 
+Here is an example. In *Baika*, which means “Plum Blossoms,” Dōgen Zenji quotes his master Tiantong’s poem. In Japan, the plum tree blooms in midwinter. It’s very beautiful, with scarlet flowers; everywhere is covered with snow, and the plum flowers bloom. It’s really beautiful. So Dōgen Zenji and his teacher love the plum trees very much. The poem says: 
 
 > Tiantong’s first phrase of midwinter:  
 > The old plum tree, bent and gnarled,  
@@ -62,19 +62,19 @@ Here is an example. In *Baika*, which means “Plum Blossoms,” Dogen Zenji quo
 > The old plum tree is boundless;  
 > a hard cold rubs the nostrils.  
 
-Can you see this [scene]? In the world of complete whiteness, one blossom, two blossoms, three, four, five blossoms, all of a sudden bloom. Without showing arrogance; so he says, “Not proud of purity, not proud of fragrance.” [They] just bloom. It’s very beautiful. In this kind of expression, Dogen’s teacher  immediately, in words, brings up total oneness of plum flowers with all sentient beings. 
+Can you see this [scene]? In the world of complete whiteness, one blossom, two blossoms, three, four, five blossoms, all of a sudden bloom. Without showing arrogance; so he says, “Not proud of purity, not proud of fragrance.” [They] just bloom. It’s very beautiful. In this kind of expression, Dōgen’s teacher  immediately, in words, brings up total oneness of plum flowers with all sentient beings. 
 
-Dogen’s commentary is also interesting. He says:
+Dōgen’s commentary is also interesting. He says:
 
 > When the old plum tree suddenly opens, the world of blossoming flowers arises. At the moment when the word of blossoming flowers arises, spring arrives. There is a single blossom that opens [...] At this moment of a single blossom, there are three, four, and five blossoms, a hundred, thousand, millions, billions of blossoms.
 
 So first, “When the old plum tree suddenly opens, the world of the blossoming flowers arises.” That means the whole world is occupied, embraced by blooming flowers. So the whole world is flowers; even though the world is covered with snow, it’s completely flowers. And then, that is simultaneously spring. So that’s why it says, “At the moment when the world of blossoming flowers arises, spring arrives.” Which of the two comes first? Does spring come first? Or do blooming flowers come first? That is human speculation. *Reality*, as it really is, is completely the truth that blooming flowers and spring come together, simultaneously. We don’t know how. But this is true.
 
-Dogen Zenji and many teachers try to present this total picture of the *one* working with the whole universe. So if you see the one plum flower, immediately you can see the whole world working with this one plum flower, through his words.
+Dōgen Zenji and many teachers try to present this total picture of the *one* working with the whole universe. So if you see the one plum flower, immediately you can see the whole world working with this one plum flower, through his words.
 
 #### 30:31
 
-Another example is [that Dogen Zenji] talks about *everydayness*, everyday mind. What is everyday mind? Everyday mind. We know [it] pretty well. But he says (in *Shinjin Gakudō*: “Studying the Way with Body and Mind”) that everyday mind is quite different from our understanding. He says:
+Another example is [that Dōgen Zenji] talks about *everydayness*, everyday mind. What is everyday mind? Everyday mind. We know [it] pretty well. But he says (in *Shinjin Gakudō*: “Studying the Way with Body and Mind”) that everyday mind is quite different from our understanding. He says:
 
 > Everyday mind is everyday mind throughout this world and other worlds. Yesterday lept from that [place]; today comes from that place. When you go, the whole world goes. When you come, the whole earth comes. The gate of this everydayness [is] opening and closing at the moment; the gate[s] of myriad, myriad beings are opening and closing at the moment. 
 
@@ -88,7 +88,7 @@ So we should totally accept this everydayness. And then naturally you remember t
 
 #### 34:38
 
-Second, *the wheel of anger*. How can you turn the *poison* of anger into the *wheel* of anger? I think Dogen Zenji says it (in *Sanjūshichi-bon-bodai-bunpō*, the “Thirty-Seven Elements of Bodhi” fascicle of *Shōbōgenzō*) like this:
+Second, *the wheel of anger*. How can you turn the *poison* of anger into the *wheel* of anger? I think Dōgen Zenji says it (in *Sanjūshichi-bon-bodai-bunpō*, the “Thirty-Seven Elements of Bodhi” fascicle of *Shōbōgenzō*) like this:
 
 > When a demon becomes Buddha, you should subdue him and let him become the Buddha by dealing with it. When the Buddha becomes the Buddha, you should intend to become the Buddha and let him become Buddha by dealing with the Buddha. When a person becomes the Buddha, you should harmonize him and let him become the Buddha by dealing with him. You should know that there is a passage to freedom the moment when you deal with.
 
@@ -104,7 +104,7 @@ So, at that time it is called *the wheel of anger*, instead of *the poison of an
 
 Next, *the wheel of ignorance*. How can you turn the poison of ignorance into the wheel of ignorance? 
 
-I think in *Song of the Jewel Mirror*, in the last sentence, it says, “practicing secretly, working within.” So in order to turn the poison of ignorance into the wheel of ignorane, I think we should achieve continuity of “practicing secretly, working within”. “Practice in secret” means, as Dogen Zenji teaches, practice in a monastery must be carried out *quietly*, calmly – not something showy. Because *passage to freedom* goes to you only when you *deal with*, right now, right here. That’s why practice is what? When you yourself want to be peace and harmony, right in the moment of sitting, from moment to moment – where is the passage to freedom, to peace and harmony? Right now, right here, you should receive your body and use your body and mind in peace and harmony; be present in peace and harmony. That means, bring the peace and harmony to your body and mind, right now, right here. This is nothing but practice in action. 
+I think in *Song of the Jewel Mirror*, in the last sentence, it says, “practicing secretly, working within.” So in order to turn the poison of ignorance into the wheel of ignorane, I think we should achieve continuity of “practicing secretly, working within”. “Practice in secret” means, as Dōgen Zenji teaches, practice in a monastery must be carried out *quietly*, calmly – not something showy. Because *passage to freedom* goes to you only when you *deal with*, right now, right here. That’s why practice is what? When you yourself want to be peace and harmony, right in the moment of sitting, from moment to moment – where is the passage to freedom, to peace and harmony? Right now, right here, you should receive your body and use your body and mind in peace and harmony; be present in peace and harmony. That means, bring the peace and harmony to your body and mind, right now, right here. This is nothing but practice in action. 
 
 So what is this? This practice must be going very calmly, not showy. That is called the *wheel of ignorance*, instead of the *poison of ignorance*.
 
@@ -112,7 +112,7 @@ So what is this? This practice must be going very calmly, not showy. That is cal
 
 So that is [what] “the threefold wheel is pure and clean” [means]. Naturally that practice is pure and clean. 
 
-[At first], it’s very difficult to believe or receive this representation by buddhas, ancestors and Dogen, presenting something with the whole universe. It’s very difficult to receive, because human speculation doesn’t catch it! Always human consciousness gets [just] one corner of the universe, so it’s very difficult to get, to hold, to have the *whole* universe through the one thing. That’s why we have to receive it and use it, as best as we can; this is the purpose is spiritual life. Otherwise, no matter how long you try to understand the universe intellectually and metaphysically, you never get the spirit of spiritual life, based on peace and harmony. 
+[At first], it’s very difficult to believe or receive this representation by buddhas, ancestors and Dōgen, presenting something with the whole universe. It’s very difficult to receive, because human speculation doesn’t catch it! Always human consciousness gets [just] one corner of the universe, so it’s very difficult to get, to hold, to have the *whole* universe through the one thing. That’s why we have to receive it and use it, as best as we can; this is the purpose is spiritual life. Otherwise, no matter how long you try to understand the universe intellectually and metaphysically, you never get the spirit of spiritual life, based on peace and harmony. 
 
 #### 44:06 end of recording
 

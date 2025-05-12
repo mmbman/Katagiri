@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 2"
+title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 2"
 ---
 ## March 12, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -17,11 +17,11 @@ title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 2"
 
 Yesterday I talked about the *right entrance* of zazen. Zazen is exactly *right entrance*. Right entrance is not to learn something step by step, but to emulate, to imitate the ancestors’ and buddhas’ doings, exactly. 
 
-Dogen Zenji’s whole life was exactly to imitate, to emulate buddhas’ and ancestors’ doings. That is his teaching. 
+Dōgen Zenji’s whole life was exactly to imitate, to emulate buddhas’ and ancestors’ doings. That is his teaching. 
 
 It’s not the parrot’s imitation, but human imitation is to emulate the ancestors’ doings and then you should have your own creative life. Otherwise, the imitation is merely just imitation. 
 
-That is human life. So Dogen Zenji, his whole life he just emulated buddhas’ and ancestors’ life, and created his own thought and religious spirit. This is Dogen’s very deep understanding and very stable, immovable practice. [This practice is] open to everyone – beyond sect, beyond religious denominations, beyond races – whoever you are. So his religious life is really creative, based on very deep understanding. 
+That is human life. So Dōgen Zenji, his whole life he just emulated buddhas’ and ancestors’ life, and created his own thought and religious spirit. This is Dōgen’s very deep understanding and very stable, immovable practice. [This practice is] open to everyone – beyond sect, beyond religious denominations, beyond races – whoever you are. So his religious life is really creative, based on very deep understanding. 
 
 So that’s why he says *right entrance*. 
 
@@ -39,7 +39,7 @@ All are buddhas, all are enlightened beings, so we can do anything.
 
 And the second [point] in this question is, that we always believe that just sitting is wasting time. 
 
-That is the question. So Dogen Zenji says – yesterday we read the beginning...
+That is the question. So Dōgen Zenji says – yesterday we read the beginning...
 
 > By picturing as you did a moment ago the unsurpassed great dharma and the *samadhi* of the buddhas as sitting idly and doing nothing, you malign the Great Vehicle. Your illusion is indeed profound. It is like being in the middle of a great ocean and saying there is no water. Thankfully, buddhas are already sitting serenely in *jijuyu samadhi*. Does this not constitute extensive merit? It is to be pitied that your eye is not yet opened, that your mind is still drunk. 
 > 
@@ -49,21 +49,21 @@ That is the question. So Dogen Zenji says – yesterday we read the beginning...
 >
 > Only you must know without fail that the wondrous dharma of the seven buddhas can be received and maintained, with its genuine essence manifested, if a practicer whose mind is in accord with enlightenment closely follows and receives the right transmission from a clear-minded master who has attained the way. There is no way for this to be known by a priest who studies only words. Therefore, you should have done with these uncertainties and illusions, negotiate the way in zazen under the guidance of a true teacher, and gain complete realization of *jijuyu samadhi* of the Buddhas. 
 
-Here, Dogen Zenji [seems to criticize] sutra recitations or *nembutsu* very sharply, strongly, saying, “To think merely moving your tongue or raising your voice has the merit of buddha work is a truly futile notion.” Or he says, “lifting your voice in endless recitation is like the frogs in the spring fields croaking from morning to nightfall – no less than before, without benefit.” It seems to criticize *nembutsu*, the Pure Land school, and other Buddhists. But truly, strictly speaking, it is not criticizing the existing Pure Land school or the founder of the Pure Land school, but the people who practice *nembutsu* chanting or sutra recitation without devoting themselves fully to recite the name of Amitabha. And then those people criticize the people who sit in zazen with *shikantaza*, *just sitting*, saying that is wasting time. [...] Dogen Zenji criticizes those people who are criticizing zazen [as] a waste of time, because they don’t understand their own practice, reciting *nembutsu*. 
+Here, Dōgen Zenji [seems to criticize] sutra recitations or *nembutsu* very sharply, strongly, saying, “To think merely moving your tongue or raising your voice has the merit of buddha work is a truly futile notion.” Or he says, “lifting your voice in endless recitation is like the frogs in the spring fields croaking from morning to nightfall – no less than before, without benefit.” It seems to criticize *nembutsu*, the Pure Land school, and other Buddhists. But truly, strictly speaking, it is not criticizing the existing Pure Land school or the founder of the Pure Land school, but the people who practice *nembutsu* chanting or sutra recitation without devoting themselves fully to recite the name of Amitabha. And then those people criticize the people who sit in zazen with *shikantaza*, *just sitting*, saying that is wasting time. [...] Dōgen Zenji criticizes those people who are criticizing zazen [as] a waste of time, because they don’t understand their own practice, reciting *nembutsu*. 
 
-So I think Dogen Zenji tries to wake them up [as to] how they should practice sutra recitation or chanting the name of Amitabha. He tries to wake them up [as to] what [they] are doing – how it depends on the degree, the intention they have in order to chant the name of Amitabha. They truly have to devote themselves to chanting exactly – just like *shikantaza*. 
+So I think Dōgen Zenji tries to wake them up [as to] how they should practice sutra recitation or chanting the name of Amitabha. He tries to wake them up [as to] what [they] are doing – how it depends on the degree, the intention they have in order to chant the name of Amitabha. They truly have to devote themselves to chanting exactly – just like *shikantaza*. 
 
-But they don’t do it, because they don’t understand *just sitting*. *Just sitting* is not just sitting. Usually people believe *just sitting* is total manifestation of the Buddha’s world, without leaving any trace of self-consciousness, beyond time... this is zazen, *shikantaza*. But people don’t understand this. That’s why those people who chant the name of Amitabha criticize the Zen student who sits with wholeheartedness like this. That’s why Dogen Zenji tries to wake them up. 
+But they don’t do it, because they don’t understand *just sitting*. *Just sitting* is not just sitting. Usually people believe *just sitting* is total manifestation of the Buddha’s world, without leaving any trace of self-consciousness, beyond time... this is zazen, *shikantaza*. But people don’t understand this. That’s why those people who chant the name of Amitabha criticize the Zen student who sits with wholeheartedness like this. That’s why Dōgen Zenji tries to wake them up. 
 
 Chanting the name of Amitabha is not different from *shikantaza*. It’s exactly the same. If you criticize *shikantaza*, you don’t understand your [own] practice. 
 
 In other words: if I criticize somebody, [saying,] “You are stupid” – *who* is stupid? *I* am stupid – because I see [that person] in terms of my views. That’s why first I must be stupid, and then I can see them as stupid. But if I am generous and magnanimous, compassionate, well, I can accept them – so I cannot say “stupid.” 
 
-So if they always criticize, [saying,] “Zazen is [just] wasting time,” it is exactly the same as their own practice: their own practice is exactly wasting time. That’s why Dogen Zenji says here, “just croaking in the spring field.” Nothing else. 
+So if they always criticize, [saying,] “Zazen is [just] wasting time,” it is exactly the same as their own practice: their own practice is exactly wasting time. That’s why Dōgen Zenji says here, “just croaking in the spring field.” Nothing else. 
 
-But usually people understand this paragraph [as] criticizing *nembutsu* and the Shin school. I don’t think Dogen Zenji criticized the practice of *nembutsu* or the Shin school founded by Shinran in Japan. Shinran himself devoted himself to chant exactly. 
+But usually people understand this paragraph [as] criticizing *nembutsu* and the Shin school. I don’t think Dōgen Zenji criticized the practice of *nembutsu* or the Shin school founded by Shinran in Japan. Shinran himself devoted himself to chant exactly. 
 
-So Dogen’s criticism is quite different: always trying to wake up people who criticize Zen Buddhism, or Shakyamuni, or whoever they are [criticizing].
+So Dōgen’s criticism is quite different: always trying to wake up people who criticize Zen Buddhism, or Shakyamuni, or whoever they are [criticizing].
 
 #### 19:10
 
@@ -73,7 +73,7 @@ And next, finally he says,
 
 Always we are doing something together with the desire for getting fame and profit, and *then* you are excited to do something. If there is no sense of desire with profit and fame, you don’t want to do [it]. 
 
-If you really try to do something in order to get profit and fame, I think you don’t understand this kind of Buddhist practice, *just sitting*. That’s why Dogen Zenji says, “How much more difficult is it to relinquish such things for those deeply deluded by profit and fame.” *Profit and fame* means human beings always do something [together with the desire] to get fame, profit, or satisfying self-consciousness, to please the self, constantly. 
+If you really try to do something in order to get profit and fame, I think you don’t understand this kind of Buddhist practice, *just sitting*. That’s why Dōgen Zenji says, “How much more difficult is it to relinquish such things for those deeply deluded by profit and fame.” *Profit and fame* means human beings always do something [together with the desire] to get fame, profit, or satisfying self-consciousness, to please the self, constantly. 
 
 > ... this because of extreme profundity of their covetousness.
 
@@ -87,7 +87,7 @@ So finally, what should we do? So next, he [says],
 
 > Only you must know without fail that the wondrous dharma of the seven buddhas can be received and maintained, with its genuine essence manifested, if a practicer whose mind is in accord with enlightenment closely follows and receives the right transmission from a clear-minded master who has attained the way.
 
-Very naturally, it is necessary for us to practice under the guidance of a great teacher. Because Dogen Zenji experienced very strongly, profoundly when he met his teacher in China. So how important it was for him, for everyone. That’s why he [says] here, 
+Very naturally, it is necessary for us to practice under the guidance of a great teacher. Because Dōgen Zenji experienced very strongly, profoundly when he met his teacher in China. So how important it was for him, for everyone. That’s why he [says] here, 
 
 > There is no way for this to be known by a priest who studies only words. Therefore, you should have done with these uncertainties and illusions, negotiate the way in zazen under the guidance of a true teacher, and gain complete realization of the *jijuyu samadhi* of the buddhas. 
 
@@ -107,7 +107,7 @@ Shingon sacred tantric school.
 
 This is also a pretty common question most people have, even now. If you emphasize *shikantaza* always, without learning anything, how can we save all sentient beings? There are many beings who are starving to death – so all we have to do is to sit down here? So, many people have questions: “It’s ridiculous. We should go somewhere to save somebody.” Or, “we should participate in peace work,” et cetera. 
 
-It is true, it is fine. But [...] Dogen Zenji [says] in his answer, it is not a matter of [discussing] which of two is important. The point is, wherever you may be, *how* you should do it. How much your intention is there, in your practice. 
+It is true, it is fine. But [...] Dōgen Zenji [says] in his answer, it is not a matter of [discussing] which of two is important. The point is, wherever you may be, *how* you should do it. How much your intention is there, in your practice. 
 
 [...] “Need I mention teachings like that of the Shingon sect”: Here it says *Hokke*, *Lotus Sutra*, which means the Tendai or Tientai sect, based on the teaching of the *Lotus Sutra*, which emphasizes that all three vehicles are one: *shravaka*, *pratika*, and *bodhisattva*, all are one, no discrimination between. That is the Hokke [...] teaching, and then on the basis of the teaching of the *Lotus Sutra*, the Tendai school establishes its own teaching. [...] 
 
@@ -133,29 +133,29 @@ So if you see the human world, if you sit in zazen in this world, I think most p
 
 So what you have to do is, [...] to know who you are, what your position is, what you can do, what you cannot do. And then, if you see something even slightly, even just a small deal, I think the important point is, *you should do it*, while reflecting upon yourself whether your practice is really sincere or devoted fully. 
 
-That is [what] Dogen Zenji [says] here. This is really compassion. It’s really compassionate. 
+That is [what] Dōgen Zenji [says] here. This is really compassion. It’s really compassionate. 
 
 But usually, different denominations are always discussing about [whether] Christianity is pretty deep [or] Christianity is not deep, always discussing about [the] teaching. But if you compare – if you have, say, a conference to debate which schools are the best teaching in this world – [then] endlessly you have to [debate], and also you will see no conclusion. 
 
 So that’s why I [said], I think finally what we have to do is to practice sincerely with true heart, whoever you are, whatever denomination you belong to. Even if you don’t believe any religion, or you don’t belong to any religion, anyway what you have to do is to take best care of your life with a sincere heart! And then, you will really understand. Then you will understand religion or spiritual life, even [if] you don’t belong to [one].
 
-So [what Dogen Zenji says] is exactly universal to people who seek for the spiritual life, *or not*. 
+So [what Dōgen Zenji says] is exactly universal to people who seek for the spiritual life, *or not*. 
 
 #### 37:05
 
 > Men have flowed into the Buddha way, drawn by grasses and flowers, mountains and running water. Holding earth, rocks, sand, and pebbles, they have grasped completely the Buddha seal. Need it be said, vast great words are imprinted on all things in nature, and are still abundant. 
 
-I think we can attain enlightenment through pebbles, grasses, flowers, mountains, running waters – even words. So vast and great words are imprinted on all things in nature and are still abundant. But if you understand, if you deal with the words which [are not superior], well, I think you never know how important words are. So the great opportunity to realize what the truth is, great opportunity to live up to a state of true existence – there are many opportunities in grasses, in flowers, mountains, running waters, everywhere. So that’s why Dogen Zenji [says this] here. 
+I think we can attain enlightenment through pebbles, grasses, flowers, mountains, running waters – even words. So vast and great words are imprinted on all things in nature and are still abundant. But if you understand, if you deal with the words which [are not superior], well, I think you never know how important words are. So the great opportunity to realize what the truth is, great opportunity to live up to a state of true existence – there are many opportunities in grasses, in flowers, mountains, running waters, everywhere. So that’s why Dōgen Zenji [says this] here. 
 
 > A single mote of dust also is enough to turn the great Dharma Wheel. 
 
-I think in the Tendai or Tientai teachings, they emphasize “the three thousand worlds in a single thought in a moment.” So [as in that], Dogen Zenji mentions here, “a single mote of dust also is enough to turn the great Dharma Wheel.” So,
+I think in the Tendai or Tientai teachings, they emphasize “the three thousand worlds in a single thought in a moment.” So [as in that], Dōgen Zenji mentions here, “a single mote of dust also is enough to turn the great Dharma Wheel.” So,
 
 > Because of this, the words “the mind in itself is Buddha” are but the moon in the water. “The heart of sitting itself is attaining Buddha” is likewise a reflection in a mirror. Do not get caught up in skillful words. 
 
 So words are very skillful. If you don’t pay attention to them carefully, you are completely carried away. But if you pay attention to them, words give you great opportunity to realize the true state of existence. 
 
-That’s why Dogen Zenji says, the words “the mind in itself is Buddha” is still a shadow, it is still the moon in the water. It’s not the *real* moon, it is still a shadow of the moon. “The heart of the sitting itself is attaining Buddha” is likewise a reflection in a mirror. 
+That’s why Dōgen Zenji says, the words “the mind in itself is Buddha” is still a shadow, it is still the moon in the water. It’s not the *real* moon, it is still a shadow of the moon. “The heart of the sitting itself is attaining Buddha” is likewise a reflection in a mirror. 
 
 So still, whatever you say – “we are Buddha” – we say so in words, but it is still a shadow of existence. So that’s why [he says], “Do not get caught up in skillful words.” 
 
@@ -197,7 +197,7 @@ That means all sentient beings come to practice, if you do it. Beyond sectariani
 
 > None are excluded from being taught the means for illuminating the mind. This is something unheard of in other teachings. Followers of Buddha should simply learn the buddha-dharma.
 
-So, the point is, Dogen Zenji [says] again here how important [it is that] you have to see the true teacher. And under whom, you have to practice. Because this is an important point Dogen Zenji really experienced when he went to China. That’s why he always mentions [this] here and there in his works. 
+So, the point is, Dōgen Zenji [says] again here how important [it is that] you have to see the true teacher. And under whom, you have to practice. Because this is an important point Dōgen Zenji really experienced when he went to China. That’s why he always mentions [this] here and there in his works. 
 
 #### 48:12
 
@@ -205,13 +205,13 @@ So, the point is, Dogen Zenji [says] again here how important [it is that] you h
 > 
 > But when you now totally cast aside all things and single-mindedly do zazen in accordance with the buddha-seal, then, beyond the realms of illusion and enlightenment, sentiments and calculations, untouched by the difference of unenlightened and enlightened, you immediately walk at ease beyond established forms and regulations and employ great enlightenment. What have those enmeshed in the traps and snares of words and letters to compare to this? 
 
-So, Dogen Zenji says, behind the words, what does the Buddha or ancestors try to tell us? Not words. Words are very skillful, very tricky. So if you don’t deal with them properly, you are caught by them. But if you really use words deeply, it really helps you so much. 
+So, Dōgen Zenji says, behind the words, what does the Buddha or ancestors try to tell us? Not words. Words are very skillful, very tricky. So if you don’t deal with them properly, you are caught by them. But if you really use words deeply, it really helps you so much. 
 
-So [...] behind the words, or within the words, I think what we have to do is [...] to maintain [the] buddha-seal. *Buddha-seal* means we are already buddha. There is lack of nothing; Dogen Zenji says, we “lack nothing of highest enlightenment.” *We are buddha* is complete beyond we are perfect or not perfect. This is called buddha. 
+So [...] behind the words, or within the words, I think what we have to do is [...] to maintain [the] buddha-seal. *Buddha-seal* means we are already buddha. There is lack of nothing; Dōgen Zenji says, we “lack nothing of highest enlightenment.” *We are buddha* is complete beyond we are perfect or not perfect. This is called buddha. 
 
 So, I think we don’t understand who we are totally by our self-consciousness, we don’t understand it. Self-consciousness always evaluates whether we are complete or we are incomplete, or good or bad. But [the point that] we are buddha means that we are complete beyond this – completion or incompletion, self-consciousness. Or time; beyond time. 
 
-[...] This is Dogen’s teaching, but I think this teaching is open to anyone. Sportsmen, artists, whoever they are – actually, they experience this, exactly. But it seems to be a little easier [for them] to experience this, because their territory is a little bit limited. So-called *mountains*: the object is rock mountains, so all they have to do is to face the mountains and climb. So very naturally, they can devote ourselves totally to the mountains. Then, finally they become adept, through the experience of going beyond self and time, and experiencing the fascinating energies back and forth between the mountains and climbers, which no one stops. Naturally, they can become an adept mountaineer. 
+[...] This is Dōgen’s teaching, but I think this teaching is open to anyone. Sportsmen, artists, whoever they are – actually, they experience this, exactly. But it seems to be a little easier [for them] to experience this, because their territory is a little bit limited. So-called *mountains*: the object is rock mountains, so all they have to do is to face the mountains and climb. So very naturally, they can devote ourselves totally to the mountains. Then, finally they become adept, through the experience of going beyond self and time, and experiencing the fascinating energies back and forth between the mountains and climbers, which no one stops. Naturally, they can become an adept mountaineer. 
 
 But spiritual life doesn’t have any particular objects, so-called mountains, or art, et cetera, that’s why you have to have the object of the universe. You have to have the universe, all sentient beings as the object. That’s a really vast and big object! You don’t know how to deal [with it]. That’s why we don’t know how to devote ourselves totally – how to devote ourselves to deal with all sentient beings, and life and death, and experiencing those great energies back and forth between you and universe. We don’t know! It’s pretty hard. That’s why most people say it is wasting time. 
 

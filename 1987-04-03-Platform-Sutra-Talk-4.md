@@ -41,7 +41,7 @@ Today I would like to say a little bit about this point.
 
 #### 8:05
 
-I think in *Shōbōgenzō* “*Shizen-biku*”, “Four Zen *Bhikkhus*,” Dogen Zenji [talks] about the misunderstanding of Zen practice [or] Buddhist practice by many Zen monks in those days, quoting one of the Zen teacher’s statements. The Zen teacher [talks] about the realization of the truth based on [the] oneness of [...] three [ancient] teachings in China and also Buddhism. There are three: Taoism, Confucianism, and one more; I forgot the Chinese [name]. One more, three, and also Buddhism. [...] So one of the Zen teachers [talks about] the unity of the four religions [in China]. And then [for] each of the religions, [he states] the purpose of its own practice: what is the purpose of Confucianism, what is the purpose of Taoism, what is the purpose of Buddhist practice. [The Zen teacher says the purpose of] Buddhist practice is to see into one’s own nature. Then Dogen Zenji [says] that is a misunderstanding of Buddhism. 
+I think in *Shōbōgenzō* “*Shizen-biku*”, “Four Zen *Bhikkhus*,” Dōgen Zenji [talks] about the misunderstanding of Zen practice [or] Buddhist practice by many Zen monks in those days, quoting one of the Zen teacher’s statements. The Zen teacher [talks] about the realization of the truth based on [the] oneness of [...] three [ancient] teachings in China and also Buddhism. There are three: Taoism, Confucianism, and one more; I forgot the Chinese [name]. One more, three, and also Buddhism. [...] So one of the Zen teachers [talks about] the unity of the four religions [in China]. And then [for] each of the religions, [he states] the purpose of its own practice: what is the purpose of Confucianism, what is the purpose of Taoism, what is the purpose of Buddhist practice. [The Zen teacher says the purpose of] Buddhist practice is to see into one’s own nature. Then Dōgen Zenji [says] that is a misunderstanding of Buddhism. 
 
 And even though the sutra of the Sixth Patriarch [says it] like this... Do you remember, in the beginning I think, the Sixth Patriarch sutra [talks] about this point? [...] Page 43:
 
@@ -65,9 +65,9 @@ Then, I think in *Shōbōgenzō* there is a very interesting point [in] “Scrip
 
 > So it is that the total bringing forth of amassed qualities is made into form and name, into the lifeline. There is *walking*, there is *flowing*. There is a time when mountains give birth to mountain children. Because of the principle of mountains becoming Buddhas and Zen adepts, Buddhas and Zen adepts emerge and appear in this way. Even when we may have eyes for the manifestation of *plants and trees, earth and stones, walls and fences,* we are not in doubt, not disturbed – this is not *total manifestation of being*. Even though a time may manifest when it is seen as *arrays of treasures*, this is not the true ultimate. Even if there is *manifestation of being* seen as the realm of the Buddhas’ practice of the way, it is not necessarily something to love. Even if we attain the summit of *seeing manifestation of being* as the inconceivable qualities of the Buddhas, reality as it is is not only like this. Individual views of being are individual objects and subjects. This is not to say that they are to be considered *the work on the Way* of Buddhas and Zen adepts – they are limited views of one corner. 
 >
-> (From *Shōbōgenzō: Zen Essays by Dogen*, translated by Thomas Cleary, page 90.)
+> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, page 90.)
 
-[Here] Dogen Zenji mentions four views [of] many people. The first one, [it says here, is,] “When we may have eyes for the manifestation of *plants and trees, earth and stones, walls and fences,* we are not in doubt, not disturbed – this is not *total manifestation of being*.”
+[Here] Dōgen Zenji mentions four views [of] many people. The first one, [it says here, is,] “When we may have eyes for the manifestation of *plants and trees, earth and stones, walls and fences,* we are not in doubt, not disturbed – this is not *total manifestation of being*.”
 
 [This is the first of] four kinds of misunderstanding of Buddhism. If you believe the purpose of Buddhism is to see into one’s self-nature and realize the buddha way... it *seems* to be right, but it’s not alright, it’s misunderstanding. 
 
@@ -79,13 +79,13 @@ But on the other hand, the *Lotus Sutra* [says], “When all the living see, at 
 
 But those [first grade] people believe the world is nothing more than the manifestation of the plants and trees, earth and stones, walls and fences – [that] means lots of things in the human world, the *saha* world. Plants and trees, earth and stones, walls and fences... and earthquakes and fires, volcanoes, et cetera. Many things... wars, killing, pros and cons, success and failure. The world is completely filled with ugliness. So [the] *saha* world is [a] defiling land. 
 
-But Dogen Zenji [says] here, [that] even though you see those people who [say] “the world is a defiling land, that’s why we need a practice in order to see into one’s own nature and realize the buddha way” – even though you see those people, don’t doubt the truth, we are buddha. And also he [says] here, “We are not in doubt, not disturbed.” Don’t be confused, even though you see those people who talk about this. Many people doubt, or many people are very confused, but don’t do it, you know?
+But Dōgen Zenji [says] here, [that] even though you see those people who [say] “the world is a defiling land, that’s why we need a practice in order to see into one’s own nature and realize the buddha way” – even though you see those people, don’t doubt the truth, we are buddha. And also he [says] here, “We are not in doubt, not disturbed.” Don’t be confused, even though you see those people who talk about this. Many people doubt, or many people are very confused, but don’t do it, you know?
 
 And, “this is not the total manifestation of being.” Because that statement is not the total manifestation of being. In other words, [the teaching is] not talking about the total picture of what the human world is. It is just one corner. 
 
 #### 25:28
 
-The second-grade child [is one] who follows the Shared Doctrines. The Shared Doctrines means, according to Tendai, I think the *agamas* and *Vimalakirti Sutra*, *Prajnaparamita Sutra*, et cetera. It’s very common doctrines, open to everyone: the shared doctrines. So that is like second grade children. Dogen Zenji says, “Even though a time may manifest when it is seen as *arrays of treasures*, this is not the true ultimate.”
+The second-grade child [is one] who follows the Shared Doctrines. The Shared Doctrines means, according to Tendai, I think the *agamas* and *Vimalakirti Sutra*, *Prajnaparamita Sutra*, et cetera. It’s very common doctrines, open to everyone: the shared doctrines. So that is like second grade children. Dōgen Zenji says, “Even though a time may manifest when it is seen as *arrays of treasures*, this is not the true ultimate.”
 
 I think those who follow the Shared Doctrines, or second grade children, take a view of the world as treasures.  They believe the saha world is treasure. Because they see – what can I say – plants and trees, walls and fences, earthquakes and fires, and starvation, whatever – we see all those things [or] events as a piece of advice of how to live peacefully. Because we don’t like earthquakes, or fires, or starvation – but we can learn a lot from earthquakes and starvation. And misunderstandings and mistakes, you know, everyday life. We don’t like mistakes, but we cannot escape mistakes, and we cannot escape fires and earthquakes. So very naturally human beings create a culture of how to live in peace and harmony right in the middle of [an] earthquake. So [an] earthquake is not always bad. So they believe that we see earthquake or fire as [pieces of advice of] how to live peacefully. In a sense, we see plants and trees as treasures. 
 
@@ -93,7 +93,7 @@ But that kind of understanding depends on the individual viewpoint, because stil
 
 But I think that’s why many Buddhist scriptures mention transforming circumstances, transforming the objective situation into the inner world, inner life. Or, the purpose of practice is to transform absence of the mind into, well, realization of Buddhism, the buddha way – or transforming delusion into nirvana. That is the purpose of Buddhism we [talk about]. But that is the second grade children’s viewpoint, because it is still dualistic. 
 
-So that is the second point Dogen Zenji mentions here. 
+So that is the second point Dōgen Zenji mentions here. 
 
 #### 31:39
 
@@ -107,7 +107,7 @@ So in the universe, according to this story, there are sixteen big countries the
 
 So from this point, the saha world, our world, is the only place we can live, because Buddha lives [here]. So the saha world is not bad. So we love the saha world so much, because there is no other way to live. 
 
-But Dogen Zenji says, even if you believe like this, that place, Jambudvipa, is not altogether something to admire, to love. 
+But Dōgen Zenji says, even if you believe like this, that place, Jambudvipa, is not altogether something to admire, to love. 
 
 #### 37:53
 
@@ -117,11 +117,11 @@ So fourth grade children, who follow the Complete Doctrine according to Tendai, 
 
 Well, I think the *Sadharma Pundarika Sutra* [talks] about this point. Because the saha world is the only place where people can live, where buddhas and ancestors [and] bodhisattvas can live; if so, the saha world is filled with inconceivable merits of buddhas and ancestors and bodhisattvas. In other words, the saha world is Buddha’s world. So wherever you may go, you as a bodhisattva build up a buddha’s land. This is a point [which] many Buddhist scriptures [talk] about. Do you know that? 
 
-So we believe, “Yes, that’s it! That is a point we should believe as the purpose of Buddhist practice. Wherever you may go, build up the truth.” Even Dogen Zenji [talks about] this point. What is the point of Dogen Zenji’s teaching, ancestors’ teaching, and Buddha’s teaching? It is to build up the truth wherever you may go. Standing, walking, [doing] gassho, and zazen, eating breakfast, whatever you do – all you have to do is to build up the truth. [Truth] means buddha land. Even though many people create wars, killing, and producing nuclear weapons, all you can do is to build up the truth, buddha’s land, day by day, from moment to moment, wherever you may go. Don’t be disappointed, because saha world is a buddha land; saha world is the unique place chosen by Buddha Shakyamuni where he should live. That’s what they [always say]. 
+So we believe, “Yes, that’s it! That is a point we should believe as the purpose of Buddhist practice. Wherever you may go, build up the truth.” Even Dōgen Zenji [talks about] this point. What is the point of Dōgen Zenji’s teaching, ancestors’ teaching, and Buddha’s teaching? It is to build up the truth wherever you may go. Standing, walking, [doing] gassho, and zazen, eating breakfast, whatever you do – all you have to do is to build up the truth. [Truth] means buddha land. Even though many people create wars, killing, and producing nuclear weapons, all you can do is to build up the truth, buddha’s land, day by day, from moment to moment, wherever you may go. Don’t be disappointed, because saha world is a buddha land; saha world is the unique place chosen by Buddha Shakyamuni where he should live. That’s what they [always say]. 
 
 I think that seems to be true, okay? *[He chuckles.]* But still, it is questionable. 
 
-That’s why Dogen Zenji [says] here, “Even if we attain the summit of *seeing manifestation of being* as the inconceivable qualities of the Buddhas, reality as it is is not [only] like this.” No. Reality is what? If you believe like this, is reality-as-it-is just like that? No. Your life in reality is what? Full of suffering. 
+That’s why Dōgen Zenji [says] here, “Even if we attain the summit of *seeing manifestation of being* as the inconceivable qualities of the Buddhas, reality as it is is not [only] like this.” No. Reality is what? If you believe like this, is reality-as-it-is just like that? No. Your life in reality is what? Full of suffering. 
 
 So you say, “No, it’s not true.” But on the other hand, we are seeking for that buddha land. And also, it is possible for us to build up buddha land wherever we may go, because the saha world is the unique place chosen by buddhas and ancestors where they can live. 
 
@@ -153,13 +153,13 @@ So, [...] you should read this *agama*, it’s very interesting. The title is, I
 
 I think the point is, the four kind of views – first grade, second grade, third grade, fourth grade children – [speaks] about our attitude, how to live, how to take care of the human world. They seem to be right, because it is a teaching, whatever they say. That’s why the Sixth Patriarch [says here there are] eighty-four thousand wisdoms, eighty-four thousand different teachings there. Because [there are] twenty or [thirty] people here, [with] different types of life, different personalities: different worlds. So I think if you see the human world seriously and study, learn, very naturally you can have an outlook on the world and human beings. That’s why [there are] many kinds of religions. 
 
-So finally Dogen Zenji says, it is not important to discuss about which is the better teaching. The point is your *degree*, how much intention you have in order to practice. In other words, the main point is the *quality* of the practice *you* do, day by day – whatever you may be. Kind of [like what the] fourth grade children [say]: wherever you may go, you can build up a buddha’s world.
+So finally Dōgen Zenji says, it is not important to discuss about which is the better teaching. The point is your *degree*, how much intention you have in order to practice. In other words, the main point is the *quality* of the practice *you* do, day by day – whatever you may be. Kind of [like what the] fourth grade children [say]: wherever you may go, you can build up a buddha’s world.
 
-Dogen Zenji also [says that] when you do *gassho*, *gassho* is *gassho* – that’s it! This is a teaching, this is a doctrine mentioned by the *Lotus Sutra*, *Nirvana Sutra*, *Avatamsaka Sutra*, et cetera. But is that the most important teaching? Yes it is... but it’s not “yes,” because reality-as-it-is is not like *this*. Even though buddhas and Dogen mention that you can build up buddha land wherever you may go – you can do it! But, reality is different, because you cannot do it. 
+Dōgen Zenji also [says that] when you do *gassho*, *gassho* is *gassho* – that’s it! This is a teaching, this is a doctrine mentioned by the *Lotus Sutra*, *Nirvana Sutra*, *Avatamsaka Sutra*, et cetera. But is that the most important teaching? Yes it is... but it’s not “yes,” because reality-as-it-is is not like *this*. Even though buddhas and Dōgen mention that you can build up buddha land wherever you may go – you can do it! But, reality is different, because you cannot do it. 
 
 But, it is true, okay? So, if you want to have Right View, right outlook on the teaching, maybe you should choose [the] fourth grade children. Because you live in the saha world, but how do you accept the saha world? You shouldn’t accept the saha world as the saha world; maybe you should accept the saha world as a buddha land. That’s good. That’s better! Actually it is better than the first grade and second grade, et cetera. So it’s better; you should accept this one. But the question is, how do you put this doctrine into everyday life? Not discussing about what kind of children you want to [choose]. You have to do it, every day. 
 
-So, Buddha’s teaching, Dogen always says you can do it, you can build up buddha land – not in the other countries, but in Jambudvipa. Right there, you can do it. So let’s do it! 
+So, Buddha’s teaching, Dōgen always says you can do it, you can build up buddha land – not in the other countries, but in Jambudvipa. Right there, you can do it. So let’s do it! 
 
 So, we practice it. Here is a teaching, and then believe it, and devote yourself – anyway, depend on this teaching, and practice it. And then when you practice it, actually, practically speaking, you can build up buddha land. When your consciousness spins, then you don’t believe it. But practically speaking, you can build up, because if you sit down here peacefully, harmoniously, you can build up [a] peaceful world. Even though the world around you is always creating and producing miserable, ugly stuff – [there is] still peace. So wherever you may go, you can practice just like this zazen. Even though right in the middle of many people around you who are always creating trouble, [still] you can build up peace. That is our practice. 
 
@@ -183,17 +183,17 @@ So, the purpose of Buddhist practice, finally, is just to maintain [...] going b
 
 So then, what do [I] mean, *to grow*? That is *hook the trellis and be free from*. Then, you can have a creative life. This is a Buddha’s teaching. 
 
-That is a point Dogen Zenji [always talks about]. 
+That is a point Dōgen Zenji [always talks about]. 
 
 #### 1:03:46
 
-And finally, Dogen Zenji [says], “Individual views of being are individual objects and subjects. This is not to say that they are to be considered *the work on the Way* of Buddhas and Zen adepts – they are limited views of one corner.” 
+And finally, Dōgen Zenji [says], “Individual views of being are individual objects and subjects. This is not to say that they are to be considered *the work on the Way* of Buddhas and Zen adepts – they are limited views of one corner.” 
 
 This is a really important point. Otherwise, you are always confused, and you doubt Buddha’s teaching. But if you understand these two points: well, whatever people say, Buddhism is *where*, you know? It’s alright, you can accept it, and you can take care of human life. Even [if] in the theological point of view Buddha’s teaching is lower than Christianity: it’s alright. But anyway, you should pay attention to these two points. *Then* you can really appreciate Buddha’s teaching. 
 
 Even among Buddhism there are lots of schools. *Soko Gakai* in Minneapolis, [for example]. Minneapolis *Soko Gakai* people always put you down: “Zen is stupid,” you know? Well, [...] how can you take care of your human life right in the middle of that confusion? You should know [these] most important points of Buddhist practice; otherwise, you’re always confused. Even within your personal life, you don’t know how to take care of human life. 
 
-So I think this sutra [says this]. Even if you don’t believe Dogen’s teaching, I think this sutra [talks] about this point. That point [is], liberation must be liberated from liberation. 
+So I think this sutra [says this]. Even if you don’t believe Dōgen’s teaching, I think this sutra [talks] about this point. That point [is], liberation must be liberated from liberation. 
 
 What do [I] mean? If you practice, you can get the result, naturally: good or bad, right [or] wrong. By the experience of [stumbling] again and again, then you can realize... well, liberation. But *that* liberation is not real liberation, [the] real purpose. Liberation must be liberated. That means just achieving continuity of going beyond. Because you have to build up [a] peaceful world where? Right here. [The] saha world.
 

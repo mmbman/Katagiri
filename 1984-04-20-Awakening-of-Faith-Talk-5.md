@@ -235,7 +235,7 @@ So as a whole, anyway, both exist. That's why, the same applies to the truth. Tr
 
 If you say truth is permanent, very naturally, well, we always hang on to the term, something. But [the] truth is changing. That's why I said the truth is a very powerful energy in dynamism, but where is it? It is in the relative, which is constantly change. So change and permanence comes together. Do you understand? 
 
-That's why Dogen Zenji says, “Impermanence is buddha-nature.” In other words, change, the human world, is buddha-nature. We can say so. 
+That's why Dōgen Zenji says, “Impermanence is buddha-nature.” In other words, change, the human world, is buddha-nature. We can say so. 
 
 But it's not a philosophical understanding. You can see the human world like this. That's why in the three kinds of understanding of permanence, that is, philosophically, you can set up something which exists forever without change, so-called *immutability*. But that is a really a philosophical term. On the other hand, it is changing, but it's really permanent. That is just like a film, and the snow. Okay? And the third one is, constantly one thing exists there, but it's moving. Just like a [wall of empty space]. 
 
@@ -428,7 +428,7 @@ So that's why we have to understand that all things, which you operate, which yo
 
 **Katagiri Roshi:** Yeah. There is still a difference. 
 
-So that's what Dogen Zenji also says, “Buddha-nature is dharma, buddha-dharma is amply present in everyone. But without practice, it doesn't work.” Without entering into, it doesn't make sense. In *Bendōwa*, he mentioned like that. 
+So that's what Dōgen Zenji also says, “Buddha-nature is dharma, buddha-dharma is amply present in everyone. But without practice, it doesn't work.” Without entering into, it doesn't make sense. In *Bendōwa*, he mentioned like that. 
 
 So, we're just like a diamond, anyway. We can be a very rough diamond. Apparently, it is just a usual rock. But it is a diamond. For this, we have to polish and make a diamond. That is conformed practice for us. Is that what you mean?
  

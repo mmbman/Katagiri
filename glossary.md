@@ -280,13 +280,13 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 - [Fukanzazengi – Talk 1 (47:29)](1979-06-09-Fukanzazengi-Talk-1#4729)
 
-## Dogen
+## Dōgen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dogen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shōbōgenzō](topics#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dōgen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shōbōgenzō](topics#shobogenzo). 
 
-Katagiri Roshi often refers to him respectfully as "Dogen Zenji": Zen Master Dogen.
+Katagiri Roshi often refers to him respectfully as "Dōgen Zenji": Zen Master Dogen.
 
-- [Dogen Index](dogen)
+- [Dōgen Index](dogen)
 
 External link: [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
 
@@ -313,21 +313,21 @@ External link: [Wikipedia: Dōgen](https://en.wikipedia.org/wiki/Dōgen)
 
 - [*Blue Cliff Record* Case 3 – Talk 1 (1:10:44)](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1#11044)
 
-## Eihei Dogen 
+## Eihei Dōgen 
 
-See [Dogen](#dogen)
+See [Dōgen](#dogen)
 
 ## Eihei Koroku
 
-Eihei Koroku is a collection of [Dogen Zenji](#dogen)’s Dharma Hall Discourses (short dharma talks). 
+Eihei Koroku is a collection of [Dōgen Zenji](#dogen)’s Dharma Hall Discourses (short dharma talks). 
 
 There is now an English translation of the Eihei Koroku, but at the time the talks were given, there was not. Where Eihei Koroku discourses appear in the talks, it seems like that Katagiri Roshi translated them himself. 
 
-The titles for these discourses are taken from [“Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,”](books#eihei-koroku) translated by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dogen, but are useful for reference.
+The titles for these discourses are taken from [“Dōgen’s Extensive Record: A Translation of the Eihei Kōroku,”](books#eihei-koroku) translated by Taigen Dan Leighton and Shohaku Okumura. The titles did not originate with Dōgen, but are useful for reference.
 
 ## Eiheiji
 
-Monastery founded by Eihei Dogen. Considered one of the primary Zen training temples in Japan.
+Monastery founded by Eihei Dōgen. Considered one of the primary Zen training temples in Japan.
 
 ## Emptiness
 
@@ -371,7 +371,7 @@ External link: [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four
 
 ## Fukanzazengi
 
-*Fukanzazengi* – Dogen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
+*Fukanzazengi* – Dōgen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
 ## Fukutoku
 
@@ -395,7 +395,7 @@ Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa
 
 ## Genjokoan
 
-Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dogen's](glossary#dogen) works, and appears as an early chapter in [Shōbōgenzō](#shobogenzo). It is both an introduction to and overview of Dogen's teachings. 
+Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dōgen's](glossary#dogen) works, and appears as an early chapter in [Shōbōgenzō](#shobogenzo). It is both an introduction to and overview of Dōgen's teachings. 
 
 [See Topic Index](topics#genjokoan)
 
@@ -504,7 +504,7 @@ Chinese: Zhàozhōu Cōngshěn (Chao-chou Ts'ung-shen), 趙州從諗,<br>
 Japanese: Jōshū Jūshin,<br>
 778–897 CE.
 
-One of the greatest Zen teachers in China. It is said that he became a monk at 60 years old, and until his death, he practiced continuously. Jōshū figures in many Zen stories, and is often mentioned by [Dogen](glossary#dogen).
+One of the greatest Zen teachers in China. It is said that he became a monk at 60 years old, and until his death, he practiced continuously. Jōshū figures in many Zen stories, and is often mentioned by [Dōgen](glossary#dogen).
 
 - [*Blue Cliff Record* Case 2 – Talk 2 (1:20)](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2#120)
 
@@ -885,7 +885,7 @@ A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casu
 
 ## Shobogenzo
 
-Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dogen](glossary#dogen) – his most well-known work.
+Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [Dōgen](glossary#dogen) – his most well-known work.
 
 [See Topic Index](topics#shobogenzo)
 
@@ -1052,7 +1052,7 @@ Bowing mat, used to protect the okesa. It is folded up in a somewhat elaborate w
 
 "Seated meditation"
 
-For detailed guidance on how to practice zazen, see [Dogen Index: Fukanzazengi](topics#fukanzazengi).
+For detailed guidance on how to practice zazen, see [Dōgen Index: Fukanzazengi](topics#fukanzazengi).
 
 ## Zen
 
@@ -1068,10 +1068,10 @@ Meditation hall
 
 ## Zenji
 
-Japanese word meaning "Zen Master ". E.g., [Dogen Zenji](#dogen).
+Japanese word meaning "Zen Master ". E.g., [Dōgen Zenji](#dogen).
 
 ---
 
-[Next: Dogen Index](dogen)
+[Next: Dōgen Index](dogen)
 
 [List](list#glossary)

@@ -110,7 +110,7 @@ Next, “to enjoy.” To enjoy means to have a deep aspiration to enjoy your lif
 
 And next, “to desire.” To desire means, for instance, desire to use your life your life for all sentient beings, every one. Not only *this* life, but past life, present life, future life. Or in the sutra, it says, “ever making this my thought: ‘how shall I guard all beings to enter the supreme way?’” It means the truth, and [speedily] accomplish the buddha way. In other words, to awaken to your life, what it is. So constantly you have to have a strong desire how to guide all sentient beings to know human life, based on emptiness. Without tricking [yourself or] others; constantly facing that nature. It’s pretty hard for us, but it is our practice. That’s why we need to help each other. 
 
-And also Dogen Zenji mentions “speaking of dharma,” speaking of the truth. Speaking of the truth and listening to the truth, with each single body, life after life. That is really huge, that is a really marvelous way of giving with your life. For your life, and also for others. Not only this present life – past, present, future. This is a spiritual aspiration for how to use your life. This is “to desire.” 
+And also Dōgen Zenji mentions “speaking of dharma,” speaking of the truth. Speaking of the truth and listening to the truth, with each single body, life after life. That is really huge, that is a really marvelous way of giving with your life. For your life, and also for others. Not only this present life – past, present, future. This is a spiritual aspiration for how to use your life. This is “to desire.” 
 
 #### 48:31
 

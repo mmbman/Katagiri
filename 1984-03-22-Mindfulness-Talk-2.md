@@ -17,7 +17,7 @@ The body is *total dynamic working*, and *total dynamic working* is like a maple
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-38923791" target="_blank">Listen to Part 1 of this talk on mnzencenter.org</a>
 </p>
 
-**Katagiri Roshi:** [Yesterday] I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual; *as usual* means as [in the] moral sense. So [...] I talked about Dogen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire whole world. The entire whole world is considered as, according to Dogen’s term, the *total dynamic working*. Generally speaking, it’s nothing but motion, function. So Dogen Zenji uses *the entire whole world*; that means your body is melted away into the total dynamic working. 
+**Katagiri Roshi:** [Yesterday] I talked about the practice of mindfulness on the basis of observing the body as impure. But this practice must be understood more deeply than as usual; *as usual* means as [in the] moral sense. So [...] I talked about Dōgen Zenji’s deep understanding of what the human body is. The human body is completely beyond pure or impure. So he says the body you are observing is nothing but a bag of skin, but simultaneously it is the universe, the entire whole world. The entire whole world is considered as, according to Dōgen’s term, the *total dynamic working*. Generally speaking, it’s nothing but motion, function. So Dōgen Zenji uses *the entire whole world*; that means your body is melted away into the total dynamic working. 
 
 For instance, if you are right in the middle of the function of the flower, you are sucked in, you disappear. Just like a black hole in the universe: everything is sucked in, we don’t know what’s going on in there. But this is nothing but motion and energy, and constantly working [...] This is, we say temporarily, the entire whole world. 
 
@@ -45,11 +45,11 @@ So that’s why Ryokan says [life and death is] just a maple leaf. Maple leaf is
 
 #### 1 - 11:45
 
-Dogen Zenji uses the term *the entire universe of the ten directions*. This is a technical term; Buddhism often uses this term. *Ten directions* means not only spatial dimensions but dimension in time too. Completely, totally. So what is the universe, what is universal life? Universal life is nothing but the entire total dynamic working, motion, function. That’s it. 
+Dōgen Zenji uses the term *the entire universe of the ten directions*. This is a technical term; Buddhism often uses this term. *Ten directions* means not only spatial dimensions but dimension in time too. Completely, totally. So what is the universe, what is universal life? Universal life is nothing but the entire total dynamic working, motion, function. That’s it. 
 
-So very naturally, Dogen Zenji [says] that is your body, [which is called] the body you are observing. But what are you observing? You are observing two things: one is nothing but the back of the skin, the other one is the entire universe of the ten directions, even though you don’t know it. What is this? [...] That body which you are observing is that which is vividly jumping along, living. He says *living*, or *jumping along*, or *hopping along*. This is characteristic of the entire universe of the ten directions. 
+So very naturally, Dōgen Zenji [says] that is your body, [which is called] the body you are observing. But what are you observing? You are observing two things: one is nothing but the back of the skin, the other one is the entire universe of the ten directions, even though you don’t know it. What is this? [...] That body which you are observing is that which is vividly jumping along, living. He says *living*, or *jumping along*, or *hopping along*. This is characteristic of the entire universe of the ten directions. 
 
-So your body is just like that. But you always see your body as just like “my body,” a form, nothing *[unintelligible]*. It’s very difficult for us to see that the body [is that] which is vividly jumping along, or vividly living. We don’t see it. That’s why Dogen Zenji has to say this continually, and also we have to listen to it constantly, again and again... a thousand times, a million times. Otherwise it doesn’t penetrate your body; you don’t understand it. 
+So your body is just like that. But you always see your body as just like “my body,” a form, nothing *[unintelligible]*. It’s very difficult for us to see that the body [is that] which is vividly jumping along, or vividly living. We don’t see it. That’s why Dōgen Zenji has to say this continually, and also we have to listen to it constantly, again and again... a thousand times, a million times. Otherwise it doesn’t penetrate your body; you don’t understand it. 
 
 #### 1 - 14:50
 
@@ -93,7 +93,7 @@ But [...] if you practice it, always there is something extra, so-called *dirty 
 
 I always [compare this to] climbing a mountain: the mountain itself is constantly beautiful, but when you start climbing the mountain, it’s really dirty water there, hard work, risking your life. And then many questions come up: why do you have to climb the mountain, risking your life? It’s ridiculous for you. But you cannot stop. So what causes you to climb the mountain? You don’t know. Of course there is your effort, but your effort is nothing but showing just the back of your life. Next moment, you don’t know. That is nothing but the front of your life. So finally, you don’t know; finally what you have to do is [say,] “I just climb the mountain.” That is just moving, functioning. 
 
-And then when [you’re] functioning, very naturally there is lots of dirty water, you can stir up the water: so-called *hard work*. Boredom. Hatred. Many things come up. And then most people quit. But [they are] forgetting [that] behind the dirty water, there is a fish which is vividly swimming there. The presence of the fish there, constantly, that is the beauty of the mountain. Later, Dogen Zenji [describes it] like that. 
+And then when [you’re] functioning, very naturally there is lots of dirty water, you can stir up the water: so-called *hard work*. Boredom. Hatred. Many things come up. And then most people quit. But [they are] forgetting [that] behind the dirty water, there is a fish which is vividly swimming there. The presence of the fish there, constantly, that is the beauty of the mountain. Later, Dōgen Zenji [describes it] like that. 
 
 That’s why [...] we have to practice like this. We have to see the back of the skin but simultaneously there is the universe. Your skin, your body is the universe. 
 
@@ -171,7 +171,7 @@ So if everything becomes zero, [then you think] it doesn’t matter, just live t
 
 **Katagiri Roshi:** Mm-hmm... No, not *after*; *[he laughs,]* *simultaneously* consciousness appears. If you say *after*, I think that is already that you [are thinking of] the relationship between total dynamic working and consciousness in the time process. But it’s not the time process, it’s *simultaneously* there. 
 
-*[He laughs.]* Total dynamic working is functioning with all beings, okay? That’s why Dogen Zenji mentions “the entire universe.”
+*[He laughs.]* Total dynamic working is functioning with all beings, okay? That’s why Dōgen Zenji mentions “the entire universe.”
 
 **Same person:** But what I’m saying is that when you’re thinking about it, it’s already happened. 
 

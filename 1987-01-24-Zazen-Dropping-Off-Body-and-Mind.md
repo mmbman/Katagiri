@@ -7,7 +7,7 @@ title: "Zazen: Dropping Off Body and Mind"
 
 ### Summary
 
-Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dogen’s teaching. This is related to the meaning of Avalokiteshvara as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
+Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dōgen’s teaching. This is related to the meaning of Avalokiteshvara as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
 
 ### Transcript
 
@@ -17,11 +17,11 @@ Katagiri Roshi discusses the meaning of the phrases “dropping off body and min
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/zazen-dropping-off-body-and-mind" target="_blank">Listen to this talk</a>
 </p>
 
-Nyojo Zenji (Tiantong Rujing), Dogen Zenji's teacher, [said] that “*sanzen* is *zazen*,” [and] zazen is *shinjin datsuraku*, “body and mind casting off” or “casting off body and mind.” [...] This is the key point of our practice of meditation, the Zen meditation we do. So today I would like to say [something] about this.
+Nyojo Zenji (Tiantong Rujing), Dōgen Zenji's teacher, [said] that “*sanzen* is *zazen*,” [and] zazen is *shinjin datsuraku*, “body and mind casting off” or “casting off body and mind.” [...] This is the key point of our practice of meditation, the Zen meditation we do. So today I would like to say [something] about this.
 
 First of all, you should keep in mind that Zen Buddhism tries to see or hear or understand the world and human life in terms of practice, or [...] action. Or, *action* is still a concept, so I would like to say, “the point of action which is constantly going.” So, *flow action*, or *flowing activities*.
 
-Zen Buddhism, particularly Dogen Zenji, constantly mentions that we should see or hear [or] understand the human world in terms of flow actions, flow practice, flow process. Constantly, under all circumstances. Not in terms of *concept*, not in terms of the conceptualized world. The world you can usually see is already something conceptualized; this is the world you live [in] and you believe. But if we present the world [as] something more than conceptualization, you are very confused, because there is nothing to depend on. 
+Zen Buddhism, particularly Dōgen Zenji, constantly mentions that we should see or hear [or] understand the human world in terms of flow actions, flow practice, flow process. Constantly, under all circumstances. Not in terms of *concept*, not in terms of the conceptualized world. The world you can usually see is already something conceptualized; this is the world you live [in] and you believe. But if we present the world [as] something more than conceptualization, you are very confused, because there is nothing to depend on. 
 
 Usually everyone depends on, consciously or unconsciously, conceptualization of the world. That's it; this is your world. So the Buddha and ancestors try to present the world *before* you conceptualize. That's why it is a little difficult to understand it. But, we *have* to. We have to research it. We have to *taste* it. We have to understand it. Okay? 
 
@@ -57,7 +57,7 @@ So in terms of true reality of the paper and fire, you cannot separate. Paper *i
 
 #### 17:23
 
-And there is a story about Gasan Zenji (Gasan Jōseki), who was a disciple of Keizan Zen Master (Keizan Jokin), the fourth [ancestor] from Dogen Zenji. 
+And there is a story about Gasan Zenji (Gasan Jōseki), who was a disciple of Keizan Zen Master (Keizan Jokin), the fourth [ancestor] from Dōgen Zenji. 
 
 [One day Keizan Zenji said to Gasan Zenji], “Do you know there are two moons?” Gasan Zenji said, “No, I don’t. I don’t understand there are two moons.” And then, in the history, I think Gasan Zenji spent three years constantly contemplating about this message. The three years for him is really many, many years for us – because his practice was really serious and with full concentration, using the three years perfectly. So three years for him is exactly something more than... five years for us? Ten years. So “three years” means many, many years. 
 
@@ -269,7 +269,7 @@ So the *quality* of zazen is pretty rich. There is compassion, and also looking 
 
 **Katagiri Roshi:** Mm-hmm.
 
-**Questioner:** But (in this tradition) we say that’s not necessary. That’s what Dogen says, [that] it’s not necessary, isn’t it?
+**Questioner:** But (in this tradition) we say that’s not necessary. That’s what Dōgen says, [that] it’s not necessary, isn’t it?
 
 **Katagiri Roshi:** Well, we cannot say it’s *not* necessary. *[He laughs.]* We cannot say it’s *not* necessary... but we cannot say it’s *necessary*. 
 

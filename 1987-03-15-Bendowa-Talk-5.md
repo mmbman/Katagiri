@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 5"
+title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 5"
 ---
 ## March 15, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -15,11 +15,11 @@ title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 5"
 
 #### 0:00
 
-I would like to explain a little more about the [word] *realization* [that] Dogen Zenji uses very often here: *practice and realization*. I don't know how you understand what *realization* is. I think this is my problem, how to translate this term in English. Well, English always uses *realization*, but I don't know *how* you understand this [word]. 
+I would like to explain a little more about the [word] *realization* [that] Dōgen Zenji uses very often here: *practice and realization*. I don't know how you understand what *realization* is. I think this is my problem, how to translate this term in English. Well, English always uses *realization*, but I don't know *how* you understand this [word]. 
 
-But Dogen uses three kinds of *satori*, enlightenment. One is *awareness* – *kaku*, “awakening.” Second is *satori* – usually “enlightenment.” Third is *sho*. [...] *Literally* it means “verification” or “proof.” Literally, okay? 
+But Dōgen uses three kinds of *satori*, enlightenment. One is *awareness* – *kaku*, “awakening.” Second is *satori* – usually “enlightenment.” Third is *sho*. [...] *Literally* it means “verification” or “proof.” Literally, okay? 
 
-So three kinds of terms are often used by Dogen, but in this case, *practice and realization* is the third one (*sho*). *Realization* is corresponding to the third one – “proof” or “verification,” literally translated. But I am still looking for the appropriate term in English; I don't know what kind of English [word] is best, so I have to explain a little bit about this one. 
+So three kinds of terms are often used by Dōgen, but in this case, *practice and realization* is the third one (*sho*). *Realization* is corresponding to the third one – “proof” or “verification,” literally translated. But I am still looking for the appropriate term in English; I don't know what kind of English [word] is best, so I have to explain a little bit about this one. 
 
 [This enlightenment is] *sho* (證) in Japanese. Plainly speaking, *sho* literally means “proof” or “certification”; this is also *sho*. [To certify], or to prove, or to verify, or to witness. [...] Anyway, *sho*. 
 
@@ -33,9 +33,9 @@ Buddhist terminology uses very often *nyoze* or *jissō*. *Nyoze* means “thusn
 
 In *nyoze*, *nyo* is “like” or “thus” – “look like.” But in Zen Buddhism, *nyo* means “look like” but on the other hand *nyo* is direct manifestation of something ultimate. That is called *nyo*. 
 
-So Dogen Zenji says in *Genjokoan*, “birds fly like a bird, fish swim like fish.” That means exactly fish become one with the water, and birds’ activities are completely identical with the function of the air and sky, all sentient beings. At that time, we can say birds are not birds, birds are sky. So that is called, Dogen Zenji says, “Birds fly like a bird.” Because it’s pretty hard to say it is *bird*, because it is sky, it is air – without this situation, a bird cannot fly in the sky. So *bird can fly* means to be supported by air and sky and clouds and all sentient beings, and then the life of birds is supported. That is called *to be able to fly*, for a bird. So that we can live is [because our life is supported] by many beings. At that time, Katagiri lives like Katagiri. Not *exactly* Katagiri – at that time, Katagiri becomes exactly *jijiyu samadhi*. [Or] *buddha*. 
+So Dōgen Zenji says in *Genjokoan*, “birds fly like a bird, fish swim like fish.” That means exactly fish become one with the water, and birds’ activities are completely identical with the function of the air and sky, all sentient beings. At that time, we can say birds are not birds, birds are sky. So that is called, Dōgen Zenji says, “Birds fly like a bird.” Because it’s pretty hard to say it is *bird*, because it is sky, it is air – without this situation, a bird cannot fly in the sky. So *bird can fly* means to be supported by air and sky and clouds and all sentient beings, and then the life of birds is supported. That is called *to be able to fly*, for a bird. So that we can live is [because our life is supported] by many beings. At that time, Katagiri lives like Katagiri. Not *exactly* Katagiri – at that time, Katagiri becomes exactly *jijiyu samadhi*. [Or] *buddha*. 
 
-So that is, [Dogen Zenji] said, *nyo*. The Chinese character is called *nyo*, of *nyo ze*. *Nyo* is “thus” or “look like,” but it means pointing out exactly *consummation of being*. That is *nyo*. 
+So that is, [Dōgen Zenji] said, *nyo*. The Chinese character is called *nyo*, of *nyo ze*. *Nyo* is “thus” or “look like,” but it means pointing out exactly *consummation of being*. That is *nyo*. 
 
 Because it’s pretty hard to say: if you’re really alive in this world, creating peace and harmony, you are you, you look like you, but you are not you, you are something more than you. You yourself don't know how you can get [this] energy. From the small five *skandhas*? No. You don't know [how], if you really live in peace and harmony with all sentient beings. Very naturally you can feel this. So [...] it’s pretty hard to explain who you are, where you can get such a kind of energy, et cetera. So we call it *nyo*. 
 
@@ -53,7 +53,7 @@ So that's why ... even though you don't experience this *sho*, the actualizing t
 
 And then, [...] to touch directly the ultimate nature of [your self] is your responsibility, your business. Your responsibility, so-called ... flow of activities – when you are exactly in the continuous flow of activities, and then you are there, exactly. [But] consciousness always slips off this flow of activities, and analyzes, synthesizes, so that's why it's pretty hard to touch directly. 
 
-So that's [where] in *Fukanzazengi*, [...] Dogen Zenji [says], 
+So that's [where] in *Fukanzazengi*, [...] Dōgen Zenji [says], 
 
 > Suppose one gains pride of understanding and influences one’s own enlightenment...
 
@@ -65,7 +65,7 @@ So, by zazen, you can attain awakening and enlightenment, *satori*, and then you
 
 Just like a helicopter, you know? *[Laughter.]* Each person is flying a helicopter, with three propellers: [...] *suffering* and *karma* and also *self-centeredness*. The three propellers run pretty fast, and then finally, everyone can fly in the sky. Each person can fly, and then he likes it, you know? Because he [doesn’t bother himself], he always keeps himself in peace and harmony, keeping away from the people. So he tries to do many things as he likes; that’s [what] everyone does in the sky, in the world. And then – they bump into each other, by chance. And then it hurts very much, you know? Sometimes one propeller is broken and then, boom, they fall to earth, and then it hurts so much. This is suffering; always we do [this]. 
 
-That’s why Dogen Zenji says here, 
+That’s why Dōgen Zenji says here, 
 
 > ... raising an aspiration to escalade the very skies. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.
 
@@ -73,7 +73,7 @@ So still a little far, a little far.
 
 So, very naturally, the important point is, [...] practice must be total manifestation of ultimate nature of existence, and ultimate nature of existence is simultaneously present with your practice. Because ultimate nature of existence is not your business. It is not something *you* try to manifest. No. You have to arrange circumstances, [arrange] your body and mind to be in peace and harmony, and then, ultimate nature of existence comes out naturally. Like the moon comes out from the clouds. Like this. 
 
-For instance, when you do zazen, Dogen Zenji says “don’t think,” “don’t think anything good or bad, right or wrong.” And then you try to stop thinking. But the more you try to stop thinking, the more you start to think. So you cannot do it, you cannot stop thinking – because thinking is kind of energies coming from the ultimate nature of existence, so you cannot stop it. So if you want to stop, [...] *stop thinking* is to manifest that ultimate nature of existence. At that time, thinking appears and next moment disappears, all of a sudden. So it appears, disappears, appears, disappears. If you manifest that ultimate nature of existence, very naturally [it goes] like that.
+For instance, when you do zazen, Dōgen Zenji says “don’t think,” “don’t think anything good or bad, right or wrong.” And then you try to stop thinking. But the more you try to stop thinking, the more you start to think. So you cannot do it, you cannot stop thinking – because thinking is kind of energies coming from the ultimate nature of existence, so you cannot stop it. So if you want to stop, [...] *stop thinking* is to manifest that ultimate nature of existence. At that time, thinking appears and next moment disappears, all of a sudden. So it appears, disappears, appears, disappears. If you manifest that ultimate nature of existence, very naturally [it goes] like that.
 
 I mentioned the other day, [it’s] just like a washing machine. The washing machine is always acting, acting constantly. This is our practice. Flow of activities, flow of practice – acting. And then, we can create dirty clothes and clean waters, and then next moment dirty clothes become clean clothes, and clean water becomes dirty water. So always this is the dualistic world coming up. 
 
@@ -81,15 +81,15 @@ So we say “dirty clothes; I don’t want them”; we want to be free from it. 
 
 #### 24:10
 
-And then, in *Bendōwa*, Dogen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *sho*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
+And then, in *Bendōwa*, Dōgen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *sho*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
 
 That is, in terms of practice, *sho* is explained as *jijiyu samadhi*: self becomes self, and is self-ing, and settles in the self, exactly. That is a unique way to manifest the ultimate nature of existence called *sho*. Very deep, deep experience of enlightenment. Very deep, profound – *before* you put the name on it. This is called *sho*. 
 
 That is perfect freedom. Perfect freedom. Perfect freedom which is free from the concept of freedom. 
 
-That’s why in the *Diamond Sutra* it always says, “Bodhisattvas are not bodhisattvas, therefore they are called bodhisattvas.” So if the bodhisattvas want to be real bodhisattvas, they have to be free from the concept of bodhisattvas. And then they can really live in peace and harmony, vividly, helping each other. That is a bodhisattva [as the] *Diamond Sutra* mentions, and *Prajnaparamita* mentions like this. So Dogen’s understanding is not his *own* understanding, it’s based on the general Buddhist teaching there. 
+That’s why in the *Diamond Sutra* it always says, “Bodhisattvas are not bodhisattvas, therefore they are called bodhisattvas.” So if the bodhisattvas want to be real bodhisattvas, they have to be free from the concept of bodhisattvas. And then they can really live in peace and harmony, vividly, helping each other. That is a bodhisattva [as the] *Diamond Sutra* mentions, and *Prajnaparamita* mentions like this. So Dōgen’s understanding is not his *own* understanding, it’s based on the general Buddhist teaching there. 
 
-I think many people don’t understand [that] practice and realization are one. But this is not [just] Dogen’s understanding, this is a Buddhist understanding. So I think you should keep in mind your practice like this, exactly. And from now on, you have to research your practice like this – not separate from realization. Otherwise, you never get perfect peace in your life. 
+I think many people don’t understand [that] practice and realization are one. But this is not [just] Dōgen’s understanding, this is a Buddhist understanding. So I think you should keep in mind your practice like this, exactly. And from now on, you have to research your practice like this – not separate from realization. Otherwise, you never get perfect peace in your life. 
 
 If you don’t have real peace and harmony, you become always critical toward you, toward others, toward objects, so you always feel uneasy, irritated. So continually you have to train yourself based on this teaching. 
 
@@ -143,9 +143,9 @@ I think *awakening* is used in English textbooks in many ways. But generally spe
 
 **Question:** Yeah.
 
-**Katagiri Roshi:** Well, important. But people really try to hold on [to] *kaku* and *satori*, which seem to be a best experience. That’s why Dogen Zenji [says] that’s why people are proud of themselves very much. They are proud of their understanding, their own experience, but this is nothing but escalading for the sky. *[He laughs.]* Going up to the sky, that’s it. So that’s why under the beautiful flag of religions, we are always fighting. If you experience God, then you are proud of your experience and understanding of God, and then we become really high. That is really a problem for us. Finally, fighting. 
+**Katagiri Roshi:** Well, important. But people really try to hold on [to] *kaku* and *satori*, which seem to be a best experience. That’s why Dōgen Zenji [says] that’s why people are proud of themselves very much. They are proud of their understanding, their own experience, but this is nothing but escalading for the sky. *[He laughs.]* Going up to the sky, that’s it. So that’s why under the beautiful flag of religions, we are always fighting. If you experience God, then you are proud of your experience and understanding of God, and then we become really high. That is really a problem for us. Finally, fighting. 
 
-So [the] most important point is, you must be liberated from that pride of your understanding of God, and Buddha, or enlightenment, or whatever. And then, you really become humble. You know? And also majestic. Very majestic and humble. And then you can help people. Otherwise, you create problems. That’s what Dogen Zenji says here.
+So [the] most important point is, you must be liberated from that pride of your understanding of God, and Buddha, or enlightenment, or whatever. And then, you really become humble. You know? And also majestic. Very majestic and humble. And then you can help people. Otherwise, you create problems. That’s what Dōgen Zenji says here.
 
 So I don’t mean *satori* and awakening are not important. They are very important for us. 
 
@@ -165,11 +165,11 @@ So I don’t mean *satori* and awakening are not important. They are very import
 
 **Katagiri Roshi:** Well, it’s necessary, but I don’t think you should try to hold [them] always, try to get a hold. No. But you shouldn’t ignore the *satori* and awakening. The point is you have to focus on that point, *sho*, where we are. Because we live there. So [focus on] where we are, and then we should take care of our life. 
 
-But usually, we always try to live in the realm of awakening or *satori*, and *then* we try to take care of human life. That’s why [we are] more confused there. But we should focus on the very basic foundation, there. And then, you can deal with *satori*, awakening, and many things. That’s [what] Dogen Zenji tries to present always. But this is not Dogen’s teaching, this is a general Buddhist teaching. [It’s] why Nagarjuna mentions 18 emptinesses, you know? *[He laughs.]* Why he has to say 18 emptinesses, 25 emptinesses, constantly. It’s ridiculous! *[He laughs.]* But he has to say [it]. 
+But usually, we always try to live in the realm of awakening or *satori*, and *then* we try to take care of human life. That’s why [we are] more confused there. But we should focus on the very basic foundation, there. And then, you can deal with *satori*, awakening, and many things. That’s [what] Dōgen Zenji tries to present always. But this is not Dōgen’s teaching, this is a general Buddhist teaching. [It’s] why Nagarjuna mentions 18 emptinesses, you know? *[He laughs.]* Why he has to say 18 emptinesses, 25 emptinesses, constantly. It’s ridiculous! *[He laughs.]* But he has to say [it]. 
 
-**Someone:** Excuse me, Roshi. Could you clarify what the difference is when you’re say this is a Buddhist view versus this is Dogen’s view? 
+**Someone:** Excuse me, Roshi. Could you clarify what the difference is when you’re say this is a Buddhist view versus this is Dōgen’s view? 
 
-**Katagiri Roshi:** Well, Dogen’s view is a more practical point. He gives suggestions how to practice it, how to [make] Buddha’s teaching alive in human life, practically. That’s always what Dogen Zenji [talks about]. So he has very deep thought, [...] and his practice is backed by this deep thought – that’s why people say Soto Zen’s [or] Dogen’s philosophy [is] “scholastic.” I don’t think he is “scholastic.” *[He laughs.]* He is a pretty religious, genuine person. 
+**Katagiri Roshi:** Well, Dōgen’s view is a more practical point. He gives suggestions how to practice it, how to [make] Buddha’s teaching alive in human life, practically. That’s always what Dōgen Zenji [talks about]. So he has very deep thought, [...] and his practice is backed by this deep thought – that’s why people say Soto Zen’s [or] Dōgen’s philosophy [is] “scholastic.” I don’t think he is “scholastic.” *[He laughs.]* He is a pretty religious, genuine person. 
 
 So he always puts it into practice, and then be free from thought, because deep thought is always working in his life as a religious life. So that’s why his practice is very deep. But on the other hand, it’s really manifested, so it’s just like everyday practice. 
 
@@ -191,7 +191,7 @@ If you deal with awakening, so-called “it’s not separate from,” or “it i
 
 So if you see the *sho*, awakening, you shouldn’t [attach to] it, you shouldn’t stay with awakening, you must be free from awakening. That means experience, [and] that’s it. You know? And then all you have to do is just walk on the path of *sho*. That’s it. 
 
-And then next, you are attached to the *sho*: “Here it is, I can experience *sho*.” That’s why Dogen Zenji says, I mentioned yesterday, you have to be free from original realization too, and then, *sho* – real enlightenment – penetrates your body and mind. Just like walking in the mist. This is basic practice: going, always going. 
+And then next, you are attached to the *sho*: “Here it is, I can experience *sho*.” That’s why Dōgen Zenji says, I mentioned yesterday, you have to be free from original realization too, and then, *sho* – real enlightenment – penetrates your body and mind. Just like walking in the mist. This is basic practice: going, always going. 
 
 #### 44:38
 

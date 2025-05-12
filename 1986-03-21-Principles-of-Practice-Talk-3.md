@@ -166,7 +166,7 @@ That is the practice of egolessness.
 
 So that’s why Buddha says, “Suffering begets selflessness.” Egolessness. 
 
-Impermanence begets suffering, and suffering begets egolessness, naturally. That’s why Dogen Zenji says, if you want to have bodhi-mind, you have to observe very closely or contemplate impermanence: how transient the world is, how fragile human life is. Because yesterday I mentioned, human beings always forget returning to the source of *samsara*, and are always stirring up the world created after second thought. So this is real suffering, constantly. 
+Impermanence begets suffering, and suffering begets egolessness, naturally. That’s why Dōgen Zenji says, if you want to have bodhi-mind, you have to observe very closely or contemplate impermanence: how transient the world is, how fragile human life is. Because yesterday I mentioned, human beings always forget returning to the source of *samsara*, and are always stirring up the world created after second thought. So this is real suffering, constantly. 
 
 That’s why Buddha gives sympathy to all human beings like this. Because human beings completely forget. That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of the *Lotus Sutra*, the teaching of *Prajnaparamita*, the teaching of the *Vimalakirti Sutra*: let’s go back. 
  
@@ -186,13 +186,13 @@ So it’s very simple, a very simple world. But it’s really huge, you know, th
 
 So the purpose of spiritual life [is], simply speaking, you should touch this enormous surprise. That’s it. 
 
-Well, if you explain what it is, it is simple, very simple, and clear, and silent. But simultaneously, the whole world is coming up. That’s why Dogen Zenji constantly says in *Shōbōgenzō*, “Self is the whole universe.” The mountains, rivers, pebbles, are all sentient beings. All are buddhas. The whole world is coming up. 
+Well, if you explain what it is, it is simple, very simple, and clear, and silent. But simultaneously, the whole world is coming up. That’s why Dōgen Zenji constantly says in *Shōbōgenzō*, “Self is the whole universe.” The mountains, rivers, pebbles, are all sentient beings. All are buddhas. The whole world is coming up. 
 
 But that whole world coming up [is] very simple situations. That is first thought, we can [confront] it with. This is the egolessness. We have to practice this. 
 
 And then, next, we can understand what *faith* is. What is religious faith? 
 
-Then Dogen Zenji says, “Faith is [that] you should believe in the Buddha Way. If you want to practice Buddha’s teaching, you should believe in the Way, where there is no confusion, no perverted views, no mistake, no [misconstruction].” Nothing, exactly nothing. It’s very simple. *Nothing* means very simple, clear, active, silent. That is the realm of the first thought, from which your life is “panoramorized.” *[He laughs about trying to pronounce the word.]* Your life is really “panoramorized” – present, past, future, and also extending into the whole space, you know? *[He laughs.]* Different moons, and planets, and Mars, and planets which you have never thought about. You can spread your body and mind into the whole world. 
+Then Dōgen Zenji says, “Faith is [that] you should believe in the Buddha Way. If you want to practice Buddha’s teaching, you should believe in the Way, where there is no confusion, no perverted views, no mistake, no [misconstruction].” Nothing, exactly nothing. It’s very simple. *Nothing* means very simple, clear, active, silent. That is the realm of the first thought, from which your life is “panoramorized.” *[He laughs about trying to pronounce the word.]* Your life is really “panoramorized” – present, past, future, and also extending into the whole space, you know? *[He laughs.]* Different moons, and planets, and Mars, and planets which you have never thought about. You can spread your body and mind into the whole world. 
 
 So that is Buddhist faith. And then you can really understand what Buddhist faith is, what *real* religious faith is. 
 
@@ -200,7 +200,7 @@ Okay, do you have a question?
 
 #### 55:55
 
-In [*Shōbōgenzō*] *Zuimonki* and also *Diamond Sutra*, Dogen Zenji mentions very strongly the practice of egolessness. Very often, here and there. If you read the *Record of Things Heard*, he constantly recommends us to practice egolessness. 
+In [*Shōbōgenzō*] *Zuimonki* and also *Diamond Sutra*, Dōgen Zenji mentions very strongly the practice of egolessness. Very often, here and there. If you read the *Record of Things Heard*, he constantly recommends us to practice egolessness. 
 
 It’s not the negative, pessimistic way, okay? That’s why I explain like this. You should accept it in this way. 
 
@@ -334,7 +334,7 @@ So just sit down, and then create. Because if you sit down, immediately you can 
 
 Everyone has this opportunity to attain this kind of enlightenment, but in a different way. Some experience very sharply, a very strong shock, like lightning or thunder, something like this. But some experience very slowly, like sneaking into their life, before they are conscious of it, but later they can realize. But either way, anyway. 
 
-So we have an opportunity to attain enlightenment, but it depends on the intention, how strong you practice, you take care of your life, in the realm of first thought of samsara. That’s what Dogen Zenji says in this *Record of Things Heard*. He [talks about it] that way. Not the discussion of which teaching is good or bad; it depends on the intention, degree; how much intention you have in the practice. So *that* is. Is that alright? 
+So we have an opportunity to attain enlightenment, but it depends on the intention, how strong you practice, you take care of your life, in the realm of first thought of samsara. That’s what Dōgen Zenji says in this *Record of Things Heard*. He [talks about it] that way. Not the discussion of which teaching is good or bad; it depends on the intention, degree; how much intention you have in the practice. So *that* is. Is that alright? 
 
 **Questioner:** Only intellectually. *[He laughs.]*
 

@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
+title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1"
 ---
 ## June 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dogen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
 
 ### Transcript
 
@@ -53,7 +53,7 @@ Before you bow, you must be *you* who has already accepted your life, how sublim
 
 So to bow is simultaneously to accept the sublimity of life. So very naturally, ego consciousness from the first is struck aside. 
 
-That is what Dogen Zenji says. So [the first point is], if you do zazen according to [what Dogen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
+That is what Dōgen Zenji says. So [the first point is], if you do zazen according to [what Dōgen says], or what the [ancestors say], or Buddha's suggestions – if you do zazen like this, [then] as a conclusion of your practice of zazen, very naturally the dharma, the original nature of the self, [is manifesting itself], and also dullness and distraction from the first are struck aside, they’re going away. 
 
 But actually, we don't do zazen like this. Zazen is used as a means. 
 
@@ -125,7 +125,7 @@ That is called *karma*; that is called *buddha nature*. We don't understand, bec
 
 [...] In order to *realize* this core of human life, first of all we have to *make arrangement* of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system.
 
-That's why Dogen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of *circumstances*. 
+That's why Dōgen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of *circumstances*. 
 
 If you meddle with “all involvements” or “all affairs” right in the middle of zazen, you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred with circumstances, or destroying circumstances, just make arrangement. 
 
@@ -133,7 +133,7 @@ If you meddle with “all involvements” or “all affairs” right in the midd
 
 And next, our *sensory system*. We have a sensory system; but it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
-That's why Dogen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the *Zazengi* chapter of *Shōbōgenzō*, which is distinct from *Fukan zazengi*.)
+That's why Dōgen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the *Zazengi* chapter of *Shōbōgenzō*, which is distinct from *Fukan zazengi*.)
 
 First of all, you should make a choice of circumstances, what kind of a room you have to use. Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
@@ -145,7 +145,7 @@ And next, the *movement system*. The movement system comes from the unity of you
 
 You cannot destroy your movement. Sometimes movement comes from instinct; sometimes it comes from the sensory world; sometimes it comes from a higher level [of spirit]. Sometimes, we don't know. Karma? But anyway, there is always movement. 
 
-So we have to make arrangement of movement. For this, Dogen Zenji says, that is the half lotus position or full lotus position. Or he says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in zazen silently and immobile.” 
+So we have to make arrangement of movement. For this, Dōgen Zenji says, that is the half lotus position or full lotus position. Or he says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in zazen silently and immobile.” 
 
 This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. 
 
@@ -153,7 +153,7 @@ This is movement simplified, by our arrangement.
 
 #### 42:38
 
-And next, the *gut system*. (The *internal organ system*.) For this, Dogen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
+And next, the *gut system*. (The *internal organ system*.) For this, Dōgen Zenji says, “Eat and drink moderately,” and also, “breathe gently through your nose.”
 
 (*Transcriber’s Note:* The next paragraph is very hard to make out.)
 
@@ -163,9 +163,9 @@ But there is one thing which you can control, and that is the breath. And the br
 
 #### 44:56
 
-Next, the *brain-nerve system*. About the brain-nerve system, Dogen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
+Next, the *brain-nerve system*. About the brain-nerve system, Dōgen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe, from *The Heart of Dogen's Shobogenzo*. Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
+(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe, from *The Heart of Dōgen's Shobogenzo*. Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
 
 That is the brain-nerve system. According to the brain-nerve system, we have to regulate mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
 
@@ -175,23 +175,23 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 #### 46:44
 
-So Dogen says “do not think good or bad, right and wrong” because we have to regulate [the] mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of *egolessness*; selflessness. 
+So Dōgen says “do not think good or bad, right and wrong” because we have to regulate [the] mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right and wrong, or neutral. That means the practice of *egolessness*; selflessness. 
 
 If your mind really attaches to good or bad, or neutral, immediately here are thoughts, views, wishes. And thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, [stopping]. [But] even though you can stop for a while, you cannot stop always, so you start to move to the right, to the left again. That is the dualistic world. 
 
-Finally, you don't know *what* to do; and you are really disappointed [in your life]. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, [Dogen Zenji says,] there is *distraction*. Distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. 
+Finally, you don't know *what* to do; and you are really disappointed [in your life]. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, [Dōgen Zenji says,] there is *distraction*. Distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. 
 
 So finally, you don't know what to do. Whatever kind of delusion, [either] dullness or distraction, both distract your activities, [...] your life. Settling yourself in the self is very difficult. 
 
 So finally, we have to practice regulating the mind. That regulation of the mind is the practice of *egolessness*. 
 
-But how can you practice egolessness? Dogen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of buddha.” That means, you should throw yourself away to... something. That *to something* is to your object. But this object is not merely an object, this is the house of the buddha. 
+But how can you practice egolessness? Dōgen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of buddha.” That means, you should throw yourself away to... something. That *to something* is to your object. But this object is not merely an object, this is the house of the buddha. 
 
 So first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is buddha. So to throw away yourself into this book means to throw away yourself into the house of buddha. That means deal with the book as well as dealing with your life. So you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something. 
 
 So that is egolessness. 
 
-And also, if you throw yourself away, your body and mind, into the house of the buddha, at that time, Dogen Zen Master says:
+And also, if you throw yourself away, your body and mind, into the house of the buddha, at that time, Dōgen Zen Master says:
 
 > When functioning comes from the direction of the buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become buddha. Then there can be no obstacle in any one's mind.
 
@@ -215,11 +215,11 @@ Egolessness: that is to regulate the mind. How to regulate the mind? Well, egole
 
 So if you really want to accomplish one thing which you want to do, you have to cut off “all involvements and all affairs.” In other words, make arrangement. 
 
-The young kids are listening to the radio and also studying and also trying to accomplish one thing – it seems to be good, but it's not the real accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with your wholeheartedness, it is very natural that you make arrangement of circumstances. This is a very natural attitude [toward] life. That's why Dogen Zenji says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; throw [it] away. 
+The young kids are listening to the radio and also studying and also trying to accomplish one thing – it seems to be good, but it's not the real accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with your wholeheartedness, it is very natural that you make arrangement of circumstances. This is a very natural attitude [toward] life. That's why Dōgen Zenji says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; throw [it] away. 
 
 How can you throw away? *Simplify*. You should simplify your activity, [simplify the relationship with] yourself and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. [...] How can you simplify? Let's practice *samadhi*. Samadhi is one-pointedness. If you practice one-pointedness, there is *egolessness*. Let egolessness simplify your life. [Manifest simplicity,] simplify your life. Because [then] you can offer yourself into the object: zazen, and study, et cetera. 
 
-And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha nature. And then this total personality, which is called buddha, is completely perfect and all-pervading. Dogen Zenji says, “The origin of the way is perfect and all-pervading.” 
+And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha nature. And then this total personality, which is called buddha, is completely perfect and all-pervading. Dōgen Zenji says, “The origin of the way is perfect and all-pervading.” 
 
 And also, “manifesting the original nature of existence.” If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain [and] nervous system, very naturally you can practice samadhi, you can offer yourself into [zazen], and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
@@ -237,7 +237,7 @@ According to a narrow understanding of human life, first you cut off the root of
 
 #### 1:05:26
 
-So, that is the conclusion of the main subject in [*Fukanzazengi*]. That's why Dogen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is really our zazen. We always [do this]. 
+So, that is the conclusion of the main subject in [*Fukanzazengi*]. That's why Dōgen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is really our zazen. We always [do this]. 
 
 If you believe that by the zazen “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony. Because if you believe that, zazen is always something far from you. And not only zazen – you accept yourself as sort of an unhappy person. So you yourself are also a person far from the real person, opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult [for you] to deal with zazen and whatever you do. So, that is not the practice for us.
 

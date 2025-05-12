@@ -43,7 +43,7 @@ In other words, if you do gassho, you become, your mind has to work in harmony w
 
 But, if your mind even slightly moves, you cannot do it. Because, you don't know. Your consciousness, your mind, cannot get it. So, your mind, your consciousness has to stop. 
 
-That’s why in zazen, the *Fukanzazengi*, Dogen Zenji mentions, your consciousness, your thoughts, your mind must be stopped. You have to throw away all worldly affairs, et cetera. You have to exactly stop in zazen. So, that is [the] unique way to participate in the sphere in harmony with the truth. 
+That’s why in zazen, the *Fukanzazengi*, Dōgen Zenji mentions, your consciousness, your thoughts, your mind must be stopped. You have to throw away all worldly affairs, et cetera. You have to exactly stop in zazen. So, that is [the] unique way to participate in the sphere in harmony with the truth. 
 
 But, in terms of faith, it's very difficult to exactly participate or touch the truth. So, next, what you can do is, in terms of the practice itself, you can participate, you can be engaged in the sphere which [...] your life, your mind, your consciousness are in harmony with the truth. So, only in terms of the true practice, practitioners can get into. 
 

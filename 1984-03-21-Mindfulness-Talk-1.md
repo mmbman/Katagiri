@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 1"
 
 ### Summary 
 
-Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dogen. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.” In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. 
+Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dōgen. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.” In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. 
 
 ### Transcript
 
@@ -38,13 +38,13 @@ The same applies to our lives, in many ways. Social status, position, and your l
 
 So that’s why in ancient times Buddha Shakyamuni told his disciples and followers to practice this mindfulness, contemplating the body as impure. Not only in Buddhism, but also in Christian monasteries they practice this, looking at human skeletons. That is very common, not only in Buddhist practice. 
 
-But Dogen Zenji understands this practice very deeply, so his teaching is quite different. He gives this teaching in *Shōbōgenzō*. 
+But Dōgen Zenji understands this practice very deeply, so his teaching is quite different. He gives this teaching in *Shōbōgenzō*. 
 
 *Shōbōgenzō* is already translated into English, but we don’t understand it completely when we read it. Even the Japanese don’t understand it. So if you translate it, it’s just like reading the Japanese. If you just read it, it doesn’t make sense. But it’s very deep understanding. 
 
 [I will start with] one translation by Nishiyama. First of all I want to read it, but I don’t expect you to understand it. If you read this explanation of mindfulness in Japanese, it’s kind of like repeating a magic spell. [...] 
 
-When I was at Eiheiji monastery, I didn’t understand why Dogen Zenji had to explain this deeply. Traditionally it’s pretty easy to understand: oh, contemplate the body as impure, it’s very simple. So why did Dogen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life, you have [to try] to understand this one, again and again. This is very important for us. 
+When I was at Eiheiji monastery, I didn’t understand why Dōgen Zenji had to explain this deeply. Traditionally it’s pretty easy to understand: oh, contemplate the body as impure, it’s very simple. So why did Dōgen Zenji have to explain this practice more deeply? I didn’t understand it. So in your whole life, you have [to try] to understand this one, again and again. This is very important for us. 
 
 But most people don’t understand it, particularly this chapter. The title is “The Thirty-Seven Conditions Contributing to Bodhisattva Practice.” This chapter is very difficult to understand because he explains the whole traditional Buddhist practice but completely beyond the traditional understanding. So it’s a very difficult chapter. But if you understand it, you will really touch the deep sense of Buddha’s teaching – common not only to priest life, but penetrating into everybody’s life, and also all sentient beings. You can really taste it. But until you can reach this deep understanding... Well, it takes time. 
 
@@ -56,7 +56,7 @@ But even though you don’t understand, I have to say something. That’s the be
 
 This is one paragraph. As a conclusion, this paragraph says [that] practice of this mindfulness, contemplating the body as impure, is taking care of the human body beyond the idea of purity or impurity. That is the point. 
 
-But [Dogen also] explains why we have to do it. Because in ancient times, this practice was done by monks, contemplating the body as impure – why is it he has to say contemplating the body *beyond* the idea of purity or impurity? This is the explanation, here. So little by little, we want to [study it].
+But [Dōgen also] explains why we have to do it. Because in ancient times, this practice was done by monks, contemplating the body as impure – why is it he has to say contemplating the body *beyond* the idea of purity or impurity? This is the explanation, here. So little by little, we want to [study it].
 
 #### 1 - 16:00
 
@@ -78,7 +78,7 @@ So even though your human body is healthy, still your mental life is not healthy
 
 So what is that idea of “health”? We don’t know. Because if you really want to keep your human body healthy, you have to take care of human activities, nutrition, and mental activities or spiritual life. They’re all connected with each other. Spiritual life is really vast; connected with [...] the function of the stars, the planets you have never been [to] – that is also spiritual life and your lifestyle. So you don’t know; it’s really vast. 
 
-[...] That’s why Dogen Zenji says immediately in the first sentence: the observation or contemplation of the human body as impure is that which a bag of skin [...] is the entire universe of the ten directions. So the body you are observing in zazen, in meditation, is nothing but a bag of skin, but on the other hand it’s not, it’s huge, because you have to see [...] the human body in the universal perspective. Otherwise you don’t understand human bodies. Otherwise you cannot keep the human body healthy. Because it’s connected with human activities, spiritual life. So you don’t understand it. 
+[...] That’s why Dōgen Zenji says immediately in the first sentence: the observation or contemplation of the human body as impure is that which a bag of skin [...] is the entire universe of the ten directions. So the body you are observing in zazen, in meditation, is nothing but a bag of skin, but on the other hand it’s not, it’s huge, because you have to see [...] the human body in the universal perspective. Otherwise you don’t understand human bodies. Otherwise you cannot keep the human body healthy. Because it’s connected with human activities, spiritual life. So you don’t understand it. 
 
 If we try to practice this mindfulness traditionally, you always say, “observing the human body as impure, watching the human skeleton.” It’s fine. But it is nothing but the moral sense, moral practice; it’s not religious practice. 
 
@@ -122,11 +122,11 @@ That’s why first he [speaks] like this. That’s why “the observation that t
 
 > This is the true body, and therefore is observing the body as impure, which transcends pure and impure.
 
-Here it says “transcends pure and impure.” But literally Dogen Zenji [says something] more vivid. He says, let me say:
+Here it says “transcends pure and impure.” But literally Dōgen Zenji [says something] more vivid. He says, let me say:
 
 > This is the true body, and therefore is observing the body as impure, *which is vividly hopping along*.
 
-Literally he says “hopping long”, or “jumping along”, or “vividly living.” Here (in the Nishiyama translation) it says “transcends pure and impure” – this is okay, I understand it, but literally Dogen Zenji says [something] more alive. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is leaping. Working constantly: your body is leaping, jumping along, living vividly, constantly.
+Literally he says “hopping long”, or “jumping along”, or “vividly living.” Here (in the Nishiyama translation) it says “transcends pure and impure” – this is okay, I understand it, but literally Dōgen Zenji says [something] more alive. The observation of the body as impure is just like something leaping along, vividly, constantly. It means you cannot pin it down, because it is leaping. Working constantly: your body is leaping, jumping along, living vividly, constantly.
 
 So that’s why you don’t know. Even though you pick up breathing, you don’t know what the breathing is. Every moment breathing is different. Every day of *sesshin* is different. You always expect, “In *this* sesshin, I would like to have a *good* sesshin.” Of course! But if you’re jumping into [it], sesshin is not [your] idea, sesshin is something alive. Because *you* do it, [and] your human body is something alive. So [...] finally the sesshin is going in a completely different way from what you have expected. 
 
@@ -144,7 +144,7 @@ That is called *transcend*. So *transcend* your ideas – your idea of purity or
 
 Rinzai Zen Master said, “The true human body is coming and going from every pore of your body.” But a monk didn’t understand this, and asked, “What is that?” Immediately Rinzai grabbed him and shook him: “How stupid you are!” And pushed him away. Because the human body is considered very naturally as just the human body, completely separate from activities, nutrition, spiritual life, and the trees and birds – completely separate. [But] if you do that, you cannot keep your human body healthy, as a buddha. Real health is to take care of human life as a buddha, beyond purity or impurity. That is really perfect health. (*Transcriber’s Note:* The story probably refers to Case 38 of the *Book of Equanimity*, “Linji’s (Rinzai’s) ‘True Person’”.) 
 
-That’s why Dogen Zenji says, “This is the *true* body.” [...] Your body is nothing but a bag of skin, but simultaneously it is something beyond a bag of skin. What is this? The universe. Your body is working with the universe! It is really true. That’s why it is the real, true body. You cannot separate what is the bag of skin and where is the universe. It’s working together. 
+That’s why Dōgen Zenji says, “This is the *true* body.” [...] Your body is nothing but a bag of skin, but simultaneously it is something beyond a bag of skin. What is this? The universe. Your body is working with the universe! It is really true. That’s why it is the real, true body. You cannot separate what is the bag of skin and where is the universe. It’s working together. 
 
 So, this is the *true* body, and therefore it is observing the body as impure, which is vividly living. 
 
@@ -192,7 +192,7 @@ Already you [have] observation. What is *real* observation? Real observation is 
 
 For instance, fire. You should observe fire, you should discern fire. [When you see a fire] in the distance, you are always thinking, “it is fire, it is fire” – analyzing, synthesizing – but it doesn’t make sense for you, because the fire doesn’t burn your body or your mind. So what is real discernment or real observation of fire? Put your hand in the fire. Immediately, you can observe, *real* observations.
 
-So if you observe the human body as a buddha, it is actually no observation, but observation has already been actualized. This is the total picture of the real reality you live in. That’s why Dogen Zenji says, “Yet the attainment of this observation has already been actualized.”
+So if you observe the human body as a buddha, it is actually no observation, but observation has already been actualized. This is the total picture of the real reality you live in. That’s why Dōgen Zenji says, “Yet the attainment of this observation has already been actualized.”
 
 > ... so you should know that it is attainment of jumping-around-ness or living-ness.
 > 
@@ -230,7 +230,7 @@ That is the whole story. That’s why here it says, “The attainment of observa
 
 That is Ungan holding the broom and saying, “Which moon [is] this?”
 
-And finally Dogen Zenji says, 
+And finally Dōgen Zenji says, 
 
 > ... the attainment of observation is suchness of the entire universe. 
 
@@ -240,7 +240,7 @@ Just like sleep; exactly like sleep. If you sleep, you cannot perceive sleep, so
 
 #### 2 - 21:34
 
-So that is the first paragraph [of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”], where Dogen Zenji explains the meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
+So that is the first paragraph [of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”], where Dōgen Zenji explains the meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
 
 According to the traditional understanding, you should accept your body as impure, not pure. That is a completely dualistic understanding. That’s why you have to see always skeleton, skeleton, always skeleton. I don’t mean this is *wrong*; it’s pretty good. But it is moral understanding. 
 
@@ -250,7 +250,7 @@ So first of all, simply speaking, please accept your human body as buddha. You s
 
 So that is what? That is nothing but everyday practice, activities: sweeping the grounds, wiping the floors. Because you wash the dishes every day, but washing the dishes or wiping the floor is not separate, as you believe, it’s very profound practice for us. Our activities are not separate from Buddha’s teachings; that’s why Buddha’s teachings are very close to our everyday activities.
 
-But people misunderstand everyday activities in the common sense. [Everyday activities are] very deep, profound, to educate and deepen your life. We don’t understand that; that’s why Dogen Zenji has to constantly [explain it] like this. 
+But people misunderstand everyday activities in the common sense. [Everyday activities are] very deep, profound, to educate and deepen your life. We don’t understand that; that’s why Dōgen Zenji has to constantly [explain it] like this. 
 
 Do you have some questions?
 
@@ -392,7 +392,7 @@ So that’s why purity is manifested as no-purity. In Buddhism we always use neg
 
 Just like sleep. *Shikan* sleep, you know? *[He chuckles.]* *Shikan* sleep is very pure, purity. That means completely you cannot perceive the idea of sleep, subject and object. So completely pure sense of purity. 
 
-**Another person:** Is that similar to what Dogen talks about whole-being buddha-nature? No buddha-nature, buddha-nature, whole-being buddha-nature. 
+**Another person:** Is that similar to what Dōgen talks about whole-being buddha-nature? No buddha-nature, buddha-nature, whole-being buddha-nature. 
 
 **Katagiri Roshi:** [The self] is the entire whole world like this; that is the spirit of *shikan*. That is not an abstract idea, [not] an abstract understanding of human life. You can manifest it in the concrete aspect of human life. That is sweeping the ground, wiping the floors. That’s why doing zazen or gassho is nothing but the entire whole world. 
 

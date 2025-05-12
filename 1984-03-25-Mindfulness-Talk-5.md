@@ -7,7 +7,7 @@ title: "Mindfulness – Talk 5"
 
 ### Summary
 
-Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dogen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication. This moment is a blank canvas. 
+Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dōgen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication. This moment is a blank canvas. 
 
 ### Transcript
 
@@ -27,7 +27,7 @@ You know the story of Buddha Shakyamuni when he transmitted his dharma in front 
 
 If you want to compose a poem about nature or wilderness and beauty of existence, whatever, you have to *move toward* first. So see nature, be with nature. That is then simultaneously you can have dynamic communication between nature and you. That is “at the place where we take form of something.” Literally that means at the place where we are *using* something. *Using* is not a good term; I don’t know. So *practice*, actually. 
 
-I think if you read the book *Refining Your Life*, Dogen Zenji [talks] about that. For instance, taking a piece of vegetable and build up Buddha’s temple, buddha-world. That means it depends on your practice whether you kill the vegetable or you make the life of vegetable alive, aiming at the human life for the long run. If your range is very short, I think this vegetable is there just for eating, for breakfast and dinner, et cetera. But if you deal with the piece of vegetable for taking care of the people who practice in the Buddha way for life after life, at that time you have to take care of the piece of vegetable with very careful, compassionate spirit. So very naturally a different world is opening, the flower of the world is blooming in a completely different way. 
+I think if you read the book *Refining Your Life*, Dōgen Zenji [talks] about that. For instance, taking a piece of vegetable and build up Buddha’s temple, buddha-world. That means it depends on your practice whether you kill the vegetable or you make the life of vegetable alive, aiming at the human life for the long run. If your range is very short, I think this vegetable is there just for eating, for breakfast and dinner, et cetera. But if you deal with the piece of vegetable for taking care of the people who practice in the Buddha way for life after life, at that time you have to take care of the piece of vegetable with very careful, compassionate spirit. So very naturally a different world is opening, the flower of the world is blooming in a completely different way. 
 
 So that is *nen jo*. 
 
@@ -43,7 +43,7 @@ So, “We should clarify that principle or the truth”: that is really the trut
 
 #### 1 - 09:10
 
-And then in the next passage, Dogen Zenji takes the method of washing the robe as an example. Let me read it first: 
+And then in the next passage, Dōgen Zenji takes the method of washing the robe as an example. Let me read it first: 
 
 > For example, it is just like the method of washing a robe. Water is contaminated by the robe; the robe is soaked in water. Although the robe is cleaned with the aid of water and by changing the water, water is still being used, and the robe is being washed. More than one or two washings are necessary, and we shouldn’t rest until it is clean. When the water is used up, we put more water in. We wash the clean robe again to make it cleaner. It is good for the robe to be clean that all kinds of water are used. We must clarify the principle that there is a fish in dirty water. 
 > 
@@ -73,7 +73,7 @@ This is a little bit... Do you understand this one? *[He chuckles.]*
 
 Well, “although the robe is cleaned with the aid of water and by changing the water” means, if you want to clean the robe, you have to use the water. And also, you have to change the water again and again. So if you want to do zazen, you should use zazen. And again and again you have to change zazen. Because every *sesshin* is different, don’t you think so? So you should change the spirit of sesshin. In other words, “change the water” means you must be *fresh*, always. Your spirit must be fresh, the spirit of sesshin must be fresh, every time. That is *change the water*. Change the water constantly until it’s clean. So that is the point it says here. 
 
-[...] But *cleaned* means, you should remember, Dogen Zenji says water *is* contaminated by robe: already there is subject and object, [already it is] in the light of human concepts. So zazen is contaminated, [and] you are soaked in zazen. So you are always thinking. If you see the contaminated zazen, you don’t like it, you know? *[He laughs.]* So you want to clean the zazen. But if *you* start to wash the robe, so-called *practitioner*, simultaneously water is contaminated by the practitioner. That’s pretty natural. Even though you see the contaminated water, constantly you should use the water, nothing else. Anyway, if you want to do zazen, use the zazen, whatever happens. Under all circumstances: up, and down, up, and down. Under all circumstances continually use the water [or] zazen. 
+[...] But *cleaned* means, you should remember, Dōgen Zenji says water *is* contaminated by robe: already there is subject and object, [already it is] in the light of human concepts. So zazen is contaminated, [and] you are soaked in zazen. So you are always thinking. If you see the contaminated zazen, you don’t like it, you know? *[He laughs.]* So you want to clean the zazen. But if *you* start to wash the robe, so-called *practitioner*, simultaneously water is contaminated by the practitioner. That’s pretty natural. Even though you see the contaminated water, constantly you should use the water, nothing else. Anyway, if you want to do zazen, use the zazen, whatever happens. Under all circumstances: up, and down, up, and down. Under all circumstances continually use the water [or] zazen. 
 
 But we don’t do it in that way. When you feel bored and you don’t like it, you want to get up from zazen and use something else. Because there are lots of things by which you are “captured,” fantastic things in this world.
 
@@ -125,7 +125,7 @@ So, that means Tozan Zen Master found the very strong arrogance within this monk
 
 So that is not Buddhist practice, because Buddhist practice is very warm, compassionate. Very compassionate. 
 
-That’s why Dogen Zenji says in the *Shōbōgenzō* something like this: “Hearing the proclaiming [of] the dharma life after life, existence after existence, is to hear the dharma world after world. We can hear in our present existence the dharma which has been transmitted from the past up to the present. Within the dharma there is creation and destruction. Therefore, if we rightly transmit the dharma throughout the entire universe of the ten directions, we can hear it life after life and practice it existence after existence, since the dharma is actualized life after life and manifested in existence after existence.” 
+That’s why Dōgen Zenji says in the *Shōbōgenzō* something like this: “Hearing the proclaiming [of] the dharma life after life, existence after existence, is to hear the dharma world after world. We can hear in our present existence the dharma which has been transmitted from the past up to the present. Within the dharma there is creation and destruction. Therefore, if we rightly transmit the dharma throughout the entire universe of the ten directions, we can hear it life after life and practice it existence after existence, since the dharma is actualized life after life and manifested in existence after existence.” 
 
 So, washing the clean robe – in other words, preserving the seed of buddha, buddha-nature – preserving the crops in autumn. That practice is something going constantly. You don’t know when you preserve perfectly. You don’t know when small holes appear in storage. So, you have to anyway take best care of storage. *Storage* means the circumstances, your human body, human mind, and people – taking care of [them] with our best [effort]. And then, you don’t know when you complete your practice, the practice of preserving the crops. We don’t know. We don’t know when [there is] failure of preserving. We don’t know. So constantly we have to do. Even though materialistically you preserve something perfectly, [still] the weather, everything, circumstances are changing. So, we don’t know what’s happening. 
 
@@ -165,7 +165,7 @@ According to the first type of ripeness: of course, it is already ripe, but it�
 
 So very naturally, our practice is just to continue to practice in terms of the third type of ripeness, constantly. That is preserving the seed of the crops. 
 
-So that’s why in the last sentence, Dogen Zenji kindly tells us, “It is good for the robe to be clean that all kinds of water are used.” Everyday life. Using dharma-nature, using the bodhi-mind, practice, enlightenment, delusions, life and death, you wash. 
+So that’s why in the last sentence, Dōgen Zenji kindly tells us, “It is good for the robe to be clean that all kinds of water are used.” Everyday life. Using dharma-nature, using the bodhi-mind, practice, enlightenment, delusions, life and death, you wash. 
 
 [...] But when you wash, we must clarify the principle – this is the truth, whoever you are – that there is a fish in dirty water. Your water becomes dirty, but in the dirty water, very clearly, there is a fish. That is perfect buddha-nature there. 
 

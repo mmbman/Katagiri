@@ -76,21 +76,21 @@ And then after this, this Tathagata talked about Four Noble Truths to the audien
 
 So in this gatha we say, “May the merit of this penetrate into each things in all places, so that we and every sentient being together can realize.” So what you have done, the merit of your doing, is giving to all sentient beings. So your doing, your practice, is not just for you. So your practice is given to all sentient beings. Not just for you. 
 
-I think this is very important, and I think in the *Shobogenzo* chapter *Shoaku-makusa*, “Good and Bad” (or “Not Doing Wrongs”), there is an old story. One of the Governors in China in ancient times, who was a really great Buddhist, and went to see one of the Zen masters, and discussed about some aspect of Buddhism. And then he asks the Zen master, “What is the essence of Buddhism?” And the Zen master says, “Do not [do] some unwholesome; do something wholesome; purifying your own mind. This is Buddha’s teaching.”
+I think this is very important, and I think in the *Shōbōgenzō* chapter *Shoaku-makusa*, “Good and Bad” (or “Not Doing Wrongs”), there is an old story. One of the Governors in China in ancient times, who was a really great Buddhist, and went to see one of the Zen masters, and discussed about some aspect of Buddhism. And then he asks the Zen master, “What is the essence of Buddhism?” And the Zen master says, “Do not [do] some unwholesome; do something wholesome; purifying your own mind. This is Buddha’s teaching.”
 
 And then, the Governor, named Paichii (Bai Juyi, also Bo Juyi or Po Chü-i, Jp: Haku Kyoi, 772-846), he was governor and also great poet. So he said, “Is it all [of] Buddha’s teaching?” The Zen master (Chōka Dōrin) said, “Yes it is Buddha’s teaching.” And then the Governor says, “Such a teaching is known even by a little three-year-old boy.” In other words, that teaching is not real teaching, because the governor expected something more than that. So the teacher says, “Yes, even a little three-year-old boy knows pretty well; but even an eighty-year-old man cannot practice it.” This is the whole story. 
 
-And then Dogen Zenji comments on this story, one by one. So he mentions like this. 
+And then Dōgen Zenji comments on this story, one by one. So he mentions like this. 
 
-Dogen Zen Master comments on this: “Poor Paichii! What nonsense you are talking about. You have never heard the Buddha’s teachings. Do you know a three year old boy? Do you know the principle prior to incipience of his birth? One who knows a three-year-old boy can also know the Buddha in the Three Worlds. How could one who has never known the Buddhas in the three worlds know a three-year-old boy? Do not believe that you can know a person you have met. Do not believe that you cannot know a person you have never met.” This is a part of the commentary. 
+Dōgen Zen Master comments on this: “Poor Paichii! What nonsense you are talking about. You have never heard the Buddha’s teachings. Do you know a three year old boy? Do you know the principle prior to incipience of his birth? One who knows a three-year-old boy can also know the Buddha in the Three Worlds. How could one who has never known the Buddhas in the three worlds know a three-year-old boy? Do not believe that you can know a person you have met. Do not believe that you cannot know a person you have never met.” This is a part of the commentary. 
 
 So he first says, “Poor Paichii!” Because Paichii was a great intellectual person, great person. People say he was just like a Zen master, just like Manjushri and Avalokiteshvara. That means, everyone knows him very well. He was a very well-known person. 
 
-Dogen Zenji says, “You are a well-known person, and you command respect from all people, but still you don’t know what the Buddha’s teaching was.” Because he accepted that teaching mentioned by Zen teachers, “Do not do something unwholesome, do something wholesome, purify your mind. This is Buddha’s teaching.” So he accepted this teaching in terms of moral sense, the usual sense. So that’s why Dogen-zenji says, “Poor Paichii! What nonsense are you talking about? You have never heard the Buddha’s teachings.” Buddha’s teaching is not something like that, [which] you have understood. 
+Dōgen Zenji says, “You are a well-known person, and you command respect from all people, but still you don’t know what the Buddha’s teaching was.” Because he accepted that teaching mentioned by Zen teachers, “Do not do something unwholesome, do something wholesome, purify your mind. This is Buddha’s teaching.” So he accepted this teaching in terms of moral sense, the usual sense. So that’s why Dōgen-zenji says, “Poor Paichii! What nonsense are you talking about? You have never heard the Buddha’s teachings.” Buddha’s teaching is not something like that, [which] you have understood. 
 
 So do you know a three-year-old boy? I think, even though you see a three-year-old boy, how much can you understand a baby or a three-year-old boy? Even though you have met? Even though he is present in front of you, how much do you understand? We don’t understand exactly. So that’s why he said, “Do you know a three-year-old boy?” Because a three-year-old boy speaks of his life in the universal perspective. Something more than you have understood. So you don’t know exactly what he is speaking of. So that’s why if you see a baby, you are really moved by the presence of the baby. He doesn’t say anything, but the adults are really impressed by baby’s presence. Or a three-year-old boy’s. Because they are speaking of something more than what you have seen or heard. 
 
-So that’s why Dogen-zenji mentions, “Do you know a three-year-old boy? Do you know the principle prior to the incipience of his birth?” Because, do you know the real three-year-old boy – not after his birth, do you know the principle before his birth?
+So that’s why Dōgen-zenji mentions, “Do you know a three-year-old boy? Do you know the principle prior to the incipience of his birth?” Because, do you know the real three-year-old boy – not after his birth, do you know the principle before his birth?
 
 Well, before his birth, there must be something. Do you know who you are? You know who you are after birth, but do you know about you before your birth, before your parents’ birth? We don’t know. 
 
@@ -98,7 +98,7 @@ So that’s why if we say, “I understand you,” or living together, and then 
 
 After living together a couple of years, and then you decide, “Let’s get married, because we know pretty well each other.” But a couple of years later after marriage, you divorce, you know, pretty easily. So how much do you understand [about] people, and about you yourself? 
 
-So that’s why Dogen Zenji says, “Do you know the principle prior to incipience of his birth?” Is that correct? “Incipience of his birth?”
+So that’s why Dōgen Zenji says, “Do you know the principle prior to incipience of his birth?” Is that correct? “Incipience of his birth?”
 
 “One who knows a three-year-old boy can also know the Buddhas in the Three Worlds.” If you know somebody exactly, including the principle prior to the incipience of peoples’ birth, you can know. You can know all buddhas in the three worlds. That means you can know everyone. 
 
@@ -164,7 +164,7 @@ Do you have questions?
 
 And then, it’s progress, naturally. 
 
-And Dogen-zenji mentions one more thing. He says, it’s a very interesting point, he says like this: 
+And Dōgen-zenji mentions one more thing. He says, it’s a very interesting point, he says like this: 
 
 > Practice thoroughgoing penetration in action.
 
@@ -228,7 +228,7 @@ So whatever you feel, chanting the verse, chanting the name of the Avalokiteshva
 
 So conscious world is pretty busy. That’s why sooner or later, you have to pass by. But conscious doesn’t accept it, but if you do it, you can experience it. You do it. That’s why I say, you can make a progress as far forth as you have done. Exactly it touches your heart. But consciousness doesn’t accept, doesn’t know. But we should wait for the time to know. 
 
-That’s why Dogen-zenji says, even though you don’t see something, I think, don’t believe that you cannot see it. Still you can see what you cannot see. 
+That’s why Dōgen-zenji says, even though you don’t see something, I think, don’t believe that you cannot see it. Still you can see what you cannot see. 
 
 So that is our practice. Within the practice, a huge world is there. In the sphere of thoroughgoing practice, there are some you can see, there are some you cannot see. But you should accept *both*. 
 

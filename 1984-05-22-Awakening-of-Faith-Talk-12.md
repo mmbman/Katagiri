@@ -80,7 +80,7 @@ So from this point, it’s impossible for us to understand, even philosophically
 
 That is *the truth*. If so, you cannot say truth creates samsara. But some Buddhist scholars understood by the activity of the absolute truth, samsaric world is created through this. But that is a little bit misunderstanding. 
 
-So, if so, that’s why this course, anyway, find out another category, so-called *tathagatagarbha*. *Tathagatagarbha* is very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being*, mentioned by Dogen himself. You can see a little bit. 
+So, if so, that’s why this course, anyway, find out another category, so-called *tathagatagarbha*. *Tathagatagarbha* is very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being*, mentioned by Dōgen himself. You can see a little bit. 
 
 So, *tathagatagarbha*. That’s why this discourse brings up another term, so-called *tathagatagarbha*. So, *tathagatagarbha* is the truth dwelling in... us. And “all beings”. Not abstracted. Not abstracted idea of the principle or action – no. *Tathagatagarbha* is the very important ground of life. So, not abstract, an idea.
 
@@ -356,7 +356,7 @@ So where do you stand up? Where do you stand up? When you stand up in the samsar
 
 In other words, if you are angry, if you are mad at somebody, the whole world is mad. *[He laughs.]* If you see the human world with disoriented mind, the whole world is disoriented. Do you understand? 
 
-That is so-called peace and harmony, coming in, interacting together. You cannot say which is top, which is bottom. When you show the front, that’s it: whole world is front. When you show the back, whole world is back. That is, Dogen Zenji says, when one side appears, the other side is darkness. 
+That is so-called peace and harmony, coming in, interacting together. You cannot say which is top, which is bottom. When you show the front, that’s it: whole world is front. When you show the back, whole world is back. That is, Dōgen Zenji says, when one side appears, the other side is darkness. 
 
 So next time I can explain that, a little more about this to you. Okay.
 

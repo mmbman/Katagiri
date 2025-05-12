@@ -194,7 +194,7 @@ So in Zen Buddhism always emphasizes that point. So practice seems to come first
 
 But if there are some people who can practice easily, it’s not necessary to emphasize faith strongly. So encouraging the practice first. But generally speaking, if you practice, simultaneously there is faith. 
 
-That is in particular Dogen Zenji’s way, always practice comes up. That's why enlightenment in practice, practice in enlightenment, simultaneously there. Faith in practice, practice in faith. 
+That is in particular Dōgen Zenji’s way, always practice comes up. That's why enlightenment in practice, practice in enlightenment, simultaneously there. Faith in practice, practice in faith. 
 
 But in this book, I think faith is emphasized strongly. 
 

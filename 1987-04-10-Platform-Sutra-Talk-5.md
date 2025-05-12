@@ -117,7 +117,7 @@ So, use your own-nature of the truth...
 
 > ... and, by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them. That is to see one’s own nature and realize the Buddha Way.
 
-[...] So that means you have to take care of your object in your everyday life with compassion and with wisdom. Not only the human beings, but also inanimate beings. I always say, even a sheet of toilet paper. And your boots, your clothes, the water and the vegetables and the pan... whatever they are, we have to take care of them with compassion and wisdom. That is called “use your own nature of the truth.” Because phenomenon and the truth are one. That's why Dogen Zenji [talks about] how to practice in the monastery. [He talks about this] in the text of the *Eihei Shingi*, “Regulation of the Monastery.”
+[...] So that means you have to take care of your object in your everyday life with compassion and with wisdom. Not only the human beings, but also inanimate beings. I always say, even a sheet of toilet paper. And your boots, your clothes, the water and the vegetables and the pan... whatever they are, we have to take care of them with compassion and wisdom. That is called “use your own nature of the truth.” Because phenomenon and the truth are one. That's why Dōgen Zenji [talks about] how to practice in the monastery. [He talks about this] in the text of the *Eihei Shingi*, “Regulation of the Monastery.”
 
 “Use your own true-suchness nature, and by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them.” [...] We chant the *Prajnaparamita* every day, and in the first paragraph, according to the translation of *The Heart Sutra* by Doctor Conze, he [says]:
 
@@ -127,7 +127,7 @@ So, use your own-nature of the truth...
 
 So Avalokitesvara Bodhisattva was moving in the deep course of wisdom; this wisdom means wisdom which has gone beyond. So wisdom is that which has gone beyond. Because emptiness is emptiness, everything is emptiness. And then next what you have to do is practice of the emptiness which is emptiness. And then constantly we have to achieve continuity of practicing emptiness is emptiness. Constantly emptiness. So that is “Avalokitesvara Bodhisattva was moving in the deep course” of this wisdom. You have to participate in [it] – not only understand. You have to directly participate in the wisdom which has gone beyond.
 
-How? Well, it's not so difficult [a] practice. Every day, you have to deal with your object, your body, your mind, with compassion and [kindness]. That is a point Dogen Zenji teaches us. It's a very simple practice. 
+How? Well, it's not so difficult [a] practice. Every day, you have to deal with your object, your body, your mind, with compassion and [kindness]. That is a point Dōgen Zenji teaches us. It's a very simple practice. 
 
 But human beings, human consciousness is very greedy to get something, and you always want to have a big deal, [you] expect a big reward. We don't want to practice without seeing any reward, without having a big deal. That's why people complain, naturally. But this is a basic attitude, because we want to live in peace. How do we live? We have to practice like this: moving in the deep course of wisdom which has gone beyond. 
 
@@ -157,7 +157,7 @@ That is “to see into one's own original nature and realize the buddha way.”
 
 So, what [does it] mean, to have a *kensho*? Rinzai mentions [*kensho*], and we say very often purpose of practice is to experience *kensho*. Are you familiar with the term? If you go to Rinzai, they always [say] you have to attain enlightenment; that is called *kensho*. You have to realize your own true nature, original nature. Otherwise, your life doesn't make sense. Something like that. 
 
-So what do [we] mean by “seeing into your own original nature,” called *kensho*? I think we should understand this very deeply. That's why [we say] *kensho* is not to try to grasp outwardly. First you have to put yourself in the oneness of existence. That's always Dogen’s emphasis, called *shikan*. 
+So what do [we] mean by “seeing into your own original nature,” called *kensho*? I think we should understand this very deeply. That's why [we say] *kensho* is not to try to grasp outwardly. First you have to put yourself in the oneness of existence. That's always Dōgen’s emphasis, called *shikan*. 
 
 #### 48:11
 

@@ -89,11 +89,11 @@ That is zazen. [It is a] simple form, simple practice: let’s return home. That
 
 #### 27:27
 
-Dogen Zenji comments [...] on the statement, “Supernatural powers and their wondrous functioning: hauling water and carrying firewood.” (*Transcriber’s Note:* This is in *Shōbōgenzō Jinzu*̄, “On the Marvelous Spiritual Abilities”. The statement is from a verse by Layman P’ang.)
+Dōgen Zenji comments [...] on the statement, “Supernatural powers and their wondrous functioning: hauling water and carrying firewood.” (*Transcriber’s Note:* This is in *Shōbōgenzō Jinzu*̄, “On the Marvelous Spiritual Abilities”. The statement is from a verse by Layman P’ang.)
 
 Hauling water and carrying firewood are nothing but daily living. Hauling water and carrying firewood are not something *you* do, they are nothing but tuning into the rhythm of the universe – not only tuning in to the rhythm of your life, but also the rhythm of the universe. That is energy. So hauling water is hauling water *you* do, but hauling water is the manifestation of Buddha. That is called *supernatural power* or *spiritual power*.
 
-But Dogen Zenji says we don’t understand this; no one understands this. That’s why we don’t pay attention to it. But even though we don’t understand, it is really true. So we have to move toward this. 
+But Dōgen Zenji says we don’t understand this; no one understands this. That’s why we don’t pay attention to it. But even though we don’t understand, it is really true. So we have to move toward this. 
 
 For instance, we wear the *okesa*, or *rakusu*, Buddhist robe. We know the meaning of the rakusu and robe, but when you walk in the countryside, lots of frogs and crickets in the fields or country land, they don’t understand the robe. The robe is the robe of great liberation, compassion! But they don’t understand. Immediately they jump up, to escape from your robe. Bird, dog, cat, never understand it. *We* understand it – a little bit. But still we don’t understand that this robe is the total manifestation of Buddha’s compassion and wisdom; we don’t understand this. If you understand, sometimes you *misunderstand*, because you expect something *extra* from this Buddhist robe – called *wondrous light*, called *wisdom*, or *Buddha’s compassion*, or *magic*. I don’t think so.
 
@@ -105,7 +105,7 @@ So only when you see Buddha’s robe as Buddha, it becomes Buddha, Buddha’s co
 
 ... [But it is] really true. So if you don’t understand, we have to move toward that. This is everyday practice. 
 
-So Dogen Zenji says that people don’t understand. Not only the crickets or frogs or snakes; when you come across [people] on the road, they don’t understand the meaning of the robe, the meaning of the compassion human beings possess. But human beings possess compassion and wisdom, and peace and harmony are there, even though they don’t understand. Even though dog or bird tries to escape from you, you always say, “Come on, I won’t bite you. Please, stay here, in peace and harmony.” You continue to tell them, but they don’t understand. And also they don’t have any idea, any power, or any intention to move toward that [compassion], even though they don’t understand it. But a human being, if we don’t understand, we *try* to know. That’s pretty good. So if you don’t understand, try to move toward that. This is everyday life.
+So Dōgen Zenji says that people don’t understand. Not only the crickets or frogs or snakes; when you come across [people] on the road, they don’t understand the meaning of the robe, the meaning of the compassion human beings possess. But human beings possess compassion and wisdom, and peace and harmony are there, even though they don’t understand. Even though dog or bird tries to escape from you, you always say, “Come on, I won’t bite you. Please, stay here, in peace and harmony.” You continue to tell them, but they don’t understand. And also they don’t have any idea, any power, or any intention to move toward that [compassion], even though they don’t understand it. But a human being, if we don’t understand, we *try* to know. That’s pretty good. So if you don’t understand, try to move toward that. This is everyday life.
 
 So, “Where do they fall?” – that question is really a key point. This [question] is always nothing but function itself. You have to make your life work, from moment to moment, without falling into causation and without ignoring causation. What is that? Just functioning. Just make your life function. That is the question, “Where do they fall?” 
 

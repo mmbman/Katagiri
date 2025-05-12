@@ -234,7 +234,7 @@ But before you attain enlightenment, how can you understand everything is buddha
 
 So even though you don’t understand, you don’t experience this, actually through the teaching you should find the destination. So you should accept that destination, because this is the destination you have to go [toward]. So that is called *faith*, or belief. Or *receive* and keep it. In the Lotus Sutra, [it] always says “receive and keep, and practice.” So faith is [to] totally accept and receive, receive the Buddha’s teaching. 
 
-So at that time, all sentient beings become buddha. According to *Genjokoan*, Dogen Zenji says, “When [...] all dharmas are buddha dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” Something like this. [This is] exactly the same. So you can accept totally all sentient beings as equal entities, no discrimination. 
+So at that time, all sentient beings become buddha. According to *Genjokoan*, Dōgen Zenji says, “When [...] all dharmas are buddha dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” Something like this. [This is] exactly the same. So you can accept totally all sentient beings as equal entities, no discrimination. 
 
 That is seeing the human world, human beings, with the eyes of the path. That is the first point. 
 
@@ -244,7 +244,7 @@ The second [point]: “Explaining sound and form.” Next, you have to understan
 
 If the birds are buddha nature, [do the] birds have a kind of lamp of buddha, a kind of “avocado seed”? No, I don’t think so. *Buddha* means human beings and birds and trees are all the same. That means no particular form of the self. That is equality. That is egolessness. 
 
-So, according the *Genjokoan*, Dogen Zenji says, “When the ten thousand dharmas are without self, there are no delusions, no enlightenment, no buddhas, no creatures, no life and no death.” Very naturally, you can see the real picture of the microphone, real picture of the trees. That is really no-self. 
+So, according the *Genjokoan*, Dōgen Zenji says, “When the ten thousand dharmas are without self, there are no delusions, no enlightenment, no buddhas, no creatures, no life and no death.” Very naturally, you can see the real picture of the microphone, real picture of the trees. That is really no-self. 
 
 *No-self* means that everything has a certain reason why they exist. Even devils. Even trees, even birds. They have a reason why they exist, completely beyond human speculation, good or bad, right or wrong. So they exist, exactly. That is called buddha nature. 
 
@@ -258,7 +258,7 @@ The third point: “Explaining the mind source.”
 
 So from this point, the third one is explaining the mind source: [it] means what is the reality we exist. What is the reality we and trees and birds exist. That is the source of existence. The source of you; the source of tree; the source of bird. What is the reality? Is it only open to human beings, or a particular creature? No. Reality is completely beyond human speculation – good or bad, right and wrong, or evaluation, pros and cons, success and failure. This is the real reality you are present in. 
 
-So according to Dogen’s term[s], Dogen [says] very simply, “The buddha way transcends being and nonbeing, therefore there are life and death, delusion and enlightenment, creatures and buddhas.” So [it is] who you are. You are completely buddha way – [that] means you are completely beyond people’s criticism, or judgement, evaluation. Good or bad, right and wrong. This is the *real* picture of your life. 
+So according to Dōgen’s term[s], Dōgen [says] very simply, “The buddha way transcends being and nonbeing, therefore there are life and death, delusion and enlightenment, creatures and buddhas.” So [it is] who you are. You are completely buddha way – [that] means you are completely beyond people’s criticism, or judgement, evaluation. Good or bad, right and wrong. This is the *real* picture of your life. 
 
 So that is really [valuable]. 
 
@@ -276,7 +276,7 @@ My actions are based on *feelings*, *perceptions*, *impulses*, [and] *consciousn
 
 So it really depends on individual actions, individual life in motion, every day. Because basically your life is clear water, beyond good or bad, right and wrong: so-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy”; this is the real reality of your life. But nevertheless, your individual life is there! What is this? This is really depending on your actions: you can create your own life, depending on your actions. Blue ink, and red ink; black ink sometimes. And then [you] create lots [of world]. 
 
-So that’s why Dogen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live – because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dogen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
+So that’s why Dōgen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live – because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dōgen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
 
 So this is reality, this is a fact you experience. Whatever you say, philosophical or psychological, well, this is a fact. 
 
@@ -284,9 +284,9 @@ So very naturally, pay careful attention to your feeling, anyway. When the flowe
 
 That’s why next [there is] “explaining forgetting feeling.” *Forgetting feeling* means not exactly *forgetting*. This is kind of a Rinzai type (of expression). *[He laughs.]* “Enlightenment, and then next, you have to come back to the human world – but if you come back to the human world, you have lots of emotions, feelings. So *forget it*.” You know? You just keep standing in the Buddha’s world. Sharp sword! That’s why Rinzai is very sharp: always very vigorous and vital. 
 
-But Dogen Zenji is a little bit different. A little bit soft, and very realistic. And also very romantic. *[He chuckles.]* Not the usual romantic, but pretty romantic. High level of romantic. *[He chuckles, and people laugh.]* And also very realistic. 
+But Dōgen Zenji is a little bit different. A little bit soft, and very realistic. And also very romantic. *[He chuckles.]* Not the usual romantic, but pretty romantic. High level of romantic. *[He chuckles, and people laugh.]* And also very realistic. 
 
-So Dogen Zenji doesn’t scream, and [he’s] not “vigorous,” not “enthusiastic,” not “tough.” Very soft. But in the bottom of his life, it’s really strong vitality there, which makes his life continually going, without stop. But it is [a] very quiet way of life. 
+So Dōgen Zenji doesn’t scream, and [he’s] not “vigorous,” not “enthusiastic,” not “tough.” Very soft. But in the bottom of his life, it’s really strong vitality there, which makes his life continually going, without stop. But it is [a] very quiet way of life. 
 
 So anyway, the fourth point is “explaining forgetting feelings.” 
 
@@ -296,13 +296,13 @@ And the fifth: “Explaining preaching.”
 
 That’s why Rinzai is always *spitting* from that “forgetting the feeling.” So [they] immediately scream, and completely ignore human feelings, the human world, et cetera. This is kind of a Rinzai type. I don’t mean it is *wrong*. It’s alright, but...
 
-[...] Dogen’s way is, finally, he says, “To practice and realize the myriad dharmas by conveying the self to them is delusion. That the myriad dharmas advance and practice and realize the self is enlightenment.” In other words, “to practice and realize the myriad dharmas by conveying the self to them”: if you want to understand the sound of raindrops, first of all you have to *convey* yourself. I mean, you have to – what would you say – move toward. 
+[...] Dōgen’s way is, finally, he says, “To practice and realize the myriad dharmas by conveying the self to them is delusion. That the myriad dharmas advance and practice and realize the self is enlightenment.” In other words, “to practice and realize the myriad dharmas by conveying the self to them”: if you want to understand the sound of raindrops, first of all you have to *convey* yourself. I mean, you have to – what would you say – move toward. 
 
 If you want to make a poem of a pine tree, you have to move toward the pine tree first, initiatively. And then you can practice and realize what the pine tree is, in nature. Not only the pine tree: as a whole, you have to understand the pine tree in nature. That means you have to move toward that; you should convey yourself, you should carry yourself toward that pine tree. And then, very naturally, you can practice the pine tree and realize the pine tree. And then next, the pine tree comes up to you. In other words, the pine tree tells you what it is, [tells you] about the life of the pine tree which you have never seen before. So very naturally you can move there, and then, the pine tree moves to you. Simultaneously there is spiritual communion there. At that time, you can compose a poem.
 
 Just like a mountaineer. If you climb a mountain, you always climb the mountain, and then finally the mountain tells you what the mountain is, what the beauty of the mountain is. So if you do it constantly, the mountain teaches you about your life, about the life of the mountains, about the trees, birds. 
 
-At that time, [Dogen] says, “The myriad dharmas advance and practice and realize the self.” In other words, you are drawn in by the mountains and birds, trees. If you climb the mountain constantly, without stop, day by day, year after year, you are drawn in by the life of mountains. So that is really great experience. That is so-called *total picture of enlightenment*. 
+At that time, [Dōgen] says, “The myriad dharmas advance and practice and realize the self.” In other words, you are drawn in by the mountains and birds, trees. If you climb the mountain constantly, without stop, day by day, year after year, you are drawn in by the life of mountains. So that is really great experience. That is so-called *total picture of enlightenment*. 
 
 Before this, you have to come back [to] the fact of human feeling, human *warmness*. You feel pensive when the flower falls. This is alright. *[He chuckles slightly.]* But an important point is: you cannot ignore the feelings, you cannot ignore the human warmness, whatever kind of emotions. You cannot. So anyway, return to human life again, and then pay attention to it. [That] means don’t be carried away so much, but don’t stay with it, whatever it is. 
 

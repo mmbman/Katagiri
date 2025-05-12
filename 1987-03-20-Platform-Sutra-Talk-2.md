@@ -37,7 +37,7 @@ I think *prajna* can be considered in terms of three points.
 
 One point is the *essence* of prajna, the essence of wisdom. The essence of wisdom is [that] the self nature is originally pure and clean. This is the essence of *prajnaparamita*.
 
-And the *function* of prajnaparamita is... how can I say it. In *Fukanzazengi,* Dogen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajna. 
+And the *function* of prajnaparamita is... how can I say it. In *Fukanzazengi,* Dōgen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajna. 
 
 [...] The essence of prajna is [that] the self nature is originally clean and pure, that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to the original nature of existence, it simultaneously illuminates. If you come back, *you* illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn [around]. That is *illuminate*.
 
@@ -47,7 +47,7 @@ Well, there are many kinds of experience. Some experience this very slowly, very
 
 Some experience a *big* shock, you know? Like thunder, lightning, exactly. Zen teaching is always talking about such experience, fascinating experience. But not everyone [experiences this], okay? 
 
-So, many kinds of experience. But more or less, people can turn over their lives 180 degrees, if you really come back to original nature. That is how; this is [the] zazen we do. That is [the] “turn your light inwardly to illuminate yourself” that Dogen Zenji mentions in [*Fukanzazengi*]. Is that clear?
+So, many kinds of experience. But more or less, people can turn over their lives 180 degrees, if you really come back to original nature. That is how; this is [the] zazen we do. That is [the] “turn your light inwardly to illuminate yourself” that Dōgen Zenji mentions in [*Fukanzazengi*]. Is that clear?
 
 #### 7:48
 
@@ -113,7 +113,7 @@ Hell exists. Do you understand this story?
 
 If you doubt, doubt simultaneously [causes] confusion, bewilderment to exist. So that is confusion. That’s why nondualism is not a teaching which makes you *blind*, because nondualism takes you to the real nature of existence which is pure and clean. So you have to use your knowledge through and through; otherwise, you become blind. You have to use your knowledge through and through, and go deeply into *human beings*. And then, if you explore *human beings* thoroughly, then something compels you to turn over at one hundred eighty degrees. It’s not your business. When you reach the terminal station, [it’s] not your business. Something compels you to go somewhere; you cannot stay there. So immediately you turn over. 
 
-So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that [means], it’s not your business – [it’s] universal business. That’s why Dogen Zenji [says], “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.”
+So very naturally, nondualism is not a teaching which makes you blind, but which makes your knowledge clearer and clearer. And then that is wisdom, and then wisdom causes your life to turn over at 180 degrees. So that [means], it’s not your business – [it’s] universal business. That’s why Dōgen Zenji [says], “You throw away your body and mind to the Buddha’s home, and then you are drawn in by Buddha, and without using your effort, you participate in Buddha’s world.”
  
 For instance, if you sit down here, whatever your mind is thinking, well, as long as you are sitting right in the middle of zazen, zazen takes you, always. Zazen takes you to zazen.
 
@@ -217,7 +217,7 @@ This is the meaning of vastness. Or *eternity*, we say. Or if you really touch t
 
 So faith is what? Faith is very pure, and clean... *limpid*, like clear water, to the bottom. So *manifest* this. That is faith. 
 
-Dogen Zenji always [talks about] this: When you want to practice the buddha way, you should believe that there is no confusion, no delusions, no misunderstanding: you are already amply present in the dharma world. 
+Dōgen Zenji always [talks about] this: When you want to practice the buddha way, you should believe that there is no confusion, no delusions, no misunderstanding: you are already amply present in the dharma world. 
 
 You should believe this. *Belief* is not to make you “blind,” I always [say]. Buddhist belief is [that] you have to still go deep into the bottom of existence. Using your knowledge, and using your body ...
 
@@ -285,7 +285,7 @@ This is called *wisdom*. Or, this is called *emptiness*.
 
 > The myriad dharmas are within the nature of all people. If you regard all people, the bad as well as the good, without grasping or rejecting, without producing a defiling attachment, your mind will be like empty space. Therefore it is said to be ‘great,’ ‘Maha.’”
 
-Dogen Zenji [says], “You shouldn’t hate life and death; you shouldn’t love nirvana. You must be free from life and death, you must be free from nirvana.” But it doesn’t mean ignoring nirvana; it’s not ignoring life and death. So, “you must be free from life and death and nirvana” means you yourself must be generous, magnanimous, beyond the concept of life and death which you have thought, or beyond the concept of nirvana which you have thought. You must be generous and compassionate, tolerant. Take a deep breath. Don’t judge immediately. Don’t be ... indulgent, lazy. 
+Dōgen Zenji [says], “You shouldn’t hate life and death; you shouldn’t love nirvana. You must be free from life and death, you must be free from nirvana.” But it doesn’t mean ignoring nirvana; it’s not ignoring life and death. So, “you must be free from life and death and nirvana” means you yourself must be generous, magnanimous, beyond the concept of life and death which you have thought, or beyond the concept of nirvana which you have thought. You must be generous and compassionate, tolerant. Take a deep breath. Don’t judge immediately. Don’t be ... indulgent, lazy. 
 
 Well, in Soto Zen, we say, “Just sit down; that’s enough.” That is really lazy. *[He laughs.]* Or, that’s why the other school says, “Attain enlightenment! If you don’t, you are not a good student of Zen!” So there is another technique which is giving blows [on] your hip, just like a cow or horse, you know, to get enlightenment. On the other hand, Soto Zen says, “Sit down, that’s enough.” Both are not *right* understanding of the buddha way. 
 

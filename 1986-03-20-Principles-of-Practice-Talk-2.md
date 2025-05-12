@@ -31,11 +31,11 @@ So let me [talk about] *bodhicitta* today.
 
 #### 05:10
 
-In *Gakudō-yōjinshū*, “Points to Watch in the Buddhist Training,” page 48 of the book *Zen Master Dogen*, he said first of all:
+In *Gakudō-yōjinshū*, “Points to Watch in the Buddhist Training,” page 48 of the book *Zen Master Dōgen*, he said first of all:
 
 > The Bodhi-mind is known by many names; but they all refer to the One Mind of the Buddha. The Venerable Nagarjuna said, “The mind that sees into the flux of arising and decaying and recognizes the transient nature of the world is also known as the Bodhi-mind.” Why, then, is temporary dependence on this mind called the Bodhi-mind? When the transient nature of the world is recognized, the ordinary selfish mind does not arise; neither does the mind that seeks for fame and profit.
 >
-> (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
+> (From *Zen Master Dōgen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
 This is number one of the *Gakudō-yōjinshū*; the title is “The Need to Awaken to the Bodhi-Mind,” or to arouse bodhi-mind.
 
@@ -49,7 +49,7 @@ There is a problem, that it is difficult for us to see [clearly the] relation be
 
 So “arousing the bodhi-mind” means arousing or awakening to the enlightened being, awakening to the truth that all are in the state of enlightened being, or, awaken to the truth that all are Buddha. This is to arouse the bodhi-mind or to awaken to the bodhi-mind. 
 
-That’s why Dogen Zenji also says, “The bodhi-mind is known by many names but they all refer to the one-mind of the Buddha.” So “one-mind of the Buddha.” The *one-mind of the Buddha* means the Buddha only.
+That’s why Dōgen Zenji also says, “The bodhi-mind is known by many names but they all refer to the one-mind of the Buddha.” So “one-mind of the Buddha.” The *one-mind of the Buddha* means the Buddha only.
 
 The [word] *bodhicitta* – *citta* is the mind, but [this] mind is not individual mind, this mind is universal mind, universal life, open to all kinds of beings. That is called Mind, with a capital M! This is the Mind of the bodhi-mind. And this mind is exactly a state of enlightenment, because this mind is only one-mind, penetrating to all sentient beings. So this is one-mind. 
 
@@ -63,7 +63,7 @@ Usually *bodhi-mind* is translated in English [as] “the way-seeking mind.”
 
 I think *way-seeking mind* means kind of aspiration for seeking something... aspiration for the big mind. That is the way-seeking mind. The aspiration for the Way, or aspiration for the Big Mind. So constantly we try to keep this aspiration for the Big Mind and the Way – based on the truth [that] all are Buddha. 
 
-In the *Record of Things Heard*, Book 2, Number 14, Dogen Zenji [talks] about *Bodhicitta*:
+In the *Record of Things Heard*, Book 2, Number 14, Dōgen Zenji [talks] about *Bodhicitta*:
 
 > “First is only that the aspiration of joyful longing be earnest. For example, suppose a person has a conscious desire to steal a precious jewel, a desire to defeat a powerful enemy, or a desire to embrace a distinguished beauty; while traveling, abiding, sitting and reclining, in the midst of affairs as they pass, though various different events come up, he goes along seeking an opening, his mind occupied [with his quest]...”
 >
@@ -71,17 +71,17 @@ In the *Record of Things Heard*, Book 2, Number 14, Dogen Zenji [talks] about *B
 
 So *to arouse* bodhi-mind is [that] you must be continually mindful of the truth that we are Buddha. Under all circumstances – walking, sitting, standing, reading, wherever you may go, or whatever kind of situation occurs in your life, favorable situation or unfavorable condition – we have to continually be mindful of this truth that we *all* are Buddha. “We” doesn’t mean only human beings. *All* are Buddha. 
 
-That is pretty difficult for us. Because we can practice the truth we are Buddha when we are under favorable conditions, but it’s very difficult for us to practice bodhi-mind under unfavorable conditions. But Dogen Zenji [says] that constantly we have to do it. 
+That is pretty difficult for us. Because we can practice the truth we are Buddha when we are under favorable conditions, but it’s very difficult for us to practice bodhi-mind under unfavorable conditions. But Dōgen Zenji [says] that constantly we have to do it. 
 
-This is not only the Buddhist practice: whatever you do, if you are really seriously seeking for something. Just like this example Dogen Zenji mentions, if you try to steal a jewel or a big amount of money from the bank. All day you have to think of it: how to steal it. So your life is completely occupied: money, jewel – constantly. 
+This is not only the Buddhist practice: whatever you do, if you are really seriously seeking for something. Just like this example Dōgen Zenji mentions, if you try to steal a jewel or a big amount of money from the bank. All day you have to think of it: how to steal it. So your life is completely occupied: money, jewel – constantly. 
 
-That’s Dogen Zenji says, “Though various different events come up, he goes along seeking an opening, his mind occupied with his quest.” This is called arousing the bodhi-mind. 
+That’s Dōgen Zenji says, “Though various different events come up, he goes along seeking an opening, his mind occupied with his quest.” This is called arousing the bodhi-mind. 
 
-Then Dogen Zenji says next:
+Then Dōgen Zenji says next:
 
 > “In this way, when the aspiration to seek the Way has become sincere, either during the period of sole concentration on sitting, or when dealing with illustrative examples of the people of olden times, or when meeting the teacher, when one acts with true aspiration, though [his aim] be high he can hit it, though it be deep he can fish it out.”
 
-And also Dogen Zenji says: 
+And also Dōgen Zenji says: 
 
 > “With this mind so forcefully earnest, there can be no failure of attainment.”
 
@@ -101,9 +101,9 @@ But in the spiritual world, we try to keep all things in peace and harmony. That
 
 #### 28:00
 
-Next, I think in order to arouse or awaken to the bodhi-mind, Dogen Zenji says we have to awaken [to impermanence], we have to [have insight into] impermanence – the truth [of] how transient the world is, how fragile human life is.
+Next, I think in order to arouse or awaken to the bodhi-mind, Dōgen Zenji says we have to awaken [to impermanence], we have to [have insight into] impermanence – the truth [of] how transient the world is, how fragile human life is.
 
-In Number 14 of Book 2 [of *Record of Things Heard*], Dogen Zenji also says:
+In Number 14 of Book 2 [of *Record of Things Heard*], Dōgen Zenji also says:
 
 > And to arouse this determination, it is necessary to earnestly contemplate the impermanence of the world.
 
@@ -115,7 +115,7 @@ This is the insight of impermanence. It’s not an idea we can try to think of. 
 
 Still we can see impermanence objectively: five *skandhas*. We understand intellectually. But we don’t touch directly how impermanent each of the five *skandhas* are. We don’t. We are always looking at impermanence objectively. 
 
-So that’s why Dogen Zenji says, “This task is not something which is to be considered as a temporarily described method of contemplation. It is not that you should invent something non-existent to think about. It is the truth in reality right before your eyes.” 
+So that’s why Dōgen Zenji says, “This task is not something which is to be considered as a temporarily described method of contemplation. It is not that you should invent something non-existent to think about. It is the truth in reality right before your eyes.” 
 
 [...] Impermanence means the truth that all are moving. Usually we say *change*, continuous change. So anyway, all are moving. Without exception, all are moving – including [both] physical and mental state of beings, all are moving. But all are not moving separately – all are moving interpenetrated, interconnecting with each other. This is moving, constantly moving. 
 
@@ -209,7 +209,7 @@ But people don’t know exactly. Always they ignore that first moment and are at
 
 But Buddha knows this. That’s why *impermanence* means how pitiable human beings are. That’s why constantly you have to be compassionate to all sentient beings. We always do it. 
 
-So impermanence [means] – simply speaking, according to everydayness – Dogen Zenji says you have to be compassionate, you have to give sympathy to *all*.
+So impermanence [means] – simply speaking, according to everydayness – Dōgen Zenji says you have to be compassionate, you have to give sympathy to *all*.
 
 Maybe tomorrow I would like to [talk about] *egolessness* more. Today, that’s all. Do you have questions?
 

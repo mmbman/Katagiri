@@ -123,7 +123,7 @@ Right in the middle of zazen you are merging with each other perfectly. That’s
 
 So take one step forward. Anyway, *take one step forward* is, maybe, master – without leaving any trace of *being* master. That’s why we don’t know who is the master. Who gives the reward? I don’t know. 
 
-That’s why, *who is the master* – no. So *Lotus Sutra* or Dogen Zenji says, “Buddha knows.” Only buddha knows what the buddha is. Only buddha knows what human suffering is. Only buddha knows the buddha’s world. 
+That’s why, *who is the master* – no. So *Lotus Sutra* or Dōgen Zenji says, “Buddha knows.” Only buddha knows what the buddha is. Only buddha knows what human suffering is. Only buddha knows the buddha’s world. 
 
 #### 24:23
 

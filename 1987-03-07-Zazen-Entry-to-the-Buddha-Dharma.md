@@ -17,11 +17,11 @@ Katagiri Roshi introduces a series of talks on the question-and-answer section o
 
 #### 0:00
 
-**Katagiri Roshi:** During the training *sesshin* starting this week, we [will] study the questions and answers which occur toward the end of *Bendōwa*, written by Dogen. In the first and second question, Dogen Zenji [talks about] how important zazen or Zen meditation is. The first question is:
+**Katagiri Roshi:** During the training *sesshin* starting this week, we [will] study the questions and answers which occur toward the end of *Bendōwa*, written by Dōgen. In the first and second question, Dōgen Zenji [talks about] how important zazen or Zen meditation is. The first question is:
 
 > [Question 1:] Now I have heard and understand the sublime merits of zazen...
 
-Before this question and answer Dogen Zenji [talks about] the sublimity of the practice of zazen. So that’s why it says here, “Now I have heard and understand the sublime merits of zazen...”
+Before this question and answer Dōgen Zenji [talks about] the sublimity of the practice of zazen. So that’s why it says here, “Now I have heard and understand the sublime merits of zazen...”
 
 > However, an unthinking person might have doubts and say, “There are many entrances to the Buddha Dharma, ...”
 
@@ -47,7 +47,7 @@ So this answer is very interesting.
 
 Question number two is, “Why is zazen alone the right entrance?” The answer is, [...] beyond doubt, Shakyamuni Buddha and ancestors, many buddhas, transmitted the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt, Buddha Shakyamuni and many buddhas and ancestors just accept the practice of zazen, and learn what the Buddha’s teaching is, what the universe is, what the peaceful life is. That’s why it is called *right entrance* – right entrance to the buddha-dharma, to the universe. Right entrance to get into the peaceful world. 
 
-In this case, I think the most important point is, in Zen Buddhism particularly, Dogen Zenji [talks] about right entrance. *Right* means that you have to learn something straightforward[ly], without artifice or design, without intention or purposes. 
+In this case, I think the most important point is, in Zen Buddhism particularly, Dōgen Zenji [talks] about right entrance. *Right* means that you have to learn something straightforward[ly], without artifice or design, without intention or purposes. 
 
 Let me say [it] like this. When you devote yourself to do something using your intention and will, consciousness, with a purpose, and then, if you continue to devote yourself to accomplish one thing you want to do, finally, you discover that there is no sign of intention and purpose, because your whole body and mind becomes one and they work together. 
 
@@ -79,17 +79,17 @@ That is zazen, anyway. Okay? Zazen.
 
 So, the next question is, how can you put yourself right in the middle of zazen, and then what can you learn?
 
-Then Dogen Zen says, “*Sanzen* is *zazen*.” *Sanzen* means to surrender to simplicity in life. This is *sanzen*, which is translated usually as “practice.” 
+Then Dōgen Zen says, “*Sanzen* is *zazen*.” *Sanzen* means to surrender to simplicity in life. This is *sanzen*, which is translated usually as “practice.” 
 
 So *practice* is to surrender to simplicity in life. Simplicity means that which is pretty neat and tidy, unsophisticated. Pretty simple – and also, within the simple manifestation of life, there is a rich quality of life there. It’s simple, but it’s not the simple you usually understand, but within the simplicity of your life, there are lots of rich, abundant qualities of human life. That is called *ripeness*. 
  
-So *sanzen* is *zazen*. How can you surrender to simplicity in life? Dogen Zenji [says], that is zazen. 
+So *sanzen* is *zazen*. How can you surrender to simplicity in life? Dōgen Zenji [says], that is zazen. 
 
 And then he says, zazen is *shinjin dotsuraku*, that means “casting off body and mind,” in other words “dropping off body and mind.” Or, he says, “Dullness and distraction are struck aside from the beginning.”
 
 Dullness and distraction are not something you try to remove. If you try to remove [them], you create more distraction and dullness. Because dullness and distractions are something that [is] created, produced, by your attitude, by your actions, activities – so, according to [...] conditional elements, conditional circumstances. So you don’t know how to be free from [them]. No matter how long you use techniques – psychologically, philosophically, or scientifically – you never get freedom from dullness and distraction. The moment when you feel freedom from dullness and distraction, immediately you are confused right in the middle of freedom of dullness and distraction. That’s why human beings constantly seek for the psychologist to let you be free from dullness and distractions. You know? You always feed the psychologist. *[He laughs.]* 
 
-So at the dropping off body and mind, if you do zazen, simultaneously the dullness and distractions are struck aside from the beginning. This is a key point of zazen. That’s why Dogen Zenji [says], “This is the essential art of zazen.”
+So at the dropping off body and mind, if you do zazen, simultaneously the dullness and distractions are struck aside from the beginning. This is a key point of zazen. That’s why Dōgen Zenji [says], “This is the essential art of zazen.”
 
 Let me say [more about] this one. What do [we] mean by “dropping off body and mind the moment when do zazen, the moment when you devote yourself in zazen”? Let me say it like this. 
 
@@ -137,7 +137,7 @@ Simple activity means using your consciousness and using your whole body with wh
 
 This is why that simple activity is important: in order to experience intimacy. Let me explain this once again. 
 
-Dogen Zenji explains about washing the robe in *Shōbōgenzō*: how you can wash the robe using [water with ashes]. In ancient time we didn’t have soap, so using [water with ashes]. I don’t want to explain this [way], I want to explain [using] your washing machine. 
+Dōgen Zenji explains about washing the robe in *Shōbōgenzō*: how you can wash the robe using [water with ashes]. In ancient time we didn’t have soap, so using [water with ashes]. I don’t want to explain this [way], I want to explain [using] your washing machine. 
 
 So, look at the washing machine. If you want to wash your dirty clothes, you have to put the dirty clothes in the washing machine, and also, next, the pure, clean water there. That is called the dualistic world: dullness, distractions, and good or bad, right and wrong; the phenomenal world. 
 
@@ -193,7 +193,7 @@ So, all we have to do is to practice zazen with total activity, which is simple,
 
 And then, you can see the nightmares, fears, and many things. But if you always concentrate on these activities, distractions [are] coming up, but they turn into not-distractions, because always that moving makes it something different. Just like a washing machine. 
 
-So, you don’t believe that if you sit down exactly, dullness and distraction are struck aside from the beginning, [as Dogen Zenji says]. But that is called the unique way to participate in peaceful, harmonious, spiritual life. Otherwise, no way. No way. 
+So, you don’t believe that if you sit down exactly, dullness and distraction are struck aside from the beginning, [as Dōgen Zenji says]. But that is called the unique way to participate in peaceful, harmonious, spiritual life. Otherwise, no way. No way. 
 
 How do you do this? You have to just emulate this practice. Imitate, as exactly what the ancestors and buddhas have done. You have to do it. And then, you can really deepen your life, and that practice makes your life ripe. 
 
@@ -203,7 +203,7 @@ So, who is Katagiri? Katagiri is Katagiri. Finally, what do you mean? Katagiri c
 
 *[Tape change.]*
 
-... and Dogen Zenji says here, “This is called right entrance to the Buddha Dharma.” Right entrance to participate in peaceful and harmonious human life.
+... and Dōgen Zenji says here, “This is called right entrance to the Buddha Dharma.” Right entrance to participate in peaceful and harmonious human life.
 
 Do you have questions? 
 
@@ -249,7 +249,7 @@ That’s why we do zazen. Zazen is simple!
 
 **Katagiri Roshi:** I *hope*! *[Laughter.]* But don’t *expect* [it]. Because it’s not your business. [It’s] universal business. 
 
-That’s why Dogen Zenji says, “You throw away yourself into the Buddha’s world, then you are drawn in by Buddha’s world, without using your effort.” 
+That’s why Dōgen Zenji says, “You throw away yourself into the Buddha’s world, then you are drawn in by Buddha’s world, without using your effort.” 
 
 Because, climbing the mountain, in the beginning you use intention and purpose, [...] lots of complicated procedure. But the more you devote yourself into the rock mountains, finally you forget yourself, you go beyond time, and finally between the rock mountain and you, [there is] very nice communication, kind of energies. And then finally, even though you don’t use any effort, you just climb the mountain. 
 

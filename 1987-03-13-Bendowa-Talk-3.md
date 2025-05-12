@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 3"
+title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 3"
 ---
 ## March 13, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -34,7 +34,7 @@ precept-keeping, perseverance, assiduity, meditation, and wisdom.
 
 “Donation” is giving, *dana*. *Sila*, precepts. And perseverance: patience or perseverance. *Assiduity*, that is *effort*, [*vīrya*]. And meditation, zazen, and wisdom. Those are the six *paramitas*, as Buddhist practice in Mahayana Buddhism. 
 
-So the question here asks, why [does] Dogen Zenji emphasize particularly zazen alone, *dhyana* or *samadhi*, separated from the rest of three learnings and rest of the six *paramitas*? 
+So the question here asks, why [does] Dōgen Zenji emphasize particularly zazen alone, *dhyana* or *samadhi*, separated from the rest of three learnings and rest of the six *paramitas*? 
 
 Because these questions are always paying attention to only one thing, so-called *dhyana* or *samadhi*, meditation, separate from the rest of the things. So [in the question] they take one, *dhyana*, and pay attention to it and deal with it particularly, separate from the rest of the things. So that’s why [...] the question here is already questionable, because already they deal with one thing particularly, separate from others. 
 
@@ -42,23 +42,23 @@ But strictly speaking, if you deal a practice as a whole – *practice* means a
 
 Particularly [what we call the] reality we live in from moment to moment is consciously very vague, but strictly speaking it is very clear, because all beings work together and create one thing. So it’s very clear, but intellectually it’s very vague, because it’s very difficult to analyze, to separate from others. 
 
-Our life is always going on right in the midst of that reality. Intellectually, if you explain the Buddhist practice, I think we can explain Buddhist practice as the three learnings. But this is nothing but the Buddhology – Buddhist studies. So separately you can explain what the *sila* is, why it is necessary for us, and also *wisdom*, and *dhyana*; you can deal with it separately. [But] that is already questionable. That’s why Dogen Zenji points out what is the significance of the zazen we do.
+Our life is always going on right in the midst of that reality. Intellectually, if you explain the Buddhist practice, I think we can explain Buddhist practice as the three learnings. But this is nothing but the Buddhology – Buddhist studies. So separately you can explain what the *sila* is, why it is necessary for us, and also *wisdom*, and *dhyana*; you can deal with it separately. [But] that is already questionable. That’s why Dōgen Zenji points out what is the significance of the zazen we do.
 
 In the last sentence he says, “You may know without doubt that this zazen is the absolute way of the buddha-dharma.” In the original text it’s called *zen do*. *Zen* means integrated, or complete, or whole. And *do* is a way, or sometimes utterance – but *way* is fine. So, what would you say, *the integrated way* or *the whole way* of the buddha-dharma. That means the whole spirit of the buddha-dharma, the integrated spirit of Buddhist teaching. Not the one thing picked by somebody, or some idea picked among many Buddhist teachings. 
 
-If you research Buddha’s teaching, you can analyze the *Agamas*, *Abhidharmas*, and *Avatamsaka Sutras*, *Madhyamakas*, and many teachings there. But Dogen Zenji tries to present the whole or integrated spirit of the Buddha’s teaching, which has been handed down from generation to generation. That is a key point. That’s why Dogen Zenji says the point which he is speaking of is the integrated spirit of Buddhism, not the particular teaching called “ the Zen sect.” 
+If you research Buddha’s teaching, you can analyze the *Agamas*, *Abhidharmas*, and *Avatamsaka Sutras*, *Madhyamakas*, and many teachings there. But Dōgen Zenji tries to present the whole or integrated spirit of the Buddha’s teaching, which has been handed down from generation to generation. That is a key point. That’s why Dōgen Zenji says the point which he is speaking of is the integrated spirit of Buddhism, not the particular teaching called “ the Zen sect.” 
 
-So Dogen Zenji doesn’t like so much [the idea of] particular denominations. Even the Zen school, even the Buddha Mind school, whatever you say, Dogen Zenji tried to avoid a particular name, the appellation called “Zen sect,” et cetera, because he constantly presents the total picture, the whole spirit of Buddha’s teaching. That’s why finally his teaching must go back to Buddha’s teaching, what the Buddha’s teaching is like.
+So Dōgen Zenji doesn’t like so much [the idea of] particular denominations. Even the Zen school, even the Buddha Mind school, whatever you say, Dōgen Zenji tried to avoid a particular name, the appellation called “Zen sect,” et cetera, because he constantly presents the total picture, the whole spirit of Buddha’s teaching. That’s why finally his teaching must go back to Buddha’s teaching, what the Buddha’s teaching is like.
 
 In his answer, he mentions from where the appellation “Zen sect” comes. [He says that] since Bodhidharma came to China and practiced zazen at the Shaolin temple for nine years, people unthinkingly or not knowing the true circumstances put a certain name on the teaching of Bodhidharma, called “Zazen sect” or “Zen sect,” because Bodhidharma always was sitting. That is very clear, because the many recorded sayings of patriarchs already [spoke] about this. So the name of “Zen sect” is based on very – what would you say – not stable resources, not definite or clear resources. 
 
 Many among the ignorant people put a name on it. For instance, in the United States we say “Zen student”: because you do zazen, and study zazen and Zen Buddhism, that’s why people call you “Zen student.” That is naturally people put the name on you. But it doesn’t come from a definite and clear resource. 
 
-So that’s why Dogen Zenji says here, “At present the word *za* has been dropped and we speak of ‘Zen sect.’ Its essence is made clear in the recorded sayings of the patriarchs.” [This] zazen shouldn’t be equated with the *dhyana* or *samadhi* of the six *paramitas* or three learnings, because [that] is just a teaching in words, talking about what the Buddhist practice is. And so the Buddhist practice is separated or divided into three points, *sila*, *wisdom*, and *dhyana*, but that *dhyana* is completely different from the *dhyana* Dogen Zenji [talks about], because the *dhyana* Dogen Zenji [talks about] implicates or brings on the total, whole spirit of the Buddha’s teaching, including wisdom, *sila*, and *dhyana*. If you practice *dhyana*, very naturally you can bring on the precepts and [wisdom]. In other words precepts and wisdom should be included. 
+So that’s why Dōgen Zenji says here, “At present the word *za* has been dropped and we speak of ‘Zen sect.’ Its essence is made clear in the recorded sayings of the patriarchs.” [This] zazen shouldn’t be equated with the *dhyana* or *samadhi* of the six *paramitas* or three learnings, because [that] is just a teaching in words, talking about what the Buddhist practice is. And so the Buddhist practice is separated or divided into three points, *sila*, *wisdom*, and *dhyana*, but that *dhyana* is completely different from the *dhyana* Dōgen Zenji [talks about], because the *dhyana* Dōgen Zenji [talks about] implicates or brings on the total, whole spirit of the Buddha’s teaching, including wisdom, *sila*, and *dhyana*. If you practice *dhyana*, very naturally you can bring on the precepts and [wisdom]. In other words precepts and wisdom should be included. 
 
 It goes without saying that it is necessary for us to practice *sila* or precepts – of course it is necessary. But if you practice *sila* or precepts, precepts shouldn’t be separate from *dhyana* or wisdom. The practice of *sila* should be backed by wisdom and *dhyana*, meditation, otherwise *sila* doesn’t make sense, or *sila* doesn’t work in our everyday life. If we practice *sila* in our everyday life, very naturally, wisdom and *dhyana* should be included. 
 
-So constantly the *dhyana* that Dogen Zenji presents [is] zazen as a whole.
+So constantly the *dhyana* that Dōgen Zenji presents [is] zazen as a whole.
 
 #### 21:47
 
@@ -72,11 +72,11 @@ Well, you know this story pretty well. I think in the note he says:
 
 So it is said that story is the beginning of Zen dharma transmissions. 
 
-[...] In other words, Dogen Zenji tried to give historical proof. If we don’t understand something now, I think we should learn the historical proof – we have to follow the historical events. In other words, I mentioned the other day that we have to emulate the historical customs [...] fabricated by humans. 
+[...] In other words, Dōgen Zenji tried to give historical proof. If we don’t understand something now, I think we should learn the historical proof – we have to follow the historical events. In other words, I mentioned the other day that we have to emulate the historical customs [...] fabricated by humans. 
 
 [For example], if you want to be a barber, very naturally you have to imitate what the ancestors did; you have to emulate and imitate the practice presented by ancestors. This is called *learning*; we have to learn something. [...] Because even though you think about [being a barber] with your intellectual sense, you don’t understand what [being a] barber means, how people trust you as a barber. We don’t understand it. So finally, if you want to command respect from people, you have to follow the ancestors’ way, and emulate it, and practice. [Then] naturally people trust you, and naturally people call you barber. 
 
-So that’s why Dogen Zenji returned to the beginning of the history, the beginning of dharma transmission in the Zen tradition. That’s why he says it like this. 
+So that’s why Dōgen Zenji returned to the beginning of the history, the beginning of dharma transmission in the Zen tradition. That’s why he says it like this. 
 
 And also he says:
 
@@ -86,7 +86,7 @@ It means there are many devas [and] there are some devas who participated in tha
 
 According to Buddha’s eye, I think eternal time is nothing but the moment. So from this point, I think it is possible for us to see the devas [...] who participated in that ceremony and exist in this world. Well, practically speaking, I think that spirit of the Buddha transmitted to Mahakasyapa has been existent from the ancient time up to now, transmitted from from one ancestor to another. So very naturally, Mahakasyapa knows what the significance of the Buddha’s teaching is, and then Ananda became the successor of Mahakasyapa, who knows exactly the significance of Buddha’s teaching. So from generation to generation, each ancestor accepted [and] received the true significance of the Buddha’s teaching. So from this point, I think we still know. Even [in the] 21st century, I think somebody knows what what the true significance of Buddha’s teaching is. [So] I think we can participate. [That means] we can prove that ceremony is really true, saying [so] from the depth of spiritual life, very naturally. So from this point I think our practice should be protected, or watched over, by many devas, many guardians, and many sentient beings. Otherwise, you cannot continue to practice. 
 
-So that’s why Dogen Zenji [says] here:
+So that’s why Dōgen Zenji [says] here:
 
 > Some among the deva multitude now present in the heavens actually witnessed the ceremony. Therefore there is no reason for any doubt. The Buddha Dharma as a matter of course is forever protected and maintained by the deva multitude. Their efforts never slacken.
 
@@ -100,7 +100,7 @@ It is not a matter of discussion intellectually, but [rather] it is matter of pr
 
 #### 33:16
 
-So very naturally, Dogen Zenji [states] in the beginning of *Bendōwa* [...] the key point of the zazen we are practicing. In the first paragraph, Dogen Zenji says:
+So very naturally, Dōgen Zenji [states] in the beginning of *Bendōwa* [...] the key point of the zazen we are practicing. In the first paragraph, Dōgen Zenji says:
 
 > Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi*, which is its touchstone.
 
@@ -124,7 +124,7 @@ But this is still a little bit the dualistic world, because there is a person wh
 
 *[Tape change.]*
 
-... to see the buddha-nature is to maintain equally *dhyana* and wisdom. So to see Buddha, to see into the buddha-nature [...] means that your life must be alive as a whole, vividly. According to Dogen’s term it is called *jijiyu samadhi*. *Jijiyu samadhi* is that the self becomes the self and gives life to it and settles in the self. That means the self must be really alive, vividly, in zazen – before any separation between. 
+... to see the buddha-nature is to maintain equally *dhyana* and wisdom. So to see Buddha, to see into the buddha-nature [...] means that your life must be alive as a whole, vividly. According to Dōgen’s term it is called *jijiyu samadhi*. *Jijiyu samadhi* is that the self becomes the self and gives life to it and settles in the self. That means the self must be really alive, vividly, in zazen – before any separation between. 
 
 That means zazen is exactly something like a leaping fish, always working. So self is also working together vividly. So to see into buddha-nature means you have to deal with your zazen, you have to deal with your mind and body, which are both working, alive, vividly. 
 
@@ -144,9 +144,9 @@ So zazen is not the same as the *dhyana* of the three learnings, et cetera, beca
 
 So, very naturally you need *wisdom* in zazen, because wisdom is... not knowledge... wisdom is *resolution*, or *steadfast determination*, coming from the depth of your heart, [saying,] “I will do.” Okay? This is wisdom. Wisdom cuts off entanglement around some event [you are faced with]. Lots of entanglements there, and then wisdom cuts off those entanglements, and then immediately: “I will do.” That is wisdom. But understanding, knowledge, is always analyzing, trying to understand what the entanglements are, and how can we cut off that stuff, using techniques. That is knowledge. But wisdom is *exactly* cut off, right now: “Yes, sir. I will do it.” That is wisdom. Okay? So very naturally, in zazen you need wisdom.
 
-And also we need the precepts or disciplines. When you do zazen, very naturally there are lots of procedures you have to go through: postures, breathing, and also your mind, and circumstances, and meals, sleep... There are lots of complicated procedures you have to go through. And then, nevertheless, your body, your mind, shouldn’t be distracted. How? You can maintain your mind and maintain your breath, in peace and harmony, by your wisdom, and *dhyana*, and *sila*, beyond your speculation. This is called *jijiyu samadhi*. Dogen Zenji says zazen *is* jijiyu samadhi. 
+And also we need the precepts or disciplines. When you do zazen, very naturally there are lots of procedures you have to go through: postures, breathing, and also your mind, and circumstances, and meals, sleep... There are lots of complicated procedures you have to go through. And then, nevertheless, your body, your mind, shouldn’t be distracted. How? You can maintain your mind and maintain your breath, in peace and harmony, by your wisdom, and *dhyana*, and *sila*, beyond your speculation. This is called *jijiyu samadhi*. Dōgen Zenji says zazen *is* jijiyu samadhi. 
 
-And then we chant *Jijiyu Zanmai* in the noon service. That is the contents or quality of *jijiyu samadhi*: what happens in *jijiyu samadhi*’s world. So Dogen Zenji talks about *jijiyu samadhi*, what’s going on in the world of *jijiyu samadhi*. It’s really amazing. You don’t believe it, but it is just like an orchestra. If you [recite] that *Jijiyu Zanmai* at the noon service, I think you’re always creating a big orchestra, music. Many beings are there creating a wonderful musical world. So that is contents or quality of *jijiyu samadhi*, if you do zazen. That’s why if you do zazen even for a moment with sincere heart, with wholeheartedness, there are [rewards] exactly, there is progress there.
+And then we chant *Jijiyu Zanmai* in the noon service. That is the contents or quality of *jijiyu samadhi*: what happens in *jijiyu samadhi*’s world. So Dōgen Zenji talks about *jijiyu samadhi*, what’s going on in the world of *jijiyu samadhi*. It’s really amazing. You don’t believe it, but it is just like an orchestra. If you [recite] that *Jijiyu Zanmai* at the noon service, I think you’re always creating a big orchestra, music. Many beings are there creating a wonderful musical world. So that is contents or quality of *jijiyu samadhi*, if you do zazen. That’s why if you do zazen even for a moment with sincere heart, with wholeheartedness, there are [rewards] exactly, there is progress there.
 
 #### 55:17
 
@@ -302,7 +302,7 @@ Is that okay?
 
 **Question:** Roshi? So, it seems like in your presentation, the discussion seems to be talking about integrated activity versus conceptualization. We won’t talk about *dhyana* separated, but you describe the activity of zazen [...] But I don’t hear you saying anything that makes the activity of zazen different than the activity of bowing, different than the activity of walking, or chanting. I don’t hear you explain why we only do zazen.
 
-**Katagiri Roshi:** And that’s why zazen is a *form* of zazen. If you see the zazen in terms of form, [...] there are many other forms opposed to zazen forms. But the *jijiyu samadhi* is the *contents* of that form of zazen, or quality of zazen. That is called *activity*, very undefiled activities. That is a point Dogen Zenji talks about. 
+**Katagiri Roshi:** And that’s why zazen is a *form* of zazen. If you see the zazen in terms of form, [...] there are many other forms opposed to zazen forms. But the *jijiyu samadhi* is the *contents* of that form of zazen, or quality of zazen. That is called *activity*, very undefiled activities. That is a point Dōgen Zenji talks about. 
 
 And then, if you do zazen like this, very naturally you can touch the quality of zazen regarded as a form. That quality is universal. Even though you walk, and you sit, and you stand, I think there is [that quality], that is very universal. And then from that universal state, I think according to the conditional situation, it appears as a certain form – sometimes standing, sometimes walking, something like that. There are many forms, but I think they must be supported by something more than form. That is called *undefiled activity*, or *practice*. So-called *emptiness*, we say – “Form is emptiness, emptiness is form,” in *Prajnaparamita* [*Sutra*]. 
 

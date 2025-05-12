@@ -45,9 +45,9 @@ Anyway. I don’t know which is my home, but I am coming back. I am already in t
 
 This time, when I [went] back [to Japan], I felt many things [about] Buddhism in Japan [and] the United States. [...] There are lots of things I would have to think [about]; how [...] I should deal with Buddhism in the United States or in Japan. I don’t know exactly what to do. But very naturally I realized that there are many problems, many questions, in American Buddhism. But not only in American Buddhism – in Japanese Buddhism, too. 
 
-Dogen Zenji continually mentions *bendo*, [which] means literally “transaction of the way,” or, what would you say... *bendo* is usually translated as “practice,” but *bendo* is something more than practice, because [it is] something you have to do, practically. So *bendo* means literally “transaction of the way,” or sometimes people translate it as “negotiation with the way.” But [this] transaction of the way or negotiation of the way means to expend one’s every possible effort or energy into the way. Constantly the focus of your effort or energy should be on the way. 
+Dōgen Zenji continually mentions *bendo*, [which] means literally “transaction of the way,” or, what would you say... *bendo* is usually translated as “practice,” but *bendo* is something more than practice, because [it is] something you have to do, practically. So *bendo* means literally “transaction of the way,” or sometimes people translate it as “negotiation with the way.” But [this] transaction of the way or negotiation of the way means to expend one’s every possible effort or energy into the way. Constantly the focus of your effort or energy should be on the way. 
 
-So Dogen Zenji [says that] this *bendo* shouldn’t be seen in terms of life and death, but life and death should be in terms of *bendo*. This is a very important point [that] Dogen Zenji mentions. 
+So Dōgen Zenji [says that] this *bendo* shouldn’t be seen in terms of life and death, but life and death should be in terms of *bendo*. This is a very important point [that] Dōgen Zenji mentions. 
 
 Buddhism is nothing but religion, but I don’t know the meaning of this term *religion* in English. But anyway... well, let me say [that] Buddhism is religion in the common sense. So if Buddhism is religion, Buddhism [should be something giving] perfect peace or harmony to human beings. This *human being* shouldn’t be considered in the realm of human desires, but [rather] this human being should be considered in terms of the equal level of all sentient beings, including trees, birds, et cetera. At that time, human beings can live in peace and harmony.
 
@@ -67,13 +67,13 @@ And then somebody says Buddhism in the United States is *best*, rather than Budd
 
 But this time [travelling back to Japan,] I felt [that] Buddhism in United States, Buddhism in Japan [are] no different. The same. 
 
-So that’s why Dogen Zenji [says] that from generation to generation, the buddha way, or *bendo* – *bendo* means expending your every possible effort toward the Way. The Way means beyond human desires, okay? There is a Way, which [is] feeding you always perfect peace or perfect harmony there, even though you don’t understand. So all we have to do is to expend our every possible effort or energy toward that. 
+So that’s why Dōgen Zenji [says] that from generation to generation, the buddha way, or *bendo* – *bendo* means expending your every possible effort toward the Way. The Way means beyond human desires, okay? There is a Way, which [is] feeding you always perfect peace or perfect harmony there, even though you don’t understand. So all we have to do is to expend our every possible effort or energy toward that. 
 
 For this, *bendo* shouldn’t be seen in terms of life and death. Completely opposite: it ought to be, rather, completely reversed. Life and death should be seen in terms of *bendo*. Do you understand that? It’s *very* important. 
 
 If you see the buddha way in terms of life and death, it means Buddhism is used for the sake of human desire: always checking, evaluating, whether Buddhism is useful or not. In other words, you’re always [pulled] Buddha’s way, or the Way, [which is] giving you perfect peace and harmony toward the human world. What is the human world? The human world is full of the attempt of satisfying human desires. In seems to be good, but on the other hand, [there are] lots of problems. So that’s why we want to practice zazen and we want to follow the Buddha’s way. Why do you practice Buddha’s way? 
 
-So that’s why Dogen Zenji [says] that *bendo* shouldn’t be seen in terms of life and death. If you see *bendo*, [the] buddha way, in terms of life and death, you always try to evaluate, judge, think [about] Buddhism, always checking whether Buddhism is useful or not. 
+So that’s why Dōgen Zenji [says] that *bendo* shouldn’t be seen in terms of life and death. If you see *bendo*, [the] buddha way, in terms of life and death, you always try to evaluate, judge, think [about] Buddhism, always checking whether Buddhism is useful or not. 
 
 At that time, such a Buddhism doesn’t last forever. 
 
@@ -85,7 +85,7 @@ It seems to me that *peace* means perfect harmony. *Perfect harmony* means the h
 
 Harmony is not to shake each-other’s hand [and say,] “Good morning. You are a good boy, you are a good friend,” et cetera. That is also harmony, but it doesn’t last for long. So we have to shake hands, [but] what kind of hand should we shake? It’s not the human hands. We have to shake with the universal hands. 
 
-So that’s why Dogen Zenji [says] that life and death should be seen in terms of *bendo*. 
+So that’s why Dōgen Zenji [says] that life and death should be seen in terms of *bendo*. 
 
 That means that there is a sense of negation of human beings, human desires. You cannot always satisfy your desires. If you want to satisfy your desires, I don’t think it’s necessary to practice the buddha way, you know? Or religions [in general]. Why [would] you practice religions? In the usual world, there are lots of things which make your life satisfactory. So [you’d be better practicing] other things, rather than Buddhism or religion. 
 
@@ -175,7 +175,7 @@ That’s pretty good, you know?
 
 **Katagiri Roshi:** [...] Yes it is. 
 
-The practice of zazen is to make you forget all worldly affairs. That’s why in *Fukanzazengi*, Dogen Zenji [says], “Throw away all affairs.” Even good and bad, right and wrong – anyway, sit down. This is the total picture of zazen; just like a tea ceremony. 
+The practice of zazen is to make you forget all worldly affairs. That’s why in *Fukanzazengi*, Dōgen Zenji [says], “Throw away all affairs.” Even good and bad, right and wrong – anyway, sit down. This is the total picture of zazen; just like a tea ceremony. 
 
 So the tea ceremony is... what would you say... the artistic expression of religion. *Not* the religious expression of art. Do you understand that difference?
 
@@ -215,13 +215,13 @@ You must be a puppet, in a sense. But if you become a puppet, it’s not a puppe
 
 So you have to deal with a puppet in toilet paper, but toilet paper is not a real puppet you are dealing with. So toilet paper must be something you install your spirit into. At that time, toilet paper as a puppet really acts [on] the stage. That is called *beauty of the puppet show*. 
 
-That’s why Dogen Zenji always [talks about] not only doing zazen but everyday life, how to deal with everyday life. 
+That’s why Dōgen Zenji always [talks about] not only doing zazen but everyday life, how to deal with everyday life. 
 
 #### 2 - 12:28
 
 So while I [was] in Japan, [and] after coming back from Japan, I have to think [about] Buddhism in the United States again and again. I don’t know what to do; I cannot find *yet* [a] concrete aspect how to deal with [it]. But what I can tell you is, the Buddhism in the United States in Japan, which is always used for the sake of [attempting to satisfy] human desires – that’s why it’s growing big. But I don’t know if it is good or not. It’s really questionable. 
 
-That’s why Dogen Zenji [says] *bendo* mustn’t be seen in terms of life and death, your life and death must be seen in terms of *bendo*. So Buddhism mustn’t be seen in terms of life and death. Life and death must be seen in terms of [the] buddha way; perfect harmony. At that time, we have to consider Buddhist practice more seriously. So far, we haven’t considered Buddhist practice seriously, as a whole. 
+That’s why Dōgen Zenji [says] *bendo* mustn’t be seen in terms of life and death, your life and death must be seen in terms of *bendo*. So Buddhism mustn’t be seen in terms of life and death. Life and death must be seen in terms of [the] buddha way; perfect harmony. At that time, we have to consider Buddhist practice more seriously. So far, we haven’t considered Buddhist practice seriously, as a whole. 
 
 For instance, becoming a priest, or lay Buddhist: it’s questionable, anyway. We don’t know what to do, but I have to think about this. What’s the difference between becoming a priest or not becoming a priest? 
 
@@ -231,7 +231,7 @@ We say with the red rice, *sekihan* means red rice, used for the celebration of 
 
 So very naturally you become [*zazen-itis*]. *[There are a couple laughs.]* If you become [a zazenitist], it’s pretty difficult to get out from that, and you don’t understand what real zazen is. And on the other hand, if you always emphasize daily life, it’s also *daily-life-itis*. So you don’t understand why you practice zazen. 
 
-You have to think once more again about what daily life is. Zen students always emphasize daily life, but you should consider once again what the daily life is. Dogen Zenji [talks] in *Shōbōgenzō* about daily life. You can see it in the book *How to Raise an Ox*. The idea of everyday life Dogen Zenji mentions is completely different from [what] you have thought. *[He laughs.]* 
+You have to think once more again about what daily life is. Zen students always emphasize daily life, but you should consider once again what the daily life is. Dōgen Zenji [talks] in *Shōbōgenzō* about daily life. You can see it in the book *How to Raise an Ox*. The idea of everyday life Dōgen Zenji mentions is completely different from [what] you have thought. *[He laughs.]* 
 
 So lots of questions in Buddhism in the United States. And in Japan too. 
 

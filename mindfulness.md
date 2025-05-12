@@ -2,7 +2,7 @@
 title: "Mindfulness"
 ---
 
-In this series of talks, Katagiri Roshi explains *mindfulness* from the viewpoint of Zen Master Dogen. The talks discuss the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice,” or “The Thirty-Seven Factors of Bodhi”) chapter of *Shōbōgenzō*. These talks were given during a five-day *sesshin* in March, 1984.
+In this series of talks, Katagiri Roshi explains *mindfulness* from the viewpoint of Zen Master Dōgen. The talks discuss the first part of the *Sanjūshichi-bon-bodai-bunpō* (“Thirty-Seven Conditions Contributing to Bodhisattva Practice,” or “The Thirty-Seven Factors of Bodhi”) chapter of *Shōbōgenzō*. These talks were given during a five-day *sesshin* in March, 1984.
 
 This series might be seen as challenging, as it presents a view of mindfulness which is arguably quite different from how mindfulness is understood in mainstream culture. Specifically, some points to consider here might be: 
 
@@ -10,13 +10,13 @@ This series might be seen as challenging, as it presents a view of mindfulness w
 - Mindfulness is not exclusively focused on the self.
 - Mindfulness is not *narrowly* goal-oriented.
 
-For what mindfulness *is* according to Dogen, read on...
+For what mindfulness *is* according to Dōgen, read on...
 
 ---
 
 ##### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 
-Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dogen. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.” In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. 
+Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dōgen. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.” In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. 
 
 ---
 
@@ -40,5 +40,5 @@ Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-budd
 
 ##### [Mindfulness – Talk 5](1984-03-25-Mindfulness-Talk-5)
 
-Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dogen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication. This moment is a blank canvas. 
+Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dōgen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication. This moment is a blank canvas. 
 

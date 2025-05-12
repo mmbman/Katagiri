@@ -21,7 +21,7 @@ The point is, what is the mirror that the essence of human existence is reflecte
 
 I mentioned yesterday, if you look at your life, there are many kinds of mirrors, which is called *culture*. But if you want to practice spiritual life, I think we should know what the spiritual mirror is like. Even though you don’t have experience of this kind of mirror, as best as we can we try to *approach* to that mirror. What is it like? What structure? How is it working with us? So as best as we can, we try to approach to it.
 
-So that’s why I told you yesterday, according to *Kokyo*, “Ancient Mirror,” mentioned by Dogen. There were three points I mentioned. 
+So that’s why I told you yesterday, according to *Kokyo*, “Ancient Mirror,” mentioned by Dōgen. There were three points I mentioned. 
 
 First point is *co-existent place*. Ancient mirror is the *co-existent place* where all beings walk in peace, in harmony. Beyond races, thoughts, social position, personality, forms... all things. Beyond all things, where everything is reflected in that mirror. This is *co-existent place*. 
 
@@ -61,7 +61,7 @@ So that means the frame of the piece of wood breaks into pieces. In other words,
 
 So your five *skandhas*, your six senses, are liberated, originally. That’s why Dogon Zenji says *Zenki*, “The Whole Works,” he says, “all sentient beings are emancipation and total manifestation.” 
 
-So *total manifestation* is all things you can see through your eyes, ears, form of trees you can see. But what is manifested beings you can see through your six senses? Dogen Zenji mentions, they are originally liberated. So liberated beings manifested themselves as a form. Do you understand? 
+So *total manifestation* is all things you can see through your eyes, ears, form of trees you can see. But what is manifested beings you can see through your six senses? Dōgen Zenji mentions, they are originally liberated. So liberated beings manifested themselves as a form. Do you understand? 
 
 That’s why if your life is reflected in the ancient mirror, you become transparent. It means you’re working. Your life is really working with all sentient beings. If you always hold your frame, you never create circle; you are nothing but a piece of wood. 
 
@@ -131,7 +131,7 @@ So very naturally, we have to continually do it.
 
 **Katagiri Roshi:** Oh, oh, right. Thank you. *[He laughs.]*
 
-Yes. So, Zen teaching always tells you to deal with everyday life as a buddha. Even though you don’t understand, please do it. Because that practice is exactly a way to reflect your five *skandhas* in that spiritual ancient mirror, simultaneously. As [well as doing] zazen, exactly the same. But we don’t understand this. That’s why Dogen Zenji says like this, and also we have to talk about this. 
+Yes. So, Zen teaching always tells you to deal with everyday life as a buddha. Even though you don’t understand, please do it. Because that practice is exactly a way to reflect your five *skandhas* in that spiritual ancient mirror, simultaneously. As [well as doing] zazen, exactly the same. But we don’t understand this. That’s why Dōgen Zenji says like this, and also we have to talk about this. 
 
 So a little bit you don’t understand exactly what the point of the Zen teaching is. Usually through the book, Zen teaching is to find the solution of a *koan*, Zen puzzle. I don’t think it is real. Or you see that Zen is to attain enlightenment, this is the main purpose. I don’t think this is Zen. It is a *part* of Zen, okay? But not the whole.
 
@@ -345,7 +345,7 @@ But we always try to decide to be liberated. *[He laughs.]* It’s impossible.
 
 **Katagiri Roshi:** Uh-huh.
 
-**Questioner:** Okay. And Dogen makes three points. The first point is... that all beings are in this mirror?
+**Questioner:** Okay. And Dōgen makes three points. The first point is... that all beings are in this mirror?
 
 **Katagiri Roshi:** Mm-hm.
 

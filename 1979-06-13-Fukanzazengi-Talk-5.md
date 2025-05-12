@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 5"
+title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 5"
 ---
 ## June 13, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -22,7 +22,7 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 
 Gensha Shibi Zen Master used to be a fisherman. You may know the story: every day he went fishing with his father. One day, his father fell off the boat into the ocean, and Gensha Shibi tried to help, tried to save him, but he couldn’t, so his father died. At that time, Gensha Shibi attained [enlightenment](glossary#enlightenment), so he left the boat and he became a monk immediately after that.
 
-Then, in the history, Gensha Shibi Zen Master practiced under the guidance of Seppō, who was also one the outstanding Zen Masters in China. It is a very interesting story. According to *Shōbōgenzō*, written by Dogen, he finally went to Seppō mountain and placed himself under the guidance of Shinkaku – that is another name of Seppō Zen Master – practicing day and night. One day, he took up his traveling pouch and was leaving the mountain, to visit masters widely in other areas and perfect his practice. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails off his toes. Of course, immediately blood appeared, and he screamed, “Ouch!” And then, amidst the intense pain, he had an abrupt self-realization, saying, “This body doesn’t exist. Where is the pain coming from?” And he returned immediately to Seppō Zen Master.
+Then, in the history, Gensha Shibi Zen Master practiced under the guidance of Seppō, who was also one the outstanding Zen Masters in China. It is a very interesting story. According to *Shōbōgenzō*, written by Dōgen, he finally went to Seppō mountain and placed himself under the guidance of Shinkaku – that is another name of Seppō Zen Master – practicing day and night. One day, he took up his traveling pouch and was leaving the mountain, to visit masters widely in other areas and perfect his practice. On the way, all of a sudden he struck his toes on a rock, and he peeled the nails off his toes. Of course, immediately blood appeared, and he screamed, “Ouch!” And then, amidst the intense pain, he had an abrupt self-realization, saying, “This body doesn’t exist. Where is the pain coming from?” And he returned immediately to Seppō Zen Master.
 
 #### 5:14
 
@@ -30,7 +30,7 @@ Anyway, he struck his toe on a rock. Blood appeared; immediately he screamed; an
 
 This is sort of like watching a film. You can imagine this. He walked down the street. Right before he struck his toes, peeling the nails off the toes, he is walking; and immediately he stumbles, striking his toes on a rock. Then at that time, let’s imagine this one moment: nothing happens. Nothing. And then, the movie is going on: right after that, he screams. The screaming and striking his toes on the rock are simultaneous; but according to the time process, you can analyze it like this: before he struck his toe, and after he struck his toe. So we can see sort of a “film.”
 
-The scream is right after he struck his toe – a little gap there: previous moment, after moment, and following moment. According to our intellectual sense, it is simultaneous, we cannot see that [gap]; but actually, according to Dogen or the [Buddhistic](glossary#buddhistic) sense or modern physics, maybe the shortest period of time is a moment, but this moment consists of 60 instants. So, still there is a chance to see the film of what you are doing, what you have done, what the result is. So, that’s why he screams, “Ouch!”
+The scream is right after he struck his toe – a little gap there: previous moment, after moment, and following moment. According to our intellectual sense, it is simultaneous, we cannot see that [gap]; but actually, according to Dōgen or the [Buddhistic](glossary#buddhistic) sense or modern physics, maybe the shortest period of time is a moment, but this moment consists of 60 instants. So, still there is a chance to see the film of what you are doing, what you have done, what the result is. So, that’s why he screams, “Ouch!”
 
 He said, “From where does the pain come?” Striking his toes, there is no pain, because striking the toes is exactly dynamic working. Becoming one with the rock, becoming one with his toes, and ears, and the road, and his consciousness, and the whole body; and he stumbles – that’s all. So, all [delusions](glossary#delusion) completely drop off. Nothing.
 
@@ -94,7 +94,7 @@ But we don’t understand; that’s why we say, “Let’s accumulate merit and 
 
 #### 33:44
 
-Dogen Zenji really admired Gensha Shibi and Seppō Zen Master in this story. 
+Dōgen Zenji really admired Gensha Shibi and Seppō Zen Master in this story. 
 
 So, “Gensha said, ‘Bodhidharma didn’t come to the East. The Second Patriarch didn’t go to the West.’ This gained Seppō’s special praise.” Seppō praised Gensha, because Gensha really hit the bullseye. The bullseye, zazen itself, struck him, right in the middle of striking his toes. Before he sees his life *before* hitting or *after* hitting, he is really focused on right in the middle of hitting, striking his toes. That’s why there is nothing to cheat. From this point, Bodhidharma didn’t come to the East, or go to the West. No. When you say Bodhidharma went to China, that is something you understand in the time process, the dualistic world. All we have to do is focus on just right here. 
 
@@ -248,7 +248,7 @@ Well, the pain. During the zazen, you can feel pain physically. And also psychol
 
 **Katagiri Roshi:** No pain. *[He laughs.]* I’m sorry. No pain, no delusions. This is real zazen.
 
-That’s why Dogen Zenji says, “From the first, dullness and distractions are struck aside.” That means dropped off, from the first. Sort of like striking Gensha’s toes on the rock. Is that clear? You should understand *this*, okay?
+That’s why Dōgen Zenji says, “From the first, dullness and distractions are struck aside.” That means dropped off, from the first. Sort of like striking Gensha’s toes on the rock. Is that clear? You should understand *this*, okay?
 
 We get use out of looking at the *before* striking and *after* striking – that is very common. But we don’t pay attention to the striking *itself*. Striking itself is no striking, because no thought. From where does the idea of striking come? The idea comes as the result of you being present right in the middle of striking. At that time, no striking. Completely become one: rock, and your toes, and nails are completely *unified*.
 
@@ -480,7 +480,7 @@ For instance, I always tell you that talking like this, and doing zazen like the
 
 #### 1:34:28
 
-**Question:** Roshi? When Dogen says, “From the beginning, dullness and distraction are going,” what does he mean, “From the beginning”? 
+**Question:** Roshi? When Dōgen says, “From the beginning, dullness and distraction are going,” what does he mean, “From the beginning”? 
 
 **Katagiri Roshi:** Simultaneously.
 

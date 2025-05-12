@@ -231,7 +231,7 @@ Then, right in the middle of calmness, you immediately say, "I get the calmness!
 
 This is called *moment*. In this book, this is called *moment*. Because time is produced by change of the consciousness. So still there is, you are living constantly in the stream of time. Alright? So [...] it is very difficult to take initiative activities right in the middle of stream of time. Because still, always, there are, there are the most minute change of consciousness always there. But more or less, you can do it. So constantly, that's why you have to know how consciousness is changing. You have to realize through and through in zazen.
 
-That's why the most minute change of consciousness recognized by your calmness, by your zazen, is called moment. That's why Dogen Zen says, "You should realize the moment.” You should understand the moment through and through. Otherwise you cannot arouse, otherwise you cannot awaken the body-mind. Do you understand? 
+That's why the most minute change of consciousness recognized by your calmness, by your zazen, is called moment. That's why Dōgen Zen says, "You should realize the moment.” You should understand the moment through and through. Otherwise you cannot arouse, otherwise you cannot awaken the body-mind. Do you understand? 
 
 So, this is the moment in this book. So moment is the very delicate, continuous change of consciousness, still there. 
 

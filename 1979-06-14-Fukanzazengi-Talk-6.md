@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6"
+title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 6"
 ---
 ## June 14, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 6"
 
 ### Summary
 
-Katagiri Roshi further explains *shikantaza*, or body and mind dropping off, from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” Samskara is presented as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, Katagiri Roshi explains a key line from Dogen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi further explains *shikantaza*, or body and mind dropping off, from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” Samskara is presented as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, Katagiri Roshi explains a key line from Dōgen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ### Transcript
 
@@ -84,9 +84,9 @@ So first, we have to use our body, [or] in other words, [the] toe. The rock corr
 
 #### 21:38
 
-I already told you a few stories so far. [Dogen](glossary#dogen) gives lots of examples, but he didn’t explain concretely about each story. But the few stories I told you really [imply very well] the meaning of [*shikantaza*](glossary#shikantaza), \[which is] zazen based on body and mind dropping off. 
+I already told you a few stories so far. [Dōgen](glossary#dogen) gives lots of examples, but he didn’t explain concretely about each story. But the few stories I told you really [imply very well] the meaning of [*shikantaza*](glossary#shikantaza), \[which is] zazen based on body and mind dropping off. 
 
-[Dogen] says [in *Fukanzazengi*]: 
+[Dōgen] says [in *Fukanzazengi*]: 
 
 > In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout...
 
@@ -110,7 +110,7 @@ Then finally what you have to do is: stop it. Stop it. How can you stop it? You 
 
 And then, the problem is, mind associates with it and attaches to it; at that time, you cannot see the oneness. And then, the mind misunderstands oneness. 
 
-For instance, [the mind understands that] oneness is just like “the moon reflected in the water.” [That is a] combination of two things; it is not oneness, because two different things exist. So Dogen Zenji says it like this in the [*Genjokoan*](topics#genjokoan): “Oneness is not like moon reflected in the water, water in which moon is reflected.” 
+For instance, [the mind understands that] oneness is just like “the moon reflected in the water.” [That is a] combination of two things; it is not oneness, because two different things exist. So Dōgen Zenji says it like this in the [*Genjokoan*](topics#genjokoan): “Oneness is not like moon reflected in the water, water in which moon is reflected.” 
 
 So, what is oneness? Oneness appears, oneness manifests itself, only when your body is perfectly used and fitting into your object. At that time, your body merges itself in zazen. So, your body doesn’t appear; just zazen. When you see zazen, just zazen. When you see your body, just the body appears, and zazen doesn’t appear. 
 
@@ -122,7 +122,7 @@ When you make a doll with this clay, you don’t call that “clay,” you call 
 
 On the other hand, turn it around: if you see the doll in terms of just the clay. It’s clay; the same clay with which you make a dish. So you say, “Those clays are the same.” In terms of the clay, doll and dish are completely hidden behind the clay; just the clay appears. That’s why we are interested in the subject of what kind of clay you use. So [we] discuss [the commonality]: you don’t care about the doll, you don’t care about the dish. Analyzing, synthesizing: this is [science]. 
 
-Because, the total picture of the dish as a being possesses a double face. But this double face is not a combination of the two things. Just like the moon reflected in the water: that’s not oneness. Oneness is when you see the doll, just see the doll. At that time, clay doesn’t appear. Dogen Zenji says, “When one is bright, the other one is dark.” “The other one is dark” doesn’t mean the other one disappears. It’s there, but it doesn’t *interrupt*. One side, doll’s life, and this life, this great support, which doesn’t appear *yet* on the surface of the doll’s world. 
+Because, the total picture of the dish as a being possesses a double face. But this double face is not a combination of the two things. Just like the moon reflected in the water: that’s not oneness. Oneness is when you see the doll, just see the doll. At that time, clay doesn’t appear. Dōgen Zenji says, “When one is bright, the other one is dark.” “The other one is dark” doesn’t mean the other one disappears. It’s there, but it doesn’t *interrupt*. One side, doll’s life, and this life, this great support, which doesn’t appear *yet* on the surface of the doll’s world. 
 
 This is oneness. 
 
@@ -136,7 +136,7 @@ You cannot stop it. The all-important point is, let’s return to the origin, wh
 
 How can we return to conditioned elements? Because I told you before, conditioned elements are characterized by unifying two beings perfectly. That means one object is used perfectly, fitting into its object. This is conditioned element. So, let’s return to this. When your body and breath are used perfectly, fitting into zazen – at that time, something happens. That is zazen as an event. 
 
-The mind immediately catches it. That’s, “I got it.” *[He laughs.]* You catch it. The moment when you “catch” it, there is attachment. That’s why regulation of the mind is important. That is, Dogen Zenji says, “Throw away good or bad, right or wrong. Have no design of becoming a [buddha](glossary#buddha).” Through and through, we have to practice having no [design] of becoming buddha, no reward there. Just return to conditioned element, using your body, perfectly fitting into the object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
+The mind immediately catches it. That’s, “I got it.” *[He laughs.]* You catch it. The moment when you “catch” it, there is attachment. That’s why regulation of the mind is important. That is, Dōgen Zenji says, “Throw away good or bad, right or wrong. Have no design of becoming a [buddha](glossary#buddha).” Through and through, we have to practice having no [design] of becoming buddha, no reward there. Just return to conditioned element, using your body, perfectly fitting into the object, zazen. At that time, your body becomes one very naturally with zazen. So your body is made as zazen. It *is* zazen. That’s all. 
 
 And then when we see just the zazen, it is *zazen*. It is *just* zazen. Well, where is your body? Your body is hidden behind the zazen. That body doesn’t bother zazen. Just zazen. Just like a doll and also a dish.
 
@@ -144,7 +144,7 @@ But on the other hand, if you see that zazen from the *back*, which is called *c
 
 Then at that time, mind and all delusions completely drop off. This is zazen; *shikantaza*. 
 
-*Shikantaza*, based on body and mind dropping off, is not a new idea mentioned by Dogen. It’s really Buddhism. You can explain it according to Buddhist psychology. But we don’t understand the real meaning of *samskara*, and also about the element which is not associated with mind. We understand it just as a concept, apart from human life. That’s why we don’t understand it.
+*Shikantaza*, based on body and mind dropping off, is not a new idea mentioned by Dōgen. It’s really Buddhism. You can explain it according to Buddhist psychology. But we don’t understand the real meaning of *samskara*, and also about the element which is not associated with mind. We understand it just as a concept, apart from human life. That’s why we don’t understand it.
 
 #### 39:44 
 
@@ -172,17 +172,17 @@ The best way, that is...
 
 How? Using your body, perfectly fitting into your object. At that time, your body becomes one with zazen, zazen becomes one with you, very naturally. At that time, there is something that happens. That is called zazen. 
 
-The [problem] is, mind attaches to it. That’s why Dogen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the [problem], so we have to understand *what is mind*. Very tricky mind, very “monkey” mind, always.
+The [problem] is, mind attaches to it. That’s why Dōgen Zenji says, let’s practice regulation of the mind, no design of having reward. That is the [problem], so we have to understand *what is mind*. Very tricky mind, very “monkey” mind, always.
 
 Well, we have to make every possible effort to do that, [because] we have a mind. Mind is already here; that’s why we have to practice. 
 
-So Dogen Zenji says, that’s why ... 
+So Dōgen Zenji says, that’s why ... 
 
 > ... it cannot be fully known by the practicing or realizing of supernatural power either.
 
 Even though you can fly in the air, you cannot understand this kind of zazen, okay? *[He chuckles.]* 
 
-Or, Dogen Zenji says,
+Or, Dōgen Zenji says,
 
 > It must be deportment beyond one’s hearing and seeing.
 
@@ -192,7 +192,7 @@ If you see zazen *after* real zazen, that is an image of zazen, it is not real z
 
 So, this behavior which is called zazen is completely beyond hearing or seeing through the six consciousnesses. Let’s return to conditioned elements, that’s all. 
 
-But, Dogen Zenji says, 
+But, Dōgen Zenji says, 
 
 > Is it not the principle that is prior to one’s knowledge and perceptions?
 
@@ -200,7 +200,7 @@ That means that zazen, completely beyond hearing and seeing, is not a mysterious
 
 And after that, mind associates, that’s all. Then mind says, “Ahh, *that’s* zazen.” And then you attach [to it]. But before mind, prior to the function of your mind, it’s really *just sit*. It’s a very simple practice.
 
-That’s why Dogen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions?” It’s [there]. You have to [just] really *fit* into your knowledge and perceptions. 
+That’s why Dōgen Zenji says, “Is it not a principle that is prior to one’s knowledge and perceptions?” It’s [there]. You have to [just] really *fit* into your knowledge and perceptions. 
 
 Do you have questions?
 
@@ -224,13 +224,13 @@ Do you have questions?
 
 For instance... Well, here is a good example, okay? 
 
-When I was at [Eiheiji](glossary#eiheiji) monastery, we had a big earthquake. It was evening of the day on which we performed the memorial service for Dogen’s death, [just before] five o’clock. Right after the service, all the monks were about to leave the [zendo](glossary#zendo), several people in the end of the line stepped out from the zendo, and then the earthquake happened. Fortunately there was no damage to the monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that’s all. No damage. 
+When I was at [Eiheiji](glossary#eiheiji) monastery, we had a big earthquake. It was evening of the day on which we performed the memorial service for Dōgen’s death, [just before] five o’clock. Right after the service, all the monks were about to leave the [zendo](glossary#zendo), several people in the end of the line stepped out from the zendo, and then the earthquake happened. Fortunately there was no damage to the monastery, but the whole foundation, the hallways and steps dropped down almost an inch, that’s all. No damage. 
 
-But here is a very good example. One of my friends was on vacation that day, a day off for him, so he went to Fukui City. It’s a little far from Eiheiji monastery ... now, it’s pretty quick, but at that time it took about thirty minutes or so from Eiheiji monastery to Fukui city. So, I don’t know what he did there, but anyway he went. He told me he wanted to see a movie, but he thought, “Oh, tonight is the memorial service; it’s the particular day of performing the memorial service for Dogen’s death. Let’s go back.” So he returned. And then at that time, the whole movie theater completely crashed; everybody died. Because there were several tiers, no posts; if you have a big earthquake, exactly “boom.” All the people died; but he was saved. *(Transcriber’s Note: The earthquake killed 3,769 people. See [Wikipedia: 1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))*
+But here is a very good example. One of my friends was on vacation that day, a day off for him, so he went to Fukui City. It’s a little far from Eiheiji monastery ... now, it’s pretty quick, but at that time it took about thirty minutes or so from Eiheiji monastery to Fukui city. So, I don’t know what he did there, but anyway he went. He told me he wanted to see a movie, but he thought, “Oh, tonight is the memorial service; it’s the particular day of performing the memorial service for Dōgen’s death. Let’s go back.” So he returned. And then at that time, the whole movie theater completely crashed; everybody died. Because there were several tiers, no posts; if you have a big earthquake, exactly “boom.” All the people died; but he was saved. *(Transcriber’s Note: The earthquake killed 3,769 people. See [Wikipedia: 1948 Fukui earthquake](https://en.wikipedia.org/wiki/1948_Fukui_earthquake))*
 
 Do you understand? This is a very good example.
 
-One more person was on the train from Fukui City to Eiheiji monastery, because he too thought, “Oh, today is the particular day of performing a memorial service for Dogen, so let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off the track. But he survived. Do you understand? This is a very good example.
+One more person was on the train from Fukui City to Eiheiji monastery, because he too thought, “Oh, today is the particular day of performing a memorial service for Dōgen, so let’s go back.” He was also in the city, and also he wanted to see the movie, but he was at that time right in the middle of the trip. And then, the train completely tipped off the track. But he survived. Do you understand? This is a very good example.
 
 **Same person:** Okay, how do these two terms then relate to [karma](glossary#karma)?
 
@@ -240,7 +240,7 @@ That is karma, maybe past life. Well, you can envision his past life, and also, 
 
 **Same person:** So the karma in life influences how strong these forces are enacting?
 
-**Katagiri Roshi:** Sure. In many ways. But only if the times and opportunities are ripe and conditions arranged. Dogen’s memorial day and his day off are set up, and then karma starts to work. [Which way] would you like? You want to go to a movie, or you want go to Eiheiji monastery?
+**Katagiri Roshi:** Sure. In many ways. But only if the times and opportunities are ripe and conditions arranged. Dōgen’s memorial day and his day off are set up, and then karma starts to work. [Which way] would you like? You want to go to a movie, or you want go to Eiheiji monastery?
 
 **Same person:** How then are those conditions separate from the mind, if karma is involved? I mean, things don’t happen randomly. 
 
@@ -282,11 +282,11 @@ So, according to my talk yesterday, we are always seeing the *before* zazen and 
 
 #### 1:06:26
 
-**Question:** Roshi? In Dogen’s writings, the water reflects the Moon? What is the water right now?
+**Question:** Roshi? In Dōgen’s writings, the water reflects the Moon? What is the water right now?
 
-**Katagiri Roshi:** Water, according to Dogen’s understanding, is the whole universe. That water is occupying a certain space; water is the universe. When the water becomes one with the moon, when the water reflects the moon, at that time, water is not water, water is the whole universe. At that time, there is no combination of water and moon.
+**Katagiri Roshi:** Water, according to Dōgen’s understanding, is the whole universe. That water is occupying a certain space; water is the universe. When the water becomes one with the moon, when the water reflects the moon, at that time, water is not water, water is the whole universe. At that time, there is no combination of water and moon.
 
-So, if you see the water, immediately there is the moon, but that moon doesn’t appear. That’s why Dogen Zenji says, “When one is bright, the other one is dark.” That means water appears; *that* water is really the blooming of the universe. Not water; the universe. So the universe includes moon, water, trees, birds. That is the real meaning of the water’s life. 
+So, if you see the water, immediately there is the moon, but that moon doesn’t appear. That’s why Dōgen Zenji says, “When one is bright, the other one is dark.” That means water appears; *that* water is really the blooming of the universe. Not water; the universe. So the universe includes moon, water, trees, birds. That is the real meaning of the water’s life. 
 
 #### 1:08:19
 
@@ -342,7 +342,7 @@ And then we say that is *body and mind exist*. But I don’t think so. But we ca
 
 **Katagiri Roshi:** If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in the dualistic world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. 
 
-That’s why *Prajnaparamita* says “no mind”: “no eyes, no ears, [et cetera].” But how can we know no-mind? That’s why Dogen Zenji says, in the [*Shōbōgenzō*] chapter [on the *Prajnaparamita Sutra*](topics#prajnaparamita) he said there is mind, there is eyes, nose, ears, et cetera. That means, *use* eye, ear, nose, mind, and body perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So – no eyes, no mind, no mouth.
+That’s why *Prajnaparamita* says “no mind”: “no eyes, no ears, [et cetera].” But how can we know no-mind? That’s why Dōgen Zenji says, in the [*Shōbōgenzō*] chapter [on the *Prajnaparamita Sutra*](topics#prajnaparamita) he said there is mind, there is eyes, nose, ears, et cetera. That means, *use* eye, ear, nose, mind, and body perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So – no eyes, no mind, no mouth.
 
 That is the meaning of no mind. *No mind* doesn’t mean [to] destroy. [It means] *using* your mind perfectly. How? Fitting into a single object: zazen. At that time, there is no mind. 
 
@@ -370,7 +370,7 @@ If you say *universe*, you are already tricked by the word universe. The univers
 
 So whatever you say – “that is water,” “that is the moon” – that’s okay, according to this. But when you come back to the dualistic world, water is water. Moment is moment. Space is space. Time is time. Toe is toe. Katagiri is Katagiri. So, how can you know the universe? Using the toe, using *right now, right here*, perfectly fitting into your object. At that time, the universe blooms. [That] is one; it is not a combination of the water and the moon. 
 
-So that’s why Dogen Zenji says, *the self is the whole universe*. And also, *time is being*. Time is not time; time is *being*. Time is space; space is time.
+So that’s why Dōgen Zenji says, *the self is the whole universe*. And also, *time is being*. Time is not time; time is *being*. Time is space; space is time.
 
 So time is being when you say “right now and right here.” What is *time is being*? We cannot put a name on it. That’s why we say *now-ness*, or *here-and-now-ness*, or *eternity*, or *eternal time* – whatever kind of words you use, it’s very difficult to [manifest]. Now and here are the universe.
 

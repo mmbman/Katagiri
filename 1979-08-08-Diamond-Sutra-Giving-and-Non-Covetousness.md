@@ -40,11 +40,11 @@ If you read Mahayana Buddhist scriptures, very often they say, “give offerings
 
 #### 7:44
 
-Dogen Zen Master says, giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
+Dōgen Zen Master says, giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
 
 This is very common, very common in the human world. That’s why we always fight each-other. Arguments, disputes, and finally, we fight. Finally we separate, and... what is the term I always use... *[he struggles for the term]* divorce. *[Laughter.]* It very often happens in this world. 
 
-That’s why Dogen Zenji says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
+That’s why Dōgen Zenji says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
 
 > Only we see death; but the beast is free   
 > and has its death always behind it and God before it,   

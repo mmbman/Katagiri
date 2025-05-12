@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 4"
+title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 4"
 ---
 ## March 14, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -23,21 +23,21 @@ But that question comes from a dualistic understanding. Because if zazen is used
 
 What do you do after attaining enlightenment, after accomplishing Buddha’s Way? [Is there a beginning? Is there an end?] Human life should have its own beginning or its own end. If you have an end, when is the end? If you have a beginning, what is the beginning? [...] So that is the question. 
 
-In the answer, I think Dogen Zenji mentions the most important point of zazen: what kind of zazen we should do. But he is not talking about only the practice of zazen, he is talking about the significance of life, how do we take care of human life – for anybody. So that is the point Dogen Zenji mentions here. He is talking about what kind of zazen we should do, but that meaning of zazen mentioned by Dogen is exactly fitting into how to take care of human life. 
+In the answer, I think Dōgen Zenji mentions the most important point of zazen: what kind of zazen we should do. But he is not talking about only the practice of zazen, he is talking about the significance of life, how do we take care of human life – for anybody. So that is the point Dōgen Zenji mentions here. He is talking about what kind of zazen we should do, but that meaning of zazen mentioned by Dōgen is exactly fitting into how to take care of human life. 
 
 I think [the answer] is a little bit difficult for you, because it is a quite different way of understanding human life. So let me read it first: 
 
 > Although it is said one shouldn’t relate dreams in the presence of fools or place boat poles in the hands of woodsmen, I will give further instructions. 
 
-This is very strict. *[He chuckles.]* Very strict. *[Laughter.]* Very strict, very “pithy” remarks. *[He laughs.]* Exactly [what he says] is really fitting into all of us, don’t you think so? We don’t understand [what] Dogen Zenji [is saying]. “What are you talking about, Dogen?” 
+This is very strict. *[He chuckles.]* Very strict. *[Laughter.]* Very strict, very “pithy” remarks. *[He laughs.]* Exactly [what he says] is really fitting into all of us, don’t you think so? We don’t understand [what] Dōgen Zenji [is saying]. “What are you talking about, Dōgen?” 
 
-I read *Bendōwa* when I was at Eiheiji monastery. *Completely* I didn’t understand. Just like a dream! *[He laughs.]* Actually there was something there; I felt something there, but I didn’t understand it. Still what Dogen Zenji [said] was far from my life, but it was very attractive. His point is really attractive. Just like listening to orchestra music, you know? We don’t understand how to organize lots of instruments, but when he starts to talk about zazen, he becomes a conductor, and creates wonderful music there. But I didn’t understand *how* he did it. What does he mean? I didn’t understand it. 
+I read *Bendōwa* when I was at Eiheiji monastery. *Completely* I didn’t understand. Just like a dream! *[He laughs.]* Actually there was something there; I felt something there, but I didn’t understand it. Still what Dōgen Zenji [said] was far from my life, but it was very attractive. His point is really attractive. Just like listening to orchestra music, you know? We don’t understand how to organize lots of instruments, but when he starts to talk about zazen, he becomes a conductor, and creates wonderful music there. But I didn’t understand *how* he did it. What does he mean? I didn’t understand it. 
 
 If you read the *Jijuyu Zanmai* in the afternoon service – you don’t understand that one! *[Laughter.]* Nobody understands. *[He laughs.]* But pretty interesting, don’t you think so? 
 
 *[Katagiri Roshi chuckles, and people laugh.]*
 
-[...] Dogen Zenji says, “You don’t understand, so even though I give you a boat pole, the boat pole is completely useless for you.” But he says, still he wants to give compassion, because he sees the misunderstanding of zazen used by many people, that’s why he cannot leave them alone. So he wants to give some suggestions. So that is [why he says], “I will give further instructions.” 
+[...] Dōgen Zenji says, “You don’t understand, so even though I give you a boat pole, the boat pole is completely useless for you.” But he says, still he wants to give compassion, because he sees the misunderstanding of zazen used by many people, that’s why he cannot leave them alone. So he wants to give some suggestions. So that is [why he says], “I will give further instructions.” 
 
 > To think practice and realization are not one is a heretical view. 
 
@@ -55,9 +55,9 @@ In the buddha-dharma, to think practice and realization are not one is a heretic
 
 That is [the whole] answer. 
 
-So the point[s] that Dogen Zenji [makes] here... One point is that practice and realization must be one. And the second [point] is that practice and realization must go endlessly, and beginninglessly. [...] So in other words, our practice must go forever. That is the point he answered. 
+So the point[s] that Dōgen Zenji [makes] here... One point is that practice and realization must be one. And the second [point] is that practice and realization must go endlessly, and beginninglessly. [...] So in other words, our practice must go forever. That is the point he answered. 
 
-I think this is not Dogen Zenji’s idea, this is the essential point of Buddha’s teaching. 
+I think this is not Dōgen Zenji’s idea, this is the essential point of Buddha’s teaching. 
 
 For instance, [...] I mentioned the other day, cause and effect are separated, but on the other hand, cause and effect are not separated. [...] This is Buddhist philosophy. [It] is a little bit difficult to understand the truth that cause and effect are one, or practice and realization are one. It’s very difficult. So I think that’s why we have to study and also we have to practice. 
 
@@ -107,7 +107,7 @@ So when you practice, all you can do is still practice must be practice. Because
 
 That’s why yesterday I [said] “zazen is *jijiyu samadhi*” means self becomes self, and is selfing. You become you, you are you-ing, and you settle yourself in the self, exactly. And then you are not you – you are Buddha. That means creative life [is] coming up. Something which you have never thought before. 
 
-So that is [why] Dogen Zenji says zazen is *jijiyu samadhi*. In the beginning of *Bendowa*, he [speaks] about zazen very clearly:
+So that is [why] Dōgen Zenji says zazen is *jijiyu samadhi*. In the beginning of *Bendowa*, he [speaks] about zazen very clearly:
 
 > That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi*, which is its touchstone.
 
@@ -121,7 +121,7 @@ And then enlightenment is what? The enlightenment which you have thought is alre
 
 So how can you create quietness? [...] Movement becomes movement as it is, and movement is moving, and then settle the movement in the movement itself. Then, very naturally, your whole body and mind becomes still. That is called enlightenment, total enlightenment. So within the enlightenment you can see both, stillness and movement, simultaneously. 
 
-So that is [what] Dogen Zenji says here (in Answer 7):
+So that is [what] Dōgen Zenji says here (in Answer 7):
 
 > [To think] practice and realization are not one is a heretical view. In the buddha-dharma, practice and realization are identical.
 
@@ -303,7 +303,7 @@ Or, maybe what *you are you-ing* helps you, even though you don’t realize it, 
 
 So that’s why you have to realize it through the consciousness. But if you realize it, and then understand “you are you-ing,” then consciousness leads you to fall into another trap: so called “I am *I*-ing.” *[He laughs.]* Something like that. So it’s pretty difficult to be exactly fully alive in the flow of activities. Just like eating a pizza – just eating a pizza, with all sentient beings. It’s pretty hard, isn’t it? 
 
-So another trap, and another trap, again and again. That’s why Dogen Zenji says you must be free from original realization, *then* your practice penetrates your life, naturally. 
+So another trap, and another trap, again and again. That’s why Dōgen Zenji says you must be free from original realization, *then* your practice penetrates your life, naturally. 
 
 I think you can read *Genjokoan* again, and *Genjokoan* talks about ashes and kindling, and life and death. Usually we believe kindling becomes ashes, in the time process. But in Buddhism, we don’t believe it. If you believe kindling becomes ashes, kindling is before ashes, ashes is after kindling – if you believe it, this is a misunderstanding. *[He laughs.]*
 
@@ -313,7 +313,7 @@ I think you can read *Genjokoan* again, and *Genjokoan* talks about ashes and ki
 
 So within that total function of the kindling, there is ashes. Okay? So it’s not necessary to *anticipate* ashes. 
 
-So that’s why Dogen Zenji says, there is [a] complete cut off [of] before and after, but there is before and after. When the kindling really takes care of its own life exactly like this, then before and after is cut off. But, it’s connected. 
+So that’s why Dōgen Zenji says, there is [a] complete cut off [of] before and after, but there is before and after. When the kindling really takes care of its own life exactly like this, then before and after is cut off. But, it’s connected. 
 
 So *Genjokoan* says:
 
@@ -399,7 +399,7 @@ It doesn’t ignore the doctor and the medicine and the patient, okay? Including
 
 #### 1:16:15
 
-**Question:** Roshi, speaking of zazen as a medicine, in one of the chants, or the thing that we read in the evening, Dogen says, “If you follow this practice, your treasure chest will open of itself and you can use it at will.” Does that process naturally unfold just by doing the practice? Last summer I went to one Rinzai sesshin, and Sazaki Roshi, one day he talked a little bit about the difference between Soto and Rinzai. Basically the way he tried to put it – I’m not sure that he really thinks this way, but he said, “Well, the Soto school basically is a scholarly and philosophical school who also practice Shikantaza.” And they seem to believe that while Dogen may have been enlightened, that basically he was a scholar, and that what he taught didn’t necessarily lead to enlightenment. But if you believe the teachings, what Dogen says is that if you do this, there will be a natural unfolding that will happen. 
+**Question:** Roshi, speaking of zazen as a medicine, in one of the chants, or the thing that we read in the evening, Dōgen says, “If you follow this practice, your treasure chest will open of itself and you can use it at will.” Does that process naturally unfold just by doing the practice? Last summer I went to one Rinzai sesshin, and Sazaki Roshi, one day he talked a little bit about the difference between Soto and Rinzai. Basically the way he tried to put it – I’m not sure that he really thinks this way, but he said, “Well, the Soto school basically is a scholarly and philosophical school who also practice Shikantaza.” And they seem to believe that while Dōgen may have been enlightened, that basically he was a scholar, and that what he taught didn’t necessarily lead to enlightenment. But if you believe the teachings, what Dōgen says is that if you do this, there will be a natural unfolding that will happen. 
 
 **Katagiri Roshi:** Mm-hmm.
 
@@ -483,9 +483,9 @@ So I don’t mean that what you mention is something wrong; it’s all right. Bu
 
 **Katagiri Roshi:** Beyond wise or not wise, you can seek for this practice. That’s the point you want to ask?
 
-**Someone:** What do you think Dogen means by “ability”?
+**Someone:** What do you think Dōgen means by “ability”?
 
-**Katagiri Roshi:** “Ability”? I think from the Dogen Zenji’s point of view, *ability* is buddha-nature, if I say [it]. It means kind of a water vein under the ground – lots of water there. That is ability. 
+**Katagiri Roshi:** “Ability”? I think from the Dōgen Zenji’s point of view, *ability* is buddha-nature, if I say [it]. It means kind of a water vein under the ground – lots of water there. That is ability. 
 
 **Questioner:** But then some people have high ability? Some people, he says, have high ability. Then you have lots of water?
 

@@ -23,7 +23,7 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 > 
 > Chou said, “When I was in Ch’ing Chou I made a cloth shirt. It weighed seven pounds.”
 
-This is the whole story. Chao Chou (Zhaozhou Congshen, in Japanese Jōshū Jūshin, 778–897) was one of the famous Zen masters in China, who became a monk when he was sixty years old, and travelled all over China, attained enlightenment at 80 years old, and he lived to 120. Dogen Zenji mentioned him very often in his works. He really respected Chao Chou. 
+This is the whole story. Chao Chou (Zhaozhou Congshen, in Japanese Jōshū Jūshin, 778–897) was one of the famous Zen masters in China, who became a monk when he was sixty years old, and travelled all over China, attained enlightenment at 80 years old, and he lived to 120. Dōgen Zenji mentioned him very often in his works. He really respected Chao Chou. 
 
 A monk asked Zen Master Chao Chou, “The myriad things return to one...” This is the point everyone understands. Any kind of religion emphasizes [this]. All beings, “the myriad things,” means all things the world has. In other words, the phenomenal world, if you research [it], study [it] with [a] spiritual eye, very naturally you can return to *one* – so-called *the truth*. The truth is one. Wherever you may go, the truth is exactly one. 
 

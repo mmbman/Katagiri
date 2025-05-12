@@ -28,7 +28,7 @@ Engo Zenji’s note says:
 
 I think [Shakyamuni Buddha](glossary#shakyamuni-buddha) lived for 80 years, and [Jōshū Zen Master](glossary#jōshū-jūshin) lived for 120 years. But sooner or later, whoever they are, when the time comes, they have to die. But the question is, why is it that they have to die? They dwell in [nirvana](glossary#nirvana) and the truth, eternity; if it is true, why is it that they have to die?
 
-[Dogen Zenji](glossary#dogen) died when he was 53 years old. This is really [Buddha](glossary#buddha)’s compassion. Whoever you are, enlightened person or unenlightened person, [that you] have to die when the time comes [is] Buddha’s compassion, because if you live in paradise, where it is not necessary for you to die, that is not human life. In that situation I don’t think you can enlighten your stream of consciousness, [your] stream of time and space, whatever it is, because you can live so long without becoming old. When you want to get something in paradise, you can get it immediately, without suffering. There are no desires, because you can always satisfy yourself. If you can satisfy yourself, there is no need for desires. Before you say “I want to get this,” already it appears. So, there is no sense of time, no sense of stream of consciousness, no sense of impermanence. That is not the human world. At that time, you cannot have any chance to attain [enlightenment](glossary#enlightenment).
+Dōgen Zenji died when he was 53 years old. This is really [Buddha](glossary#buddha)’s compassion. Whoever you are, enlightened person or unenlightened person, [that you] have to die when the time comes [is] Buddha’s compassion, because if you live in paradise, where it is not necessary for you to die, that is not human life. In that situation I don’t think you can enlighten your stream of consciousness, [your] stream of time and space, whatever it is, because you can live so long without becoming old. When you want to get something in paradise, you can get it immediately, without suffering. There are no desires, because you can always satisfy yourself. If you can satisfy yourself, there is no need for desires. Before you say “I want to get this,” already it appears. So, there is no sense of time, no sense of stream of consciousness, no sense of impermanence. That is not the human world. At that time, you cannot have any chance to attain [enlightenment](glossary#enlightenment).
 
 Of course, Buddha Shakyamuni can dwell in nirvana, eternity. But when the time comes, he has to die. This is Buddha’s compassion, in order to guide other people to attain enlightenment. Because the truth is not something which Buddha Shakyamuni gives to you, but [something] which each of us individually gets a taste of, directly from the truth as it is. [For this], you cannot always go to a teacher who exists forever. 
 
@@ -235,7 +235,7 @@ In other words, I told you yesterday: when you have to talk, talk is one of the 
 
 Even though you attain enlightenment, it is not enough, because it must be something *alive* in each of us, individually. At that time it is called enlightenment. So enlightenment is what? Enlightenment is really your life, which is alive day after day. It’s really close. That is enlightenment. 
 
-In order to see this, we have to have clear eyes. Dogen really emphasizes that point. 
+In order to see this, we have to have clear eyes. Dōgen really emphasizes that point. 
 
 #### 56:30
 

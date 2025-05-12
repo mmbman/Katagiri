@@ -10,13 +10,13 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
-1. [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+1. [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 
 1. [*Diamond Sutra*: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 1. [*Diamond Sutra*: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
@@ -376,7 +376,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 ### 1987
 
-1. [Dogen: Four Points](1987-01-10-Dogen-Four-Points)
+1. [Dōgen: Four Points](1987-01-10-Dogen-Four-Points)
 
 1. *Blue Cliff Record* Case 80 Talk 1
 1. *Blue Cliff Record* Case 80 Talk 2
@@ -391,11 +391,11 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
 
 1. [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
-1. [*Shōbōgenzō Bendōwa*: Dogen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
-1. [*Shōbōgenzō Bendōwa*: Dogen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
-1. [*Shōbōgenzō Bendōwa*: Dogen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
-1. [*Shōbōgenzō Bendōwa*: Dogen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
-1. [*Shōbōgenzō Bendōwa*: Dogen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
+1. [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
+1. [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
+1. [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
+1. [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
+1. [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
 
 1. [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
 1. [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)

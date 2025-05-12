@@ -32,9 +32,9 @@ Next he says,
 >
 > > (From “The Issue at Hand” translated by Thomas Cleary, with some word changes. The text is available on  [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
 
-Three sentences here. Let’s say [...] the first one, according to my terms, [refers to] the *A world*. *A world*, *B world*, *C world*; the first sentence is *A world*. That is, [Dogen Zenji](glossary#dogen) says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, the seen world, that is the *A world*, the mundane world, simply speaking.
+Three sentences here. Let’s say [...] the first one, according to my terms, [refers to] the *A world*. *A world*, *B world*, *C world*; the first sentence is *A world*. That is, Dōgen Zenji says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, the seen world, that is the *A world*, the mundane world, simply speaking.
 
-Then second is *B world*. Dogen says, “When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.” *B world* is the spiritual world, simply speaking. 
+Then second is *B world*. Dōgen says, “When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.” *B world* is the spiritual world, simply speaking. 
 
 So there are two worlds we are always confronted with: *A world*, the mundane world, and *B world*, the spiritual world. In terms of the spiritual world, *B world*, the mundane world (*A world*) is something *impure*. So very naturally, in the spiritual world, [there is] no mundane world, so [there is] no birth, no death. According to Nagarjuna, this is called *emptiness*, we say. 
 
@@ -56,7 +56,7 @@ So, Buddhism always says something appears [or] something is produced by myriad 
 
 So, usually, *A world* is always something separate from the *B world*, [and we think] “I don’t want it.” If we see the Spring, you love it, because you don’t like Winter. Always separations. But that is human speculation, the so-called *A world*, and then you want to go to the *B world*, the so-called spiritual world. That is always a cause of confusion. Buddhism always says *A world* and *B world* come together, and [are] interdependent, interconnected, interpenetrated constantly, and produce something. This is the total picture of winter. So what is winter, beyond your speculation?
 
-That’s why in the first sentence Dogen Zenji says, “When all things are buddha-dharma.” So *all things* are not the *all things* you can see; *all things* are already all things seen from the truth of interdependent co-origination. It’s a big [world], the bigger scale of the word *dharma*, the world you can see; that is what we call buddha-dharma. That’s why here it says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of the practice, there is birth, there is death, there are buddhas, there are sentient beings.” 
+That’s why in the first sentence Dōgen Zenji says, “When all things are buddha-dharma.” So *all things* are not the *all things* you can see; *all things* are already all things seen from the truth of interdependent co-origination. It’s a big [world], the bigger scale of the word *dharma*, the world you can see; that is what we call buddha-dharma. That’s why here it says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of the practice, there is birth, there is death, there are buddhas, there are sentient beings.” 
 
 So [it’s] a little bit different than I said, I explained it simply. [It is] not *A world*; *A world* is *A world*, but *A world* is not *A world* in the usual sense, but *A world* interconnected, interpenetrated with *B world*. That is the total picture of *A world*. 
 
@@ -72,7 +72,7 @@ The *C world* is the true reality you live in. We live there, but usually we don
 
 #### 14:50
 
-That’s why next Dogen Zenji says, “Because the Buddha Way originally sprang forth from abundance and paucity” – Is that translation clear? I don’t know if you understand this or not. 
+That’s why next Dōgen Zenji says, “Because the Buddha Way originally sprang forth from abundance and paucity” – Is that translation clear? I don’t know if you understand this or not. 
 
 “The Buddha Way” means *true reality*. Practically, or truly, you live there, which is a bigger scale of the world than you have thought. That is the Buddha Way. 
 
@@ -98,7 +98,7 @@ So Buddha’s teaching, or the teaching of human life or the human world, is *dh
 
 #### 24:49
 
-So that’s why Dogen Zenji mentions that your world should be completely accepted, beyond *A world* or *B world*. Beyond your speculation, beyond germination of your thought, completely accept; this is our practice. But it’s very difficult. *Accept* means your world, your life is nothing separate, your world is completely something in the same and one ground. But you don’t believe this, because from your birth, we have always been educated by separation.
+So that’s why Dōgen Zenji mentions that your world should be completely accepted, beyond *A world* or *B world*. Beyond your speculation, beyond germination of your thought, completely accept; this is our practice. But it’s very difficult. *Accept* means your world, your life is nothing separate, your world is completely something in the same and one ground. But you don’t believe this, because from your birth, we have always been educated by separation.
 
 One of the primitive peoples has a certain custom after birth, [for the mother to] hold a baby in a particular bag in front of [them], and they are very proud of themselves if this bag is kept in purity constantly. Nothing is contaminated or dirty by baby’s pee, et cetera; the mother always keeps this bag clear and clean. Well, how do you know the time and occasion when the baby wants to have a pee? The baby doesn’t say anything. But if she is always carried in a bag, just like kangaroo, baby’s life and mother’s life is exactly one. So if baby feels nature, naturally [the mother] understands it.
 
@@ -126,7 +126,7 @@ That’s why we say pure *dharmadhātu nisyanda*. The world of worldly affairs i
 
 In terms of the truth itself, or emptiness itself, truth by itself manifested in our world means to throw a light upon the world and save it. Therefore, secularization of emptiness or truth is what is called *compassion* or *upaya*. Upaya means to *excellent method*. Upaya means to go near to, or to reach. 
 
-In terms of *C world*, Dogen Zenji says “the Buddha Way originally sprung forth from abundance and paucity.” Your world is bathed in the warm light of the huge expanse of being, existence, beyond purity or not purity. In other words, your life is embraced by the really great, warm arms of the mother. So, we should completely accept. But beyond whether you want to accept or you don’t accept, you are already embraced by the huge, warm arms of the mother. This is the earth, the universe. That is called the [Buddha land](glossary#buddha-land), [or] Buddha.
+In terms of *C world*, Dōgen Zenji says “the Buddha Way originally sprung forth from abundance and paucity.” Your world is bathed in the warm light of the huge expanse of being, existence, beyond purity or not purity. In other words, your life is embraced by the really great, warm arms of the mother. So, we should completely accept. But beyond whether you want to accept or you don’t accept, you are already embraced by the huge, warm arms of the mother. This is the earth, the universe. That is called the [Buddha land](glossary#buddha-land), [or] Buddha.
 
 [...] Maybe I mentioned, all life should be built up on the foundation of nothingness. In other words, the pivot of nothingness is a place where there is no space, no chance to poke your head into it. And then how can you build your life there, [on] that question mark? Or how can you transmit the [dharma](glossary#dharma), if there is no space, no time for you to poke your head in? That is a big question, and also that is a very interesting point, practice-wise. That is why Buddhism always talks about this. 
 

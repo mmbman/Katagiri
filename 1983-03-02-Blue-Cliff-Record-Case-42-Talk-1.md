@@ -51,7 +51,7 @@ That is already speaking up. Whatever you do, your life springs forth in the rea
 
 So anyway, that’s why *real* words – with your body, with your mind, with your mouth – originate from this silence, where you can manifest yourself in a universal perspective. That is *life springs forth*. You can manifest you as you really are. This self is something beyond the yardstick by which you try to evaluate yourself. It’s something more than this. 
 
-In Soto Zen, [...] Dogen Zenji is always pointing to the practice [where] you are present [...] from moment to moment. Whatever you say – before you comment, after you comment, anyway beyond comment – your life must spring forth constantly. That is the point Dogen Zenji always talks about. 
+In Soto Zen, [...] Dōgen Zenji is always pointing to the practice [where] you are present [...] from moment to moment. Whatever you say – before you comment, after you comment, anyway beyond comment – your life must spring forth constantly. That is the point Dōgen Zenji always talks about. 
 
 So how can you bring the gassho up uniquely and tersely, and deal with the gassho in the simplest way? First of all, you really jump into the silent world. That means keep your mouth shut and just do it with your heart. At that time, silence is the real place where you can manifest totally. That is called the gassho. But that gassho is not *you are doing* gassho, [but rather] gassho makes your life work. So *you* don’t do gassho; gassho makes your life work. 
 

@@ -92,7 +92,7 @@ We don’t understand what the past life is. If you try to know what you did in 
 
 So life is not *thin*, like a piece of paper! It’s very thick, and very long, *very* long. That’s why Alice Miller mentions we should treat children and human beings as messengers from the world we once knew before, but we forgot completely. 
 
-Now Dogen Zenji – the founder of Soto Zen – also [says], “We practice like this together [...] because temporarily we say *teacher* and *student*.” Katagiri [and] you. Japanese and American. Parents and children. Temporarily. But sooner or later, we will be buddha. Temporarily, now, for a certain period of time, we have a certain relationship between the teacher and a student. But originally we are buddha. Okay? 
+Now Dōgen Zenji – the founder of Soto Zen – also [says], “We practice like this together [...] because temporarily we say *teacher* and *student*.” Katagiri [and] you. Japanese and American. Parents and children. Temporarily. But sooner or later, we will be buddha. Temporarily, now, for a certain period of time, we have a certain relationship between the teacher and a student. But originally we are buddha. Okay? 
 
 So we are what? We are not a *creature*; we are a messenger from the buddha. We knew in the past... but we completely forgot, for [a long time]. That’s why we always create certain discrimination between.
 

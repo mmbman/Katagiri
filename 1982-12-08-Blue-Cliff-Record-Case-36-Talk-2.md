@@ -70,7 +70,7 @@ For instance, mysterious mediums in Japan. If you were go to Japan, there are lo
 
 #### 19:12
 
-Whatever we do, we always do according to karmic life. That’s why Dogen Zenji says, “Good or bad are nothing but time, but time is not good or bad.” 
+Whatever we do, we always do according to karmic life. That’s why Dōgen Zenji says, “Good or bad are nothing but time, but time is not good or bad.” 
 
 “Good and bad are time” means that under certain circumstances you can do something wholesome, but it [is] just under certain circumstances, your karmic life, that you can do [it]. But if you do something wholesome and then you become really haughty, you have a haughty air, take pride in yourself, [thinking] you’re doing so much – then good turns into something bad, because it’s really you and others [interacting]. So something good is not always good, something good turns into something bad. 
 
@@ -229,7 +229,7 @@ In zazen, in a sense you commit suicide with zazen, otherwise you cannot do zaze
 
 You love yourself best in this world, more than others. But you don’t love others, or you don’t love yourself? Well even though you say you don’t love [others] best, or you don’t love yourself best, whatever you say, you are you. So who are you? Are you the person who loves yourself best? No. Sometimes right in the middle of your love, you really hate yourself. So, who are you? Are you a person whom you hate? No, you love [yourself] so much. Even including hatred, including suffering, you love it. So, who are you?
 
-Whatever you judge, evaluate, think, it is nothing but understanding human life in terms of a telescope. So that’s why Dogen Zenji says, “Good or bad is time, but time is not good or bad.” It means there is a time beyond good or bad, right or wrong. So you must be right in the middle of  this time, the stream of time, beyond good or bad, right or wrong. So you have to go. 
+Whatever you judge, evaluate, think, it is nothing but understanding human life in terms of a telescope. So that’s why Dōgen Zenji says, “Good or bad is time, but time is not good or bad.” It means there is a time beyond good or bad, right or wrong. So you must be right in the middle of  this time, the stream of time, beyond good or bad, right or wrong. So you have to go. 
 
 ####  1:09:30 end of recording.
 

@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 1"
+title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 1"
 ---
 ## March 11, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -15,7 +15,7 @@ title: "Shōbōgenzō Bendōwa: Dogen's Questions & Answers – Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendōwa* [written] by Dogen. This is very interesting question and answer made by Dogen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendōwa* – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [one of the first works] of Dogen Zenji. It’s a very interesting article, this one.
+**Katagiri Roshi:** We will study at this time the questions and answers toward the end of the chapter *Bendōwa* [written] by Dōgen. This is very interesting question and answer made by Dōgen Zenji himself. When he came back from China, [at first] he lived in Kyoto, [and] because of circumstances he didn’t do anything, he just stayed at a small temple. At that time he wrote this *Bendōwa* – before he would start to teach his disciples, before he would move to Koshoji Temple in Kyoto. So this is [one of the first works] of Dōgen Zenji. It’s a very interesting article, this one.
 
 I think in those days there were many questions about the zazen he emphasized. So he made eighteen questions and answered those questions. It’s a very interesting question and answer. 
 
@@ -37,9 +37,9 @@ This answer is very long, so I think I’ll read [just a little bit]...
 >
 > The spiritual realm of Buddhas is totally incomprehensible. It is not to be reached by the workings of the mind. Still less can it be known by a man of disbelief or inferior intelligence. Only a person of great capacity based on right faith is able to enter here. Even were a person of disbelief given teachings of it, he would find it difficult to receive them. Even on Vulture Peak, there were some the Buddha allowed to leave. If right faith arises in your mind, you should practice religious discipline and study under a master. If it doesn’t arise, you should cease for a while and regret the fact of not receiving benefits of the dharma from the past. 
 
-Those three questions are all connected, talking about *right entrance*. Zazen is exactly right entrance to get into the Buddha’s world. So what is *right entrance*? Why does Dogen Zenji emphasize that zazen is right entrance? 
+Those three questions are all connected, talking about *right entrance*. Zazen is exactly right entrance to get into the Buddha’s world. So what is *right entrance*? Why does Dōgen Zenji emphasize that zazen is right entrance? 
 
-Number one is [where] already Dogen Zenji [said], “It is right entrance to the Buddha Dharma, that’s why I emphasize how important zazen is.” 
+Number one is [where] already Dōgen Zenji [said], “It is right entrance to the Buddha Dharma, that’s why I emphasize how important zazen is.” 
 
 So *right entrance*: I think *right* in Buddhism is not the emphasis of self-centeredness each religion makes. Each religion always put the emphasis on it’s own religion, how important it is, how “right” this religion is. But I don’t think *right* in Buddhism is the emphasis of the egoistic self-centeredness which each religion often manifests. Is that clear? 
 
@@ -169,7 +169,7 @@ So that’s why it says, “you malign the great vehicle...”
 
 > ... your illusion is indeed profound. 
 
-[That] delusion means hindrances, doubt is coming up constantly. No matter how long you listen to Buddha’s teaching: “Yes, I understand, but I don’t believe it, I don’t trust myself always.” You always repeat the same things. That’s why Dogen Zenji says “your illusion is indeed profound.” 
+[That] delusion means hindrances, doubt is coming up constantly. No matter how long you listen to Buddha’s teaching: “Yes, I understand, but I don’t believe it, I don’t trust myself always.” You always repeat the same things. That’s why Dōgen Zenji says “your illusion is indeed profound.” 
 
 Well, what it means, he says, 
 
@@ -177,7 +177,7 @@ Well, what it means, he says,
 
 It’s ridiculous! But we do it. We are buddha, but we don’t believe it. Sitting down in zazen with wholeheartedness, this is simultaneously the great Way to get into the Buddha’s world beyond your speculation – but we don’t believe it. Even if you believe and do it, still you don’t believe how much your practice is progressing. You don’t believe it. 
 
-So, that’s why Dogen Zenji [says] in this *Bendōwa*, “Even if you sit down for a minute, you become Buddha.” But that is so-called *right entrance*. *Right* means no gap between you and Buddha’s world. That is *thoroughgoing*. How can you get no gap between you and Buddha’s world? That is *thoroughgoing* practice. You have to do it. 
+So, that’s why Dōgen Zenji [says] in this *Bendōwa*, “Even if you sit down for a minute, you become Buddha.” But that is so-called *right entrance*. *Right* means no gap between you and Buddha’s world. That is *thoroughgoing*. How can you get no gap between you and Buddha’s world? That is *thoroughgoing* practice. You have to do it. 
 
 So, zazen is a very simple way to participate in this thoroughgoing state of existence. It’s *very* simple. And also, this is all we want to do. And then we make a schedule and let you sit down, and then the moment when you are there, you start grumbling at it. That is so-called *ignorance*, we say. *[He laughs a little.]* 
 
@@ -195,7 +195,7 @@ This is a very simple analogy: he says it is like being in the middle of a great
 
 That is called *jijuyu samadhi*. That’s why zazen is very simple – a very simple form, and you can do in your everyday life. Just simple form and simple circumstances. It’s a very wonderful opportunity to do this. 
 
-So that’s why zazen is *jijuyu samadhi*, [which] Dogen Zenji [says] in this *Bendōwa*.
+So that’s why zazen is *jijuyu samadhi*, [which] Dōgen Zenji [says] in this *Bendōwa*.
 
 > Does this not constitute extensive merit? 
 
@@ -241,11 +241,11 @@ But still they don’t understand, because they don’t believe, they don’t tr
 
 This is a story in *Saddharma Pundarika Sutra*, when Buddha Shakyamuni preached at Vulture Peak in India – Vulture Peak means Himalaya Mountains. And he started to preach about the *Avatamsaka Sutras*. And there were many people, hundreds and thousands of people there. [...] Buddhist monks and Buddhist nuns and laymen, *bhikshuni*, et cetera. But it says, five hundred people tried to leave. One of the main disciples asks Shakyamuni Buddha, “Is it alright for them to leave?” Because that disciple wants them to stay there, because it is Buddha’s compassion. So, “Buddha Shakyamuni, why don’t you stop them leaving?” But Buddha says, let them go. 
 
-So, then later, Dogen Zenji [says], if you don’t like zazen, if you really hate zazen, you can quit. You can quit zazen for a while. But don’t just quit, okay? *[He chuckles.]* Please reflect upon yourself. How can you reflect upon yourself? It means you miss the opportunity to participate in the bigger scale of the universe – that is your reflection, looking at yourself. Not *regret* – just looking at yourself. [What a pity it is] to miss the opportunity to participate in the Buddha’s world, or the great universe. 
+So, then later, Dōgen Zenji [says], if you don’t like zazen, if you really hate zazen, you can quit. You can quit zazen for a while. But don’t just quit, okay? *[He chuckles.]* Please reflect upon yourself. How can you reflect upon yourself? It means you miss the opportunity to participate in the bigger scale of the universe – that is your reflection, looking at yourself. Not *regret* – just looking at yourself. [What a pity it is] to miss the opportunity to participate in the Buddha’s world, or the great universe. 
 
 But now, I am enjoying myself because I am taking care of my *own* world, that’s all – not universal, Buddha’s world. So, I don’t like zazen, I don’t want to listen to Buddha’s teaching, et cetera. So at that time, you can quit. Just like Buddha Shakyamuni saying, “Let them go.”
 
-So, that’s why Dogen Zenji mentions here, “Even on Vulture Peak, there were some the Buddha allowed to leave.”
+So, that’s why Dōgen Zenji mentions here, “Even on Vulture Peak, there were some the Buddha allowed to leave.”
 
 > If right faith arises in your mind, you should practice religious discipline and study under a master. If it doesn’t arise, you should cease for a while...
 
@@ -257,7 +257,7 @@ Here it says “regret,” but not regret, okay? Not regret, because from regret
 
 Because we are supported by the dharma, so I think we should connect, we should join the dharma world, in many ways. That is the practice of *mindfulness*. In many ways, we can practice mindfulness, we can participate in the dharma world practically. If you cannot, you can quit. But still there is the opportunity to participate in the dharma world: that is reflecting upon ourselves, thinking of Buddha’s world, universal world. 
 
-That is what Dogen Zenji [says] here: if it doesn’t arise, you should cease for a while and regret the fact of not receiving the benefits of the dharma from the past.
+That is what Dōgen Zenji [says] here: if it doesn’t arise, you should cease for a while and regret the fact of not receiving the benefits of the dharma from the past.
 
 #### 1:04:48 end of recording
 

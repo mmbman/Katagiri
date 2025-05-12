@@ -1,5 +1,5 @@
 ---
-title: "Dogen: Four Points"
+title: "Dōgen: Four Points"
 ---
 ## January 10, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -7,7 +7,7 @@ title: "Dogen: Four Points"
 
 ### Summary
 
-Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This talk focuses on *realization of impermanence* and the meaning of *shikantaza*, or *zazen* as practice.
+Katagiri Roshi explains Zen Master Dōgen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This talk focuses on *realization of impermanence* and the meaning of *shikantaza*, or *zazen* as practice.
 
 ### Transcript
 
@@ -17,13 +17,13 @@ Katagiri Roshi explains Zen Master Dogen’s teaching in terms of four points: *
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/track-1-of-28006617" target="_blank">Listen to this talk</a>
 </p>
 
-Dogen Zenji's teaching may be explained in terms of four points. 
+Dōgen Zenji's teaching may be explained in terms of four points. 
 
 The first one is [...] *realization of impermanence*.
 
 The second point is *shikantaza*: zazen as *practice*. 
 
-The third, [can I] say *liberation*, or *body and mind dropping off*. [Dogen] uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
+The third, [can I] say *liberation*, or *body and mind dropping off*. [Dōgen] uses a particular term, “body and mind casting off” or “dropping off,” which means liberation or freedom in action. So *liberation in action*, that is the third point. 
 
 Fourth, that is, how can I say, *the whole works*. 
 
@@ -31,7 +31,7 @@ So it’s four points. First one, the *realization of impermanence*. The second,
 
 *The whole works*, simply speaking, means that the everyday life beyond your speculation must be alive, vividly – beyond your doubt, your speculation, your theories, whatever you think. Any explanation, any doubt, any idea doesn't hit the mark. So, *the whole works* means that your life day-to-day must be vividly working. [We call this] *the whole works*. 
 
-[...] There is a short fascicle of *the whole works* (“*Zenki*”) written by Dogen. It is a very interesting fascicle, related with life and death. 
+[...] There is a short fascicle of *the whole works* (“*Zenki*”) written by Dōgen. It is a very interesting fascicle, related with life and death. 
 
 So let me first explain [the points] one by one. 
 
@@ -39,7 +39,7 @@ So let me first explain [the points] one by one.
 
 First one, *the realization of impermanence*. 
 
-[Dogen] often mentions how important the realization of impermanence is. If you really want to practice the buddha way, or if you really want to know what human life is, you have to see fully or deeply into how transient the world is and how fragile life and death is. 
+[Dōgen] often mentions how important the realization of impermanence is. If you really want to practice the buddha way, or if you really want to know what human life is, you have to see fully or deeply into how transient the world is and how fragile life and death is. 
 
 In general Buddhism, we say *no substantiality*. The idea of no substantiality and impermanence is one of the teachings of life and death in terms of physics or modern sciences. I think not only Buddhism, [but] physicists, all scientists realize already how transient the world is, how fragile human life is. It’s not only Buddhist teaching. 
 
@@ -77,11 +77,11 @@ We use the [the words] *samatha* and *vipassana* in Sanskrit. [*Vipassana* means
 
 Not only the experience of insight, so-called *vipassana*. *Vipassana* is fine. This is one of the practices in Tendai Buddhism. But that is another term. What I want to tell you is, generally speaking, whoever you are, Buddhist or Christian, whoever you are, that’s fine – if you are a human being, there must be a certain way, universally, to live in this world. So for this, I think not only the experience of insight, but the experience of realization. Tasting those teachings very deeply with body and mind, totally and wholeheartedly. 
 
-That is the first point of Dogen Zenji’s teachings. 
+That is the first point of Dōgen Zenji’s teachings. 
 
 In terms of general Buddhism, Buddha Shakyamuni mentions the Eightfold Path. The first one is *Right View*. Right View is that you have to understand the human world, human beings, very deeply, based on impermanence and no-substantiality. This is the right understanding. 
 
-Dogen Zenji’s comment on Right [View] says, “Right View is that your life must be absorbed by Buddha’s eye.” That means universal eye; the universe. *Eye* means function of the universe, cosmos. Something more than cosmos, in the physics point of view. Anyway, let me say the universe. So, your life must be encompassed or included or embraced by the universe, already. That is called *ganzei ri zō shin* in Japanese. *Ganze ri* means within the Buddha’s eye. *Zō shin* means the body is stored. So your body means that the life and death is already stored in the big storage called the universe. (*Transcriber’s Note:* This is referring to *Shōbōgenzō* “*Sanjūshichi-bon-bodai-bunpō*”, “The Thirty-Seven Factors of Bodhi.”)
+Dōgen Zenji’s comment on Right [View] says, “Right View is that your life must be absorbed by Buddha’s eye.” That means universal eye; the universe. *Eye* means function of the universe, cosmos. Something more than cosmos, in the physics point of view. Anyway, let me say the universe. So, your life must be encompassed or included or embraced by the universe, already. That is called *ganzei ri zō shin* in Japanese. *Ganze ri* means within the Buddha’s eye. *Zō shin* means the body is stored. So your body means that the life and death is already stored in the big storage called the universe. (*Transcriber’s Note:* This is referring to *Shōbōgenzō* “*Sanjūshichi-bon-bodai-bunpō*”, “The Thirty-Seven Factors of Bodhi.”)
 
 So, that is [that you should] think of it, you should be mindful of this Right View. 
 
@@ -131,7 +131,7 @@ Manifesting your life in simplicity. That is [what we call] practice.
 
 So practice is human action, but that human action is very *refined*. That’s why in Japanese we call it [*shigyo*]. [*Shigyo*] means refined action. (*Transcriber’s Note:* I don’t seem to have the correct word in Japanese. It sounds like “shi - go”.)
 
-Dogen Zenji [says it] like this: “The buddha way is to make myriad dharmas exist in the realization.” “In the realization” means in the realization of the oneness, unity. “The buddha way” means the true reality of your life. Relating with all other beings: that is the buddha way. You cannot think your life separate from all other beings. If you want to think of your life, you have to think your life *with* other beings. That is called *buddha way*, we say. Universal life. 
+Dōgen Zenji [says it] like this: “The buddha way is to make myriad dharmas exist in the realization.” “In the realization” means in the realization of the oneness, unity. “The buddha way” means the true reality of your life. Relating with all other beings: that is the buddha way. You cannot think your life separate from all other beings. If you want to think of your life, you have to think your life *with* other beings. That is called *buddha way*, we say. Universal life. 
 
 The buddha way is to make myriad dharmas exist in the realization of the unity. That means everything is one. That means you should taste the teaching of impermanence, or no substantiality. Which means everything is one. 
 

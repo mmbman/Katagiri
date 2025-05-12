@@ -148,11 +148,11 @@ The “I don’t know” of Emperor Wu – I don’t know which of the two it wa
 
 So finally, the National Teacher was silent for a long time. Then he said, “Do you understand?” 
 
-In [Shōbōgenzō “Four Horses” (Japanese: *Shime*)](topics#four-horses), [Dogen Zenji](glossary#dogen) says, \[quoting from a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
+In [Shōbōgenzō “Four Horses” (Japanese: *Shime*)](topics#four-horses), Dōgen Zenji says, \[quoting from a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
 
 > The Buddha said to the assembled monks, “There are four kinds of horses. The first kind immediately follows its rider's will when, in surprise and fear, it sees the shadow of a whip. The second does likewise when the whip strikes its hair. The third, however, does not obey its master until after the whip has struck its flesh. The fourth, finally, does not do so until the whip has reached its very bones.”
 > 
-> (From *Zen Master Dogen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria)
+> (From *Zen Master Dōgen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria)
 
 Four kinds of horses. *[He chuckles.]* I don’t know which of the horses *you* belong to, but anyway, most people are just like this.
 
@@ -160,11 +160,11 @@ From this, maybe you understand that the horse which really runs the moment when
 
 In Buddhism, if the whip touches the hair, strictly speaking you cannot just touch the hair, ignoring the skin, muscle and bones. Touching a hair means exactly touching the skin, muscle and bones. Without the bones, without the muscles and skin, how can you know the whip touches the hair? So to touch the hair means completely to touch the whole body. 
 
-In other words, broadly speaking: in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly the truth; but you don’t know, you don’t believe this. That’s why Buddha and Dogen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. The four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
+In other words, broadly speaking: in Buddhism, when you do gassho, this gassho touches you and others and all sentient beings. This is exactly the truth; but you don’t know, you don’t believe this. That’s why Buddha and Dōgen Zenji explain the four kinds of horses. Which of the four are best? Do you think the horse who runs the moment he sees the shadow of the whip, that is the best? No, I don’t think so. The four kinds of horses are exactly living in the realm of no discrimination, because touching the hair is exactly touching the skin, muscle and bones, whole body. And then, at that time, you can run.
 
 For instance, playing piano. I always tell you, you cannot play the piano with just two hands: you have to play the piano with two hands, two feet, two eyes, nose, whole body, composers, and also your past life, and the composer’s life, the composer’s feelings, the composer’s heart; [all the organs], heart, and feelings. And then you can really play. So what do you mean, touch the piano? Touching the piano is not touching the keys, not touching the [human]: to touch the piano is to touch all sentient beings! And then at that time, this is called *to touch the keys*. That is the Buddhistic understanding. 
 
-So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for your life, with gratitude. That is *great*. So [...] that’s why zazen is [not just] for deepening your life, that’s why Dogen’s faith is to do zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings.
+So your presence is not only your presence but simultaneously the presence of the whole world: trees, birds, and this Zen Center. At that time, you can really take entire responsibility for your life, with gratitude. That is *great*. So [...] that’s why zazen is [not just] for deepening your life, that’s why Dōgen’s faith is to do zazen for all sentient beings. That is great compassion. Because to touch you is to touch all sentient beings.
 
 If so, it’s not necessary for the rider who controls the horse to understand the four kinds of horses. Just let go of any kind of horses, without controlling, without getting the whip... [at least not at] first, not yet.
 
@@ -184,7 +184,7 @@ So if you really understand this karmic life, karmic life turns into Buddha's li
 
 That is really silence. 
 
-There is a story (at the beginning of “Four Horses”) where Dogen Zenji says... (*Transcriber’s Note:* This story is also in the commentary to the case, which Katagiri Roshi is quoting here.)
+There is a story (at the beginning of “Four Horses”) where Dōgen Zenji says... (*Transcriber’s Note:* This story is also in the commentary to the case, which Katagiri Roshi is quoting here.)
  
 > Haven’t you heard how an outsider asked the Buddha, “I don’t ask about the spoken, I don’t ask about the unspoken.” 
 
@@ -218,7 +218,7 @@ So you have to know the world completely unfolded beyond silence. If you keep si
 
 If I sit down and really do zazen, then you believe concentration is the purpose of zazen. But I don’t think this is the purpose of zazen. The purpose of zazen is not to concentrate on breath, not to think something, not to keep out something, not to escape from, not to have a daydream, not to count the breaths. 
 
-If so – is zazen just to sit down without doing anything? No, it doesn’t mean that. Because we already have karmic life, so-called karmic “monkey mind.” So we have to accept this, and *positively* we have to take care of it. That’s why we say, “Why don’t you take care of your breath.” And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] *big world* absolutely unfolded – beyond the name of concentration, the name of zazen, the name of practicer. That is, Dogen Zenji says, the total manifestation of the whole world. Huge.
+If so – is zazen just to sit down without doing anything? No, it doesn’t mean that. Because we already have karmic life, so-called karmic “monkey mind.” So we have to accept this, and *positively* we have to take care of it. That’s why we say, “Why don’t you take care of your breath.” And then, when you take care of your breath, so-called concentration, with wholeheartedness, there is [the] *big world* absolutely unfolded – beyond the name of concentration, the name of zazen, the name of practicer. That is, Dōgen Zenji says, the total manifestation of the whole world. Huge.
 
 That is teaching coming from your back. This is teaching coming from a *powerless power* [that] you can get from your practice. Behind the effort, there is a great power. Effort is not something [where] you can create power to teach or to understand behind this effort. *Behind the effort* means the world unfolded totally, beyond the name of concentration, the name of practicer, the name of stinkiness – whatever you say, it doesn’t hit the mark. Anyway, take off any [of these] clothes. And then what’s left? Nothing to say. 
 

@@ -74,13 +74,13 @@ According to my talk, the first characteristic of karma is [that it is split int
 
 So from these points you can say karma is your inheritance or your own property, but on the other hand karma is empty. So it’s really contradictory. 
 
-But if you say *karma is emptiness*, at that time we misunderstand karma. “Oh, karma is emptiness? Why don’t I do as I like?” *[He laughs.]* I don’t want to explain the koan Dogen Zenji talked about in *Sanji Gō*, “[Karmic] Retribution in the Three Times” [again], but let me explain this [point].
+But if you say *karma is emptiness*, at that time we misunderstand karma. “Oh, karma is emptiness? Why don’t I do as I like?” *[He laughs.]* I don’t want to explain the koan Dōgen Zenji talked about in *Sanji Gō*, “[Karmic] Retribution in the Three Times” [again], but let me explain this [point].
 
 I want to say something about *Buddha’s karma* today. Buddha’s karma is not [that] karma is emptiness, [and also not that] karma is something inherited, which seems to be sort of a ghost haunting you, [hovering] over your head. *[He laughs, then puts on a deep voice.]* “That’s your dark karma!” If you believe you have this karma you did in the past and it continues forever, at that time karma becomes monsters or ghosts in front of you. It’s really scary. 
 
 So, according to Buddha’s karma, you cannot attach to karma as inheritance, and you cannot say karma is emptiness. Because if you say “karma is emptiness,” you believe that first karma should disappear, and then there is emptiness there. At that time emptiness is already an idea opposed to karma. It doesn’t mean that. Emptiness is completely freedom. 
 
-Dogen Zenji points this out. [In a story,] one of the monks asks [Changsha] Zen Master (Chōsha Keishin), “What is karmic hindrance?” [Changsha] Zen Master says, “Karmic hindrance is nothing but emptiness.” And then the monk says, “What is emptiness?” [Changsha] Zen Master says, “Karmic hindrance.” [...] *[He laughs.]* Okay? 
+Dōgen Zenji points this out. [In a story,] one of the monks asks [Changsha] Zen Master (Chōsha Keishin), “What is karmic hindrance?” [Changsha] Zen Master says, “Karmic hindrance is nothing but emptiness.” And then the monk says, “What is emptiness?” [Changsha] Zen Master says, “Karmic hindrance.” [...] *[He laughs.]* Okay? 
 
 This is two ideas of karma already: karmic hindrance and emptiness. If you see the karma opposed to emptiness, or if you see the emptiness opposed to karma, already you have to destroy one of them, emptiness or karma. *[He laughs.]* Otherwise, you don’t understand. 
 
@@ -122,7 +122,7 @@ Right Effort is not like a wild [boar] rushing in with determination – ignorin
 
 At that time, karma really becomes Buddha. That Buddha’s karma is transcending the moral sense. It is completely beyond *karma is inheritance* or *karma is emptiness* – at that time, it becomes Buddha. That karma, Buddha’s karma, is not a matter of metaphysical or philosophical discussion, it is actual practice that you have to do. Accepting totally both [aspects of] the meaning of karma, and then learning [about] human life. At that time it’s really Buddha’s karma.
 
-That is Dogen’s understanding of karma. If you read the Karmic Retribution chapter in this book (*Zen Master Dogen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria), you can understand the meaning of karma. 
+That is Dōgen’s understanding of karma. If you read the Karmic Retribution chapter in this book (*Zen Master Dōgen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria), you can understand the meaning of karma. 
 
 That’s why in Buddhism we have the practice of repentance. Repentance is not like apologizing in front of your boss. Repentance is religious ritual coming from your deep understanding of human life. If you always make repentance of your life in front of your “boss,” that is not real repentance. So in Buddhism we say *formless repentance*. [You’re not in front of anyone], because repentance comes from very deep understanding of human life. 
 
@@ -132,7 +132,7 @@ Do you have any questions?
 
 #### 42:25
 
-**Question:** Hojo-san? Do you remember in Huston Smith’s Dogen lectures, I think it was the last one, he compared Saint John of the Cross and Dogen. And he talked about grace being always present; the general grace in Buddhism. It’s his idea that there were similarities between Saint John and Dogen in this way. I wonder if maybe that concept of the right conditions and time would be a way of staying in contact with that grace, or even maybe not wanting to use that term.
+**Question:** Hojo-san? Do you remember in Huston Smith’s Dōgen lectures, I think it was the last one, he compared Saint John of the Cross and Dōgen. And he talked about grace being always present; the general grace in Buddhism. It’s his idea that there were similarities between Saint John and Dōgen in this way. I wonder if maybe that concept of the right conditions and time would be a way of staying in contact with that grace, or even maybe not wanting to use that term.
 
 **Katagiri Roshi:** Grace is not something coming from heaven, or from some other person, or from something else, okay? Grace in Buddhism is actual practice, practice itself. 
 

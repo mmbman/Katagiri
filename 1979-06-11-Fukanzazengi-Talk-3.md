@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 3"
+title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 3"
 ---
 ## June 11, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -30,7 +30,7 @@ Particularly [with regard] to *dullness* and *distraction*: dullness and distrac
 
 And the other one is *distraction*: they present it in Sanskrit as *auddhatya*. That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
-But in *Fukanzazengi*, the dullness and distraction mentioned by Dogen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction [but] all kinds of delusions drop off from the first. This is shikantaza.
+But in *Fukanzazengi*, the dullness and distraction mentioned by Dōgen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction [but] all kinds of delusions drop off from the first. This is shikantaza.
 
 First let me say a little bit about the meaning of dullness and distraction. Broadly speaking, dullness and distraction are states where the mind acts reactively, like the swing of a pendulum. The body and mind lose their state of equilibrium in either distraction or dullness, just like a pendulum. 
 
@@ -196,7 +196,7 @@ Distraction and dullness is that life moves reactively, just like a pendulum: go
 
 That is freedom. *Anyone* can do it. Even though you are not Buddhist, or even though you cannot come [to the Zen Center], you can sit down, arrange your room, and arrange circumstances, environment, and your sensory world, breathing, and internal organs, and you can sit down. Don’t you think so? This is shikantaza. Just arrange your environment, everything; that’s all we have to do. This is *freedom* – open to *everybody*! No exceptions. 
 
-That’s why Dogen Zenji says, “Universal Recommendation for Zazen” – *Universal* Recommendation. It’s really *universal*. Not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
+That’s why Dōgen Zenji says, “Universal Recommendation for Zazen” – *Universal* Recommendation. It’s really *universal*. Not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
 But, when you do it by yourself, it’s pretty hard, because making arrangement is done by your [own] sense, that’s all. But first of all, by your effort, by your sense, by your understanding, do your best to make arrangement of all circumstances, including environment, outwardly or inwardly. *Inwardly* means the sensory world, movement system, internal organs, and also the brain and nervous system. We have to arrange them according to a certain [way]. 
 
@@ -222,7 +222,7 @@ We can explain how important this kind of [Buddhist] practice is philosophically
 
 For instance, if you are in an office – well still you can do it. If there is no one there, you can sit down in a chair and calm yourself. If you are talking with somebody, you can realize a certain pause, where no words come up. For that time, you can return to yourself, and breathe. 
 
-You can do it, okay? Wherever you may go. It’s really universal. It’s very simple. It’s *too* simple to realize. But, this is the best way. Not only for your life in *this* world, but in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sow the seeds. Arrangement of circumstances, environment – inwardly, outwardly – and just stand up there. That’s all you have to do. That is to sow good seeds. Good time and occasion and good conditions must be arranged, and then stand up there. That’s all we have to do. And then at that time, Dogen Zenji says, “Right dharma is manifesting itself, and from the first, dullness and distraction are struck aside.” Very naturally, they drop off.
+You can do it, okay? Wherever you may go. It’s really universal. It’s very simple. It’s *too* simple to realize. But, this is the best way. Not only for your life in *this* world, but in the next life, in the life after next life, after next next life, continually. That is to accumulate merit and virtue. That practice is really just [to] sow the seeds. Arrangement of circumstances, environment – inwardly, outwardly – and just stand up there. That’s all you have to do. That is to sow good seeds. Good time and occasion and good conditions must be arranged, and then stand up there. That’s all we have to do. And then at that time, Dōgen Zenji says, “Right dharma is manifesting itself, and from the first, dullness and distraction are struck aside.” Very naturally, they drop off.
 
 So that’s why when I was at Eiheiji monastery, Hashimoto Roshi said, “If you sit down even for a moment, you become Buddha.” Yes, you become Buddha. If you can accept this, you are a really lucky person.
 
@@ -354,7 +354,7 @@ So in modern civilization, we can have a better life. The better life we aim at 
 
 So, just arrange all circumstances, inwardly and outwardly, and stand up. *Bloom*. Your tree must bloom. And if you bloom, everyone looks at you. Everyone realizes. Because if you bloom, according to Buddhism, one is many, and many is one. You are connected with many [thousands]. So, if one tiny seed, one tiny rose flower blooms here, immediately the whole world is connected. They will all be connected, directly or indirectly. It’s very helpful for you and for others. 
 
-Dogen used the phrase, “A flower blooms, the world arises.” Spring comes, flower blooms. Which of the two comes first? We don’t know. *[Unintelligible.]* [Weed] blooms. Flower blooms. That’s [you]. And then, how can you know? The world exists; look at the flower blooming. That blooming flower is very active life, carrying on in spring. And the world exists; and also, in turn, the other seasons exist. Anyway, bloom; first of all, we have to bloom. If you bloom, you are not one, you are many.
+Dōgen used the phrase, “A flower blooms, the world arises.” Spring comes, flower blooms. Which of the two comes first? We don’t know. *[Unintelligible.]* [Weed] blooms. Flower blooms. That’s [you]. And then, how can you know? The world exists; look at the flower blooming. That blooming flower is very active life, carrying on in spring. And the world exists; and also, in turn, the other seasons exist. Anyway, bloom; first of all, we have to bloom. If you bloom, you are not one, you are many.
 
 So, take one step. If you take one step, one step ... it’s many steps, immediately. That’s why if you take one step perfectly, one step connects to the second step very naturally, and also [zero] steps. You can do it. And next, it continues. But it’s perfect. 
 

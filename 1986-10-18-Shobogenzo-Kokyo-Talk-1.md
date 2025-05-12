@@ -21,7 +21,7 @@ So, in the United States, you have already lots of historical background, religi
 
 What is a mirror? What is a mirror which the essence of man's existence is reflected in? What is the mirror? Not only the cultural forms, but we have to understand what is the mirror that the essential nature of human life is reflected in. 
 
-So, Dogen Zenji mentions in *Shōbōgenzō*, [?] “*Kokyo*” in Japanese, which means literally “old mirror” or “ancient mirror.” This is a very interesting chapter. 
+So, Dōgen Zenji mentions in *Shōbōgenzō*, [?] “*Kokyo*” in Japanese, which means literally “old mirror” or “ancient mirror.” This is a very interesting chapter. 
 
 So I mentioned mirror is that which you can see the essential nature of human life reflected in it, in that mirror. So, that mirror implies kind of vastness, vast expanse of sky, or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth.” So, this is a mirror. 
 
@@ -29,11 +29,11 @@ So, in other words, “what is a mirror” means “what is the truth.”
 
 So how is that mirror exercised? How does that mirror reflect? How do all sentient beings reflect in that mirror? 
 
-First point, Dogen Zenji mentions like this – it is a little bit difficult, but I will explain later, okay? 
+First point, Dōgen Zenji mentions like this – it is a little bit difficult, but I will explain later, okay? 
 
 > It is the ancient mirror that buddhas and patriarchs have received, preserved, and transmitted personally. They are all the same and one with view, face, shape, mold, practice, and enlightenment. When the barbarian comes, he is reflected in that mirror. 8000 or 10000. Also, when the Chinese comes, he is reflected in it, containing one moment or 10,000 years. Also, when the past, the present, or the buddhas and ancestors come, they are reflected. 
 
-This is the first point. What is a mirror? Dogen Zenji says it is the ancient mirror that Buddhas and ancestors have received and preserved and transmitted personally. “Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, preserved and transmitted. Tried to hand it down from generation to generation. So, that mirror is very personal, but it’s not personal, because many buddhas, many ancestors tried to receive and preserve and transmit it from generation to generation – the *same* mirror. So, it is public, completely public. It’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it. You have to receive it and maintain it and preserve it and transmit it to next generations. This is natural! 
+This is the first point. What is a mirror? Dōgen Zenji says it is the ancient mirror that Buddhas and ancestors have received and preserved and transmitted personally. “Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, preserved and transmitted. Tried to hand it down from generation to generation. So, that mirror is very personal, but it’s not personal, because many buddhas, many ancestors tried to receive and preserve and transmit it from generation to generation – the *same* mirror. So, it is public, completely public. It’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it. You have to receive it and maintain it and preserve it and transmit it to next generations. This is natural! 
 
 So, what is the essence of human life which you have attained enlightenment? Saying how sublime human life is, how important human life is. So, this is in your... This enlightenment is really personal, but it’s not personal, it’s really for everyone. So, naturally it’s coming up, you try to receive it and maintain it and transmit it. So, you want to say something. You want to say something about it to your sons, to your daughters, to your friends, to the next generations. So, it becomes public. Okay? 
 
@@ -71,7 +71,7 @@ And then, the same result. That means you can walk hand-in-hand with people. Tha
 
 So, when your life is completely reflected in that mirror, you can have the same and one pattern, and your looks, your heart, your lifestyles are all the same. But from that same and one pattern, there are a myriad, myriad different types of life coming up, freely, constantly, under all circumstances. That’s why – what is that? This is a practice. And what is this? Through that practice, what will you get? That is a result, so-called peace and harmony, in your life. 
 
-So, that’s why Dogen Zenji says it here like this: 
+So, that’s why Dōgen Zenji says it here like this: 
 
 > When the Barbarian comes, he is reflected in that mirror.
 
@@ -91,7 +91,7 @@ Okay, this is our first point: what is the mirror.
 
 #### 22: 26
 
-The second [point], Dogen Zenji [says] like this. 
+The second [point], Dōgen Zenji [says] like this. 
 
 > His statement, “not dim, either inside and outside,” means that inside is not against outside and vice versa. There is no front or back, both of them are visible as one whole. The words “mind and eye resembling each other” means that a man sees a man and that mind is his eye, both inside and outside the mirror. Both of them being visible as one whole, the present self and the world are both the inside and outside of the mirror. 
 
@@ -161,7 +161,7 @@ And then Gensha Zen Master says, “It completely disintegrates.”
 
 In other words, *[there is some discussion about the correct word,]* slivers. [...] Myriad, myriad broken pieces. Completely broken – tiny, tiny broken pieces. 
 
-And then Dogen Zenji try to explain it, comment on this story. And finally, in the last part of explanation, he says:
+And then Dōgen Zenji try to explain it, comment on this story. And finally, in the last part of explanation, he says:
 
 > What then is the shape of the broken pieces? 
 
@@ -193,7 +193,7 @@ So, completely when you see that mirror, your life is completely broken pieces. 
 
 We have to see. We have to see, we have to learn. We have to learn your body, your mind, your life, anyway. 
 
-So, that’s why Dogen Zenji says to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
+So, that’s why Dōgen Zenji says to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
 
 But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe. Because we have lots of prejudice. Just like an octopus. 
 

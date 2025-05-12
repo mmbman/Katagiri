@@ -210,7 +210,7 @@ That’s why it says here in the first line, “Within nothingness there’s a r
 
 >> If you can just avoid violating the present taboo name, ...
 
-In China, it is a very [correct] attitude toward people, particularly toward a superior, that we don’t use the whole real name. For instance [with] Dogen, Do-gen is his real name; if we don’t the use real name, [we might use] Gen-zenji, Gen Zen Master, something like that. That’s why very often we see just one word, one [character], instead of two [characters], like we don’t say Dogen Zenji, we say Gen Zenji. That is a polite attitude in terms of Chinese custom. That means you cannot touch the real name. You cannot touch the pivot of nothingness; it’s the real name, but its very difficult to touch.
+In China, it is a very [correct] attitude toward people, particularly toward a superior, that we don’t use the whole real name. For instance [with] Dōgen, Do-gen is his real name; if we don’t the use real name, [we might use] Gen-zenji, Gen Zen Master, something like that. That’s why very often we see just one word, one [character], instead of two [characters], like we don’t say Dōgen Zenji, we say Gen Zenji. That is a polite attitude in terms of Chinese custom. That means you cannot touch the real name. You cannot touch the pivot of nothingness; it’s the real name, but its very difficult to touch.
 
 >> ... You’ll still surpass the eloquent ones of former dynasties who silenced every tongue.
 

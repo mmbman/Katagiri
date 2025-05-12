@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 2"
+title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2"
 ---
 ## June 10, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -36,9 +36,9 @@ The fifth is the *brain-nerve system*. So that is, according to zazen, regulatio
 
 Also number six is, I told you yesterday, the *whole personality* or *total personality*; the personality that, according to general Buddhism, is *buddha nature*, or according Buddhist psychology it is called *karma*.
 
-That total personality has a double face. One face is karma; you have carried this from the past. And the other face is [that] that total personality is completely beyond human criticism; that is really buddha nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in *Fukanzazengi*, Dogen Zenji says, “The origin of the way is perfect and all-pervading.”
+That total personality has a double face. One face is karma; you have carried this from the past. And the other face is [that] that total personality is completely beyond human criticism; that is really buddha nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in *Fukanzazengi*, Dōgen Zenji says, “The origin of the way is perfect and all-pervading.”
 
-And then also, if you do zazen, the original face of existence appears, manifests itself. That is, as Dogen says in *Fukanzazengi*, [perfect and all-pervading]; the origin of the way, the origin of existence, is perfect and all-pervading. That is buddha nature. If you do zazen, immediately [it] appears. That is what is called the original nature of existence manifesting itself. 
+And then also, if you do zazen, the original face of existence appears, manifests itself. That is, as Dōgen says in *Fukanzazengi*, [perfect and all-pervading]; the origin of the way, the origin of existence, is perfect and all-pervading. That is buddha nature. If you do zazen, immediately [it] appears. That is what is called the original nature of existence manifesting itself. 
 
 #### 6:19
 
@@ -46,7 +46,7 @@ So that is really the total picture of our personal living, everyday life.
 
 That’s why for circumstances, all we have to do is, first, we have to throw away all involvements, and also cease all affairs. At that time, we cut [them] off; [sit]. Completely we are free from circumstances. But it doesn’t mean that we destroy circumstances; circumstances are existent, but they don’t bother us. So circumstances just exist. 
 
-[The] point is, usually we are completely tossed away by circumstances. That’s why Dogen says that in zazen, we have to first be free from circumstances. That’s why we have to throw away, cease all affairs and all involvements. This is the first thing we have to do. 
+[The] point is, usually we are completely tossed away by circumstances. That’s why Dōgen says that in zazen, we have to first be free from circumstances. That’s why we have to throw away, cease all affairs and all involvements. This is the first thing we have to do. 
 
 And then, second, he mentions that we have to make arrangement of the sensory world. So, let’s [...] choose the room: not dark, not bright. That is the sensory world. 
 
@@ -110,7 +110,7 @@ That’s what I said yesterday. So, if you have questions about this, please, le
 
 *[There is the sound of seats being rearranged. Katagiri Roshi returns to his seat.]*
 
-So, that’s why yesterday I said, as Dogen Zenji says, “Dharma is manifesting itself and from the first, dullness and distraction are struck aside.” How can you do it? If you practice like this, immediately dullness and distraction from the first are struck aside. They drop off, very naturally. So very naturally, total personality appears. But the problem is, you cannot perceive what it is. That’s a problem. Because mind is always wanting to poke its head into the hole, whatever you do. Like a cat! That is characteristic of mind: analyzing, synthesizing.
+So, that’s why yesterday I said, as Dōgen Zenji says, “Dharma is manifesting itself and from the first, dullness and distraction are struck aside.” How can you do it? If you practice like this, immediately dullness and distraction from the first are struck aside. They drop off, very naturally. So very naturally, total personality appears. But the problem is, you cannot perceive what it is. That’s a problem. Because mind is always wanting to poke its head into the hole, whatever you do. Like a cat! That is characteristic of mind: analyzing, synthesizing.
 
 Do you have any questions?
 
@@ -168,7 +168,7 @@ In a sense, according to the common sense – you know, consciousness, our sense
 
 On the other hand, that total personality comes from where? Beginningless past, and endless future. So finally that’s total personality, [so] Katagiri is Katagiri. So why don’t I take care of Katagiri with compassionate attention, completely beyond judgement [of] good or bad, right and wrong? So we must be right in the middle of total personality, everyday life. Total personality is the core of life, so we must always be there.
 
-So from *this* point, it’s pretty easy, no difficulty. That’s why Dogen Zenji says that the Buddhist faith – if you believe total personality, or buddha nature, whatever there is – within total personality or the original nature of existence, there is no suffering, no confusion, no agitation, et cetera. Completely perfect. 
+So from *this* point, it’s pretty easy, no difficulty. That’s why Dōgen Zenji says that the Buddhist faith – if you believe total personality, or buddha nature, whatever there is – within total personality or the original nature of existence, there is no suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 So it’s pretty easy, in a sense. But in a sense, according to the six consciousnesses, it’s pretty hard. Because in the six consciousnesses we can understand our life according to the huge pile of experiences which we have accumulated. That’s why it’s pretty hard. Arrangement, regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? 
 
@@ -312,7 +312,7 @@ Is that clear? Is that okay?
 
 **Katagiri Roshi:** A teacher and his teaching.
 
-**Same person:** ... and his teaching – Dogen, Buddha – again and again you’re doing the calligraphy, until it’s like the teacher’s calligraphy?
+**Same person:** ... and his teaching – Dōgen, Buddha – again and again you’re doing the calligraphy, until it’s like the teacher’s calligraphy?
 
 **Katagiri Roshi:** Mmm hmm. I think so; that is the best way. 
 
@@ -320,11 +320,11 @@ Is that clear? Is that okay?
 
 **Katagiri Roshi:** Yes. Well, you can attain enlightenment, that is but a poor enlightenment. Minimum size of enlightenment, highest size of enlightenment; well, there are many kinds of enlightenment. 
 
-So, the teacher is important, but the teacher is a teacher – that *this* teacher also followed – of real zazen. I have to teach real zazen. I have to *show* [the] real zazen mentioned by Buddha, and Dogen, et cetera.
+So, the teacher is important, but the teacher is a teacher – that *this* teacher also followed – of real zazen. I have to teach real zazen. I have to *show* [the] real zazen mentioned by Buddha, and Dōgen, et cetera.
 
-**Same person:** Our connection to Dogen and Buddha is through you?
+**Same person:** Our connection to Dōgen and Buddha is through you?
 
-**Katagiri Roshi:** [Sure.] The teacher is Buddha, and Dogen, and [ancestor], simultaneously. That’s why the teacher is also a student, who is continually learning, every day. Working like Dogen, and buddhas, every day.
+**Katagiri Roshi:** [Sure.] The teacher is Buddha, and Dōgen, and [ancestor], simultaneously. That’s why the teacher is also a student, who is continually learning, every day. Working like Dōgen, and buddhas, every day.
 
 #### 1:05:15
 
@@ -386,7 +386,7 @@ I don’t know other teachers, so, I just follow the, well, Buddhistic sense. Th
 
 **Same person:** What does *samadhi* mean?
 
-**Katagiri Roshi:**  *Samadhi* is one-pointedness; to take care of. Dogen Zenji says, [...] “When you get one dharma, you penetrate it; when you encounter one practice, you practice it.” *[Unintelligible]*. That is samadhi. One-pointedness.
+**Katagiri Roshi:**  *Samadhi* is one-pointedness; to take care of. Dōgen Zenji says, [...] “When you get one dharma, you penetrate it; when you encounter one practice, you practice it.” *[Unintelligible]*. That is samadhi. One-pointedness.
 
 **Same person:** Is there an arrow going from breath to samadhi?
 
@@ -446,7 +446,7 @@ For instance, if you sit zazen *[strain in voice]* *too hard*, like this – you
 
 **Different person:** If you have a very good teacher, always you feel like there’s something lacking in yourself. You are living up to that great calligraphy. 
 
-**Katagiri Roshi:** Ah, I see. Right, right. Dogen Zenji says that in [*Genjokoan*](topics#genjokoan), he always says [that]. So that’s why you don’t understand this. So, lack of “achievement.”
+**Katagiri Roshi:** Ah, I see. Right, right. Dōgen Zenji says that in [*Genjokoan*](topics#genjokoan), he always says [that]. So that’s why you don’t understand this. So, lack of “achievement.”
 
 **Question:** You’d rather keep doing... 
 

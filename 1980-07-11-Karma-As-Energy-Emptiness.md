@@ -40,7 +40,7 @@ So karma is the very primary human movement based on avidyā, and also it create
 
 [For example, if] you say, “I cannot continue to go to school, because school is really dumb.” So you are skeptical: “Can I stay in school or not?” But if you are skeptical, all things become skeptical, so you cannot take one step forward. Or, even though you have big doubts, [if] consciously you tell yourself, “I can do it. I will do it.” That’s great! Because these twelve causations tell us: karma, ignorance, and consciousness, and next the human world comes up. So that’s why it is very important. 
 
-Dogen Zenji also says, “Even right before you die, you should chant the triple treasure: ‘I take refuge in the Buddha, I take refuge in the dharma, I take refuge in the sangha.’” That moment or short period of time is very important; that moment is really great, huge. In Buddhism, one moment is today, it is yesterday, it is tomorrow; that moment really guides you to connect with yesterday and tomorrow, and also the future. That’s why right now, right here, [say] “I will.” This moment is very important. And then next you can get the mainspring for entering the gate of the human world, [...] the samsaric world. You can do it!
+Dōgen Zenji also says, “Even right before you die, you should chant the triple treasure: ‘I take refuge in the Buddha, I take refuge in the dharma, I take refuge in the sangha.’” That moment or short period of time is very important; that moment is really great, huge. In Buddhism, one moment is today, it is yesterday, it is tomorrow; that moment really guides you to connect with yesterday and tomorrow, and also the future. That’s why right now, right here, [say] “I will.” This moment is very important. And then next you can get the mainspring for entering the gate of the human world, [...] the samsaric world. You can do it!
 
 And then from this point, karma is going on constantly. Without karma, you cannot exist in this world. You cannot have hope and *[unintelligible]*. Karma gives you hope, and also living in this world, and living in the next world, and the next world after next world. Constantly we can get into the gate of the human world. 
 
@@ -72,7 +72,7 @@ There is someone who is very romantic person. I asked him, “What kind of a bei
 
 So one second before you die, still there is a chance to get into the human world. But if you study Buddhism, enlightenment is always that you never come back to the human world. Well, that’s beautiful – just like tiny flowers in the mountains. They don’t care about the human world. But I don’t think so. That is not real Buddhism. Constantly we are born in this world as a human being to help all sentient beings: this is the bodhisattva’s way.
 
-This is the first point. Dogen Zenji always understands it in that way: karma which is carrying [on] from the beginningless past. That karma is yours; it is your property or inheritance. That means that karma is not something wrong. Don’t misunderstand: karma as inheritance is exactly human vitality. You can *be* – be existent – right now, right here, and also that is the mainspring to get in the gate of the human world [in the] next moment. That is karma. Or in other words, karma is capability for us, great capability to exist. So we should appreciate it. Okay?
+This is the first point. Dōgen Zenji always understands it in that way: karma which is carrying [on] from the beginningless past. That karma is yours; it is your property or inheritance. That means that karma is not something wrong. Don’t misunderstand: karma as inheritance is exactly human vitality. You can *be* – be existent – right now, right here, and also that is the mainspring to get in the gate of the human world [in the] next moment. That is karma. Or in other words, karma is capability for us, great capability to exist. So we should appreciate it. Okay?
 
 If you look at the karma which you have carried since the beginningless past, you really feel the stinky smell. But without that stinky smell, how can you know who you are? How can you know the differences between you and others? Between you and the tree? Whatever you feel, whatever kind of stinky smell you feel – it is really okay. You should accept it totally as human vitality, to exist. That is great for us. 
 
@@ -82,11 +82,11 @@ That is the first meaning of karma.
 
 Second, karma is *emptiness* – nothing but a great source of energy. 
 
-Dogen Zenji says,
+Dōgen Zenji says,
 
 > The sixty-two viewpoints are based on self; so when egoistic views arise, just do zazen quietly, observing them. What is the basis of your body, its inner and outer possessions? You received your body, hair, and skin from your parents. The two droplets, red and white, of your parents, however, are empty from beginning to end; hence there is no self here. 
 >
-> (From *Zen Master Dogen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria.)
+> (From *Zen Master Dōgen: An Introduction with Selected Writings*, by Yuho Yokoi with Daizen Victoria.)
 
 He says “the sixty-two viewpoints are based on self”: I don’t want to explain all sixty-two things, but broadly speaking, the sixty-two viewpoints are to think: to try to understand the world after death, whether the world is continuing or not, whether the soul is eternal or not, and whether the human body is eternal or not, et cetera. Those *[unintelligible]* views. In other words, in the modern sense, communism or spiritualism or nihilism, et cetera. In ancient times, we had the so-called sixty-two viewpoints on the human world and human life. But those are based on the idea of self. Because we love ourselves best; we don’t care for others. Even though we say, “I love you,” still, who do we love best? I love myself best. Don’t you think so? 
 
@@ -102,13 +102,13 @@ That is really the self. That’s why finally, whatever happens, always there is
 
 For instance, emotions come up, [like] anger comes up. Sometimes in zazen you really get emotions coming up. But when emotions [like] anger continue to go on, at that time you’re really involved in anger,  fighting with each other. That is really the cause by which you can carry the anger and any kind of emotion constantly. But if you want to *stop it*, well, why don’t you let it be alone? 
 
-How can you let it be alone? That’s pretty hard. That’s why, sit down. If you sit down, just taking care of your breath, and just sit down with your wholeheartedness, any emotions and anger very naturally fade away, gradually or sometimes all of a sudden. But it doesn’t go away completely. It’s there, but still it is fading away, disappearing. Maybe next moment, when the time is right, conditions arranged, it comes up again. But it’s okay, it’s alright. All you have to do is be one with you. Then, any kind of thing is gradually fading away. This is the best way to “get out.” That’s why Dogen Zenji said [to just do zazen quietly]. You can see what emotion is. It’s very difficult to know by some other way.
+How can you let it be alone? That’s pretty hard. That’s why, sit down. If you sit down, just taking care of your breath, and just sit down with your wholeheartedness, any emotions and anger very naturally fade away, gradually or sometimes all of a sudden. But it doesn’t go away completely. It’s there, but still it is fading away, disappearing. Maybe next moment, when the time is right, conditions arranged, it comes up again. But it’s okay, it’s alright. All you have to do is be one with you. Then, any kind of thing is gradually fading away. This is the best way to “get out.” That’s why Dōgen Zenji said [to just do zazen quietly]. You can see what emotion is. It’s very difficult to know by some other way.
 
 For instance, if you do zazen and see the emotions, people say you should know those emotions. In other words, you should understand what kind of emotions [they are]. *[He laughs a little.]* That is really researching and thinking of emotions in zazen. But it’s a cause of confusion, because emotions come up in *many* ways. [Emotion is] not one single thing. Even though you say “anger,” anger has many faces. Don’t you think so? Sometimes anger is strong, sometimes, well, anger smiles. Sometimes anger is just dumb, [...] sometimes nothing to say. Many kinds of faces.
 
 So if you start to research in order to awaken to the anger [coming up] in zazen, it’s really a cause of confusion. If you really want to know what the anger is, what the emotion is, all you have to do is just sit down, with your best effort. That is the best way. Very naturally, it’s fading away – or all of a sudden you know, “Ah, this is anger.” You can see anger objectively, creating a little space with with calm mind. That space is really good; you can take a deep breath right in the middle of anger. If you don’t have any space, the anger drives you to be crazy. 
 
-That’s why Dogen Zenji says, “When egoistic views arise, just do zazen quietly, observing them.” *Observing* means just sitting is immediately observing. Observation and zazen are not two; just sitting is simultaneously observation. So observation is not to see something objectively. It is still observation to see something or to think something in a dualistic way, but observation in zazen is that zazen itself is observation, just sitting down is observation. 
+That’s why Dōgen Zenji says, “When egoistic views arise, just do zazen quietly, observing them.” *Observing* means just sitting is immediately observing. Observation and zazen are not two; just sitting is simultaneously observation. So observation is not to see something objectively. It is still observation to see something or to think something in a dualistic way, but observation in zazen is that zazen itself is observation, just sitting down is observation. 
 
 #### 44:20
 
@@ -116,9 +116,9 @@ What is the basis of what you can observe? Next he says, “What is the basis of
 
 *[Tape change.]*
 
-Red means the ovum of the mother, and white means the sperm of the father. So he says, “The two droplets, red and white, of your parents...” That means Dogen Zenji understands the human body and mind. Everyone knows what is *I* in that way: *I* is a person who has skin, muscle, bones, marrow, and hair, et cetera, and comes from parents. And also, how can we first be present in the mothers’ womb? That is two droplets, the ovum and the father’s sperm; this is the first feature of being, you can come into this world. This is not only Dogen’s way, this is a very natural, physiological, biological point of view we can understand. 
+Red means the ovum of the mother, and white means the sperm of the father. So he says, “The two droplets, red and white, of your parents...” That means Dōgen Zenji understands the human body and mind. Everyone knows what is *I* in that way: *I* is a person who has skin, muscle, bones, marrow, and hair, et cetera, and comes from parents. And also, how can we first be present in the mothers’ womb? That is two droplets, the ovum and the father’s sperm; this is the first feature of being, you can come into this world. This is not only Dōgen’s way, this is a very natural, physiological, biological point of view we can understand. 
 
-But Dogen’s understanding is not the usual understanding, this is a deep understanding, that’s why next it says, all “are empty from the beginning to end.” Skin, muscle, bone, ovum and sperm, parents, are exactly empty from the beginning to end. That is Dogen’s understanding.
+But Dōgen’s understanding is not the usual understanding, this is a deep understanding, that’s why next it says, all “are empty from the beginning to end.” Skin, muscle, bone, ovum and sperm, parents, are exactly empty from the beginning to end. That is Dōgen’s understanding.
 
 I told you a few minutes ago, karma is [stored] at the bottom of the human body, human mind. This karma is really connected with consciousness – *vijñāna* – and also the human body, because consciousness is the mainspring to get into the gate of the human world, name and form. That is the human body, and the six consciousnesses, et cetera. So karma is not a psychological entity. Karma is really consciousness, vijñāna, *and also* karma is really the human body, closely related. So if we want to know karma, we have to know the human body. If we want to know the human body, we have to know consciousness, vijñāna. Vijñāna and the human body are exactly the same. 
 
@@ -160,7 +160,7 @@ That’s why today I told you that karma is understood as a great source of ener
 
 So if you [see that] you are really nothing but this great source of energy, creating the time and occasion and conditions, then you can create your own world. You never change personality or heredity, et cetera. In a broad sense, you cannot change *you*, because you are you already. But what can you change? You can change time, occasion, and conditions, [by your own effort]. What kind of conditions do you want? If you hate zazen, you can create a condition of hate. But right in the middle of hate, still there is a chance to create love of zazen. This is a condition. Any time, anywhere, you can get into the world, to live. This is *a great source of energy*, understood as karma, which is called emptiness. 
 
-That’s why Dogen Zenji says, “this human body is nothing but emptiness, from beginning to end.” Thank you.
+That’s why Dōgen Zenji says, “this human body is nothing but emptiness, from beginning to end.” Thank you.
   
 ####  1:04:56 end of recording
 

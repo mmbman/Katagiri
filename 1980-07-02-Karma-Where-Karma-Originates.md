@@ -82,7 +82,7 @@ And also, *samskara* as karma is already produced by *avidyā*, ignorance. This 
 
 [...] And then next, *consciousness* is there. But consciousness is produced by the first stage of human action (*samskara*), encouraged by *avidyā*, ignorance. And then this consciousness enters into the present, the human world. You can get into the gate of the present life: *name and form*, *six consciousnesses*, et cetera. You can get in. That’s why *consciousness* is, in a sense, pretty important. *Consciousness* means including will, volition, all mental/psychological functions – this is consciousness.
 
-[Dogen Zenji](glossary#dogen) says that even in the moment right before you die, you [can] chant the Triple Treasure, and you can take a vow to be reborn as a human being in the next life, to help all sentient beings. You can – because this is consciousness. Consciousness is really powerful! 
+Dōgen Zenji says that even in the moment right before you die, you [can] chant the Triple Treasure, and you can take a vow to be reborn as a human being in the next life, to help all sentient beings. You can – because this is consciousness. Consciousness is really powerful! 
 
 Why is consciousness very powerful? Because consciousness is created by the first stage of human action. You don’t know why you do this, exactly, but you act already. By what? This is *ignorance*. *Ignorance* means you are there but you don’t know – but as long as you are there, you want to know. So finally, very naturally, you move. This is the first stage of human movement.
 

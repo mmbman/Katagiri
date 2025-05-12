@@ -52,15 +52,15 @@ The Fifth Patriarch constantly emphasizes the spirit of the *Diamond Sutra*, say
 
 But I think this is a little bit questionable. 
 
-Dogen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shōbōgenzō*. And also in [the book] *Zen Master Dogen*, Dogen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
+Dōgen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shōbōgenzō*. And also in [the book] *Zen Master Dōgen*, Dōgen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
 
 > The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
-> (From *Zen Master Dogen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, by Yuho Yokoi with Daizen Victoria.)
+> (From *Zen Master Dōgen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, by Yuho Yokoi with Daizen Victoria.)
 
 ... Something like that. 
 
-And in the “Sutra of the Mountains and Waters”, Dogen Zenji [says] also,
+And in the “Sutra of the Mountains and Waters”, Dōgen Zenji [says] also,
 
 > *Transforming the environment*, *transforming the mind* is something scorned by great sages; *speaking of mind*, *speaking of nature* ...
 
@@ -68,19 +68,19 @@ And in the “Sutra of the Mountains and Waters”, Dogen Zenji [says] also,
 
 > ... is something not approved by Buddhas and Zen adepts; *seeing into the mind*, *seeing into one’s own nature* is the livelihood of heretics; *sticking to words and phrases* is not the expression of liberation.
 >
-> (From *Shōbōgenzō: Zen Essays by Dogen*, translated by Thomas Cleary, page 91.)
+> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, page 91.)
 
-So Dogen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
+So Dōgen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
 
 So by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always, because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
 
-But Dogen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dogen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajnaparamita* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
+But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajnaparamita* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
 
 #### 11:00
 
-I think if you read the “Buddha Nature” [chapter] of *Shōbōgenzō* (“Busshō”), [it’s] a little bit difficult to understand, but you would taste what the buddha-nature is. So that is a most important chapter for you, to understand Dogen Zenji’s teaching and also Buddha’s teaching, [that is,] in terms of general Buddhism. 
+I think if you read the “Buddha Nature” [chapter] of *Shōbōgenzō* (“Busshō”), [it’s] a little bit difficult to understand, but you would taste what the buddha-nature is. So that is a most important chapter for you, to understand Dōgen Zenji’s teaching and also Buddha’s teaching, [that is,] in terms of general Buddhism. 
 
-So according to [Dogen in] “Buddha Nature,” there are two points. He [talks] about buddha-nature [according to *Nirvana Sutra*]; he quotes a sentence of *Nirvana Sutra* and comments on this. So there are two points he mentioned.
+So according to [Dōgen in] “Buddha Nature,” there are two points. He [talks] about buddha-nature [according to *Nirvana Sutra*]; he quotes a sentence of *Nirvana Sutra* and comments on this. So there are two points he mentioned.
 
 One point is: All beings without exception are buddha. This is one point. All beings, without exception at all, are buddha, [or] buddha-nature. 
 
@@ -88,7 +88,7 @@ And second: Buddha-nature is... how can I say *jisetsu innen*... “time and occ
 
 So two meanings. All beings, without exception, are buddha-nature. That means whatever you may be, whatever you think, whatever you don’t think, all beings are completely buddha. So [there is] nothing else to compare with; all are completely buddha. So there is nothing “wrong,” nothing “good” – it’s perfectly buddha. 
 
-So that is the truth Dogen Zenji constantly mentions. That is *buddha-nature*, we say. 
+So that is the truth Dōgen Zenji constantly mentions. That is *buddha-nature*, we say. 
 
 If so, we immediately think buddha-nature is something like the very basic nature of existence from which [...] all sentient beings [are made] alive. So we think immediately the buddha-nature is something *absolute*, or buddha-nature is something *eternal* – so, the very basic nature of existence. But that is not real buddha-nature! That’s why the second point is, “Buddha-nature is time and occasion, cause and conditions.”
 
@@ -102,9 +102,9 @@ So, there is nothing to hold as fixed beings, fixed entities. Nothing.
 
 And then, [...] \[what] can you call this buddha-nature, which is called nothing but activities, process, and functioning in dynamism? [What] can you call this?
 
-Finally, Dogen Zenji [says], that buddha-nature may be called *no buddha-nature*. Because *no buddha-nature* is a very close term to explain the true picture of buddha-nature. Because it is nothing to hold; that’s why *no buddha-nature*. And then from that no-buddha-nature, we can see *buddha-nature* or *no-buddha-nature* – the idea of *buddha-nature* or the idea of *no-buddha-nature* – which means the phenomenal world coming up. 
+Finally, Dōgen Zenji [says], that buddha-nature may be called *no buddha-nature*. Because *no buddha-nature* is a very close term to explain the true picture of buddha-nature. Because it is nothing to hold; that’s why *no buddha-nature*. And then from that no-buddha-nature, we can see *buddha-nature* or *no-buddha-nature* – the idea of *buddha-nature* or the idea of *no-buddha-nature* – which means the phenomenal world coming up. 
 
-So that is in the chapter “Buddha Nature,” [where] Dogen Zenji [talks] about Joshu’s koan, “Does a dog have buddha-nature or not.” 
+So that is in the chapter “Buddha Nature,” [where] Dōgen Zenji [talks] about Joshu’s koan, “Does a dog have buddha-nature or not.” 
 
 #### 19:32
 
@@ -136,13 +136,13 @@ Anyway, [there] is the conversation between Hui Neng and the Fifth Patriarch. I 
 
 And [then the Fifth Patriarch asked], “From where do you come?” And Hui Neng said he comes from Ling Nan in China. And the teacher [said], “If you come from Ling Nan, I think the people in Ling Nan don’t have buddha-nature. How can you become buddha-nature?” Because, I don’t know exactly, but people in Ling Nan were pretty poor, and commoners, not educated so much. So I think in this story Hui Neng was not an educated person; so he couldn’t read sutras, he couldn’t write, [...] but on the other hand, in the Fifth Patriarch’s monastery, I think Shen Hsiu, who was the *shuso*, the head monk of the monastery, was a very educated and sharp person. So Shen Hsiu [who was] *shuso* and head monk, and Hui Neng, are very contrasting persons. Anyway, that’s why he [asked], “If you come from Ling Nan, they are barbarians, they don’t have buddha-nature. How can you become buddha-nature?”
 
-But Dogen Zenji comments on this [...] conversation in the chapter “Buddha Nature.” You should read this carefully; that’s an interesting commentary there. The point he really [makes] on this is [that] “the people in Ling Nan don’t have buddha-nature” means no-buddha-nature. It is not something wrong which the Fifth Patriarch mentions, [rather] it is nothing but expression of what real buddha-nature is. So that real nature of the truth, buddha-nature, is expressed as no-buddha-nature. Because it is nothing but function and activities. 
+But Dōgen Zenji comments on this [...] conversation in the chapter “Buddha Nature.” You should read this carefully; that’s an interesting commentary there. The point he really [makes] on this is [that] “the people in Ling Nan don’t have buddha-nature” means no-buddha-nature. It is not something wrong which the Fifth Patriarch mentions, [rather] it is nothing but expression of what real buddha-nature is. So that real nature of the truth, buddha-nature, is expressed as no-buddha-nature. Because it is nothing but function and activities. 
 
-It is activity produced by time and occasion, and cause and conditions, constantly. So if so, if it is true, there is nothing to say. No perception, no word particularly. So what term is appropriate to express the truth as it is? So we say, “No truth. No buddha-nature.” We can use a negative term. But that “no buddha-nature” is not negative, but a manifestation of function and process in dynamism. That is the meaning of “no buddha-nature.” So Dogen Zenji [talks] about that point. 
+It is activity produced by time and occasion, and cause and conditions, constantly. So if so, if it is true, there is nothing to say. No perception, no word particularly. So what term is appropriate to express the truth as it is? So we say, “No truth. No buddha-nature.” We can use a negative term. But that “no buddha-nature” is not negative, but a manifestation of function and process in dynamism. That is the meaning of “no buddha-nature.” So Dōgen Zenji [talks] about that point. 
 
 So [...] Hui Neng [says], “Although there are people from the north and people from the south, there is ultimately no north or south in buddha-nature.” That is, he denied the Fifth Patriarch’s statement in terms of the *Nirvana Sutra*. The *Nirvana Sutra* always [says] all beings are buddha-nature. 
 
-So, “The body of the barbarian and that of the high master are not the same, but what distinction is there in the buddha-nature?” But Dogen Zenji understands this conversation pretty deeply. That’s an interesting point too.
+So, “The body of the barbarian and that of the high master are not the same, but what distinction is there in the buddha-nature?” But Dōgen Zenji understands this conversation pretty deeply. That’s an interesting point too.
 
 #### 30:35
 
@@ -156,7 +156,7 @@ Here it says, “‘I have something to say to you: for people in the world, the
 
 And also he says, “All day long you seek fields of blessings only...” That means your original nature is already blessed, already *gifted* with buddha-nature, [the] field of blessing. Your nature is buddha-nature. So you should seek fields of blessings only: “... you do not try to get out of the bitter sea of birth and death.” Because if you try to get out of this bitter sea of birth and death, already you are standing [in a] dualistic place, so your basic nature and foundation is very shaky. If the foundation of your life is not stable, at that time, how can you realize the field of blessing? How can you take care of the phenomenal world, which seems to be confused? So that’s why he says, “If you are confused about your self-nature, how can blessings save you?”
 
-I think, strictly speaking, your self-nature is never confused. So Dogen Zenji says in *[unintelligible]*, “If you want to study the buddha way, you should believe that there is no confusion, no misunderstand, no delusions,” et cetera. Your life is always going in the path of the true nature, the path of *dharma*, Dogen Zenji [says]. And then, we can practice buddha-nature, we can practice the buddha way. But if the foundation is always found in the dualistic world, your life becomes very uneasy, so you never taste spiritual peace and harmony. 
+I think, strictly speaking, your self-nature is never confused. So Dōgen Zenji says in *[unintelligible]*, “If you want to study the buddha way, you should believe that there is no confusion, no misunderstand, no delusions,” et cetera. Your life is always going in the path of the true nature, the path of *dharma*, Dōgen Zenji [says]. And then, we can practice buddha-nature, we can practice the buddha way. But if the foundation is always found in the dualistic world, your life becomes very uneasy, so you never taste spiritual peace and harmony. 
 
 But usually the foundation is found in the dualistic way. Even in religion, we practice in that way. 
 
@@ -267,9 +267,9 @@ Okay. *Hai.* Do you have questions?
 
 #### 54:25
 
-**Question:** So, Dogen considered this a forgery?
+**Question:** So, Dōgen considered this a forgery?
 
-**Katagiri Roshi:** Uh, not only Dogen. I think the introduction written by Echū, who was one of Hui Neng’s disciples, [talks about this]. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it, and then other monks, other disciples, always carried it, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] “mixed up.”
+**Katagiri Roshi:** Uh, not only Dōgen. I think the introduction written by Echū, who was one of Hui Neng’s disciples, [talks about this]. Originally the *Platform Sutra* [was] written by one of the Sixth Patriarch’s disciples, but he didn’t publish it, and then other monks, other disciples, always carried it, and passages which [the] other disciples had [directly heard of] the Sixth Patriarch’s teaching were added to this original version. That’s why [it’s] “mixed up.”
 
 (*Transcriber’s Note:* It’s not clear what introduction is referred to above, but there is a reference to Echū, also known as National Master Daishō, in *Shōbōgenzō* *Soku-shin-ze-butsu* – “Mind Here and Now Is Buddha” – where ostensibly he discusses *The Platform Sutra*.)
 
@@ -277,9 +277,9 @@ That is the general understanding, in Japan, in China, about this. So it’s not
 
 We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
 
-So that’s why Dogen Zenji criticizes [it]... [Although] criticism is [not the right word]. Dogen Zenji tries to let us know what the *real* teaching of the Sixth Patriarch is, instead of putting it down. 
+So that’s why Dōgen Zenji criticizes [it]... [Although] criticism is [not the right word]. Dōgen Zenji tries to let us know what the *real* teaching of the Sixth Patriarch is, instead of putting it down. 
 
-So that’s why a key point of Zen practice is “to see into one’s own nature and become buddha.” But that is pretty dualistic; that is the point Dogen Zenji tries to [say] in *Shōbōgenzō*.
+So that’s why a key point of Zen practice is “to see into one’s own nature and become buddha.” But that is pretty dualistic; that is the point Dōgen Zenji tries to [say] in *Shōbōgenzō*.
 
 Another question? 
 
@@ -289,11 +289,11 @@ I think next, please read the [chapter] “Prajna.” It’s [chapter] two, page
 
 **Question:** Hojo-san? Could you please clarify again what’s meant by *causes and conditions, time and occasion*? 
 
-**Katagiri Roshi:** Time and occasion is... how can I say it. This is a very technical term we use. If you read “Ocean Seal Samadhi,” Dogen Zenji [talks] about *time*, and everything is produced by various dharma. *Various dharma* means conditioned origination, conditional factors, and also he [talks] about time. What are conditional factors? Conditional factors are nothing but time and occasion. And what is time and occasion? He says it’s just arising, only. So time is [...] some kind of energies in action. That is *arising only*, he [says]. 
+**Katagiri Roshi:** Time and occasion is... how can I say it. This is a very technical term we use. If you read “Ocean Seal Samadhi,” Dōgen Zenji [talks] about *time*, and everything is produced by various dharma. *Various dharma* means conditioned origination, conditional factors, and also he [talks] about time. What are conditional factors? Conditional factors are nothing but time and occasion. And what is time and occasion? He says it’s just arising, only. So time is [...] some kind of energies in action. That is *arising only*, he [says]. 
 
 But it’s pretty difficult to know what time is through [the words] “arising only.” So that’s why temporarily we say, “It’s *time*.” But real time is arising only. So it is working. 
 
-This *is* temporarily called *buddha-nature*, we say. But if [we say] *buddha-nature*, immediately we have a preconception that buddha-nature is something eternal, or absolute, et cetera. That’s why Dogen Zenji says *no buddha-nature* is pretty close, [an] appropriate term to express that *arising only* regarded as function itself, activity itself. 
+This *is* temporarily called *buddha-nature*, we say. But if [we say] *buddha-nature*, immediately we have a preconception that buddha-nature is something eternal, or absolute, et cetera. That’s why Dōgen Zenji says *no buddha-nature* is pretty close, [an] appropriate term to express that *arising only* regarded as function itself, activity itself. 
 
 That is *time and occasion* and *cause and conditions*.
 
@@ -321,7 +321,7 @@ So if you want to know something *supported by* something, maybe you are support
 
 *Impermanence* means function, activities. So as long as you’re active, you can create form, opportunity, time. [...] Even if you sleep, this is a form, this is an opportunity, because you are acting. Body and mind [are] acting constantly. That is called *impermanence*, we say.
 
-So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanent* is constantly changing. *Changing* doesn’t mean [everything is] in vain, no. There is something always to create. 
+So impermanence *is* buddha-nature; Dōgen Zenji [says this]. Because *impermanent* is constantly changing. *Changing* doesn’t mean [everything is] in vain, no. There is something always to create. 
 
 **Different person:** You say, “if you are active.” Is there anything other than activity, though? Is it possible to not be active?
 
@@ -343,9 +343,9 @@ So impermanence *is* buddha-nature; Dogen Zenji [says this]. Because *impermanen
 
 **Question:** Hojo-san, if in the two poems, one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them, you know? *[He chuckles.]* 
 
-**Katagiri Roshi:** Because, as Dogen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
+**Katagiri Roshi:** Because, as Dōgen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
 
-It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (“*Shoji*” in *Shōbōgenzō*)? Dogen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe next day, please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
+It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (“*Shoji*” in *Shōbōgenzō*)? Dōgen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe next day, please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
 
 [That is what] “no buddha-nature” [means]. “No buddha-nature” is *pretty* close. *[He chuckles slightly.]* Pretty close to the buddha-nature. [...]
 

@@ -157,7 +157,7 @@ Yesterday, during the [talk in] Alaska, I mentioned about this. [You know] Miss 
 
 ... in order to get the better life. But on the other hand, you shouldn't commit suicide with your suffering. So you have to take care of suffering day by day. And then you can really understand what the limit of suffering is. And then the limit of suffering is no more suffering. 
 
-That's why [...] it says Four Noble Truths. The Truth of the Suffering, and the Buddha says suffering is due to impermanence, and egolessness is due to suffering. You know, suffering is due to impermanence... it's very interesting. Impermanence is not the idea of change, impermanence is energies [...] which causes change to change. Alright? That is impermanence: the very basic function of the universe. This is, temporarily, we say impermanence. That's why Dogen Zenji says, impermanence *is* buddha-nature.
+That's why [...] it says Four Noble Truths. The Truth of the Suffering, and the Buddha says suffering is due to impermanence, and egolessness is due to suffering. You know, suffering is due to impermanence... it's very interesting. Impermanence is not the idea of change, impermanence is energies [...] which causes change to change. Alright? That is impermanence: the very basic function of the universe. This is, temporarily, we say impermanence. That's why Dōgen Zenji says, impermanence *is* buddha-nature.
 
 So on account of the impermanence, there is suffering. So what is the suffering? That means the limit of suffering is impermanent. It means, suffering is no-suffering. 
 

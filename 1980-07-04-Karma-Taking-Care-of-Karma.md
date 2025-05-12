@@ -7,7 +7,7 @@ title: "Karma: Taking Care of Karma"
 
 ### Summary
 
-Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This is why Dogen Zenji says, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
+Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This is why Dōgen Zenji says, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
 ### Transcript
 
@@ -18,7 +18,7 @@ Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma
 
 #### 0:00
 
-**Katagiri Roshi:** This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dogen, the founder of Soto Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dogen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
+**Katagiri Roshi:** This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dōgen, the founder of Soto Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dōgen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
 
 In Buddhism, meditation is called *dhyāna*. If you really start to study Buddhism, dhyāna or meditation is not a simple practice, it’s pretty deep. Most people handle meditation as a means to make your life strong, et cetera, but this is really just a little bit of understanding of meditation in Buddhism. The more you practice meditation, you really realize how deep meditation is. 
 
@@ -198,7 +198,7 @@ And then at that time, you can go beyond perception. But, still there is somethi
 
 How can you take care of it? This is karma. It’s really karma.
 
-That’s why Dogen Zenji says (in *Genjōkōan*),
+That’s why Dōgen Zenji says (in *Genjōkōan*),
 
 > The Buddha Way is completely beyond the concept of being or not-being. That’s why there are human beings and buddhas, life and death, delusion and enlightenment.
 
@@ -214,7 +214,7 @@ For instance, if you see the beautiful flower, you say, “Oh please, stay on th
 
 Well, that is my translation, simply speaking, okay? It means, weeds are weeds. We really don’t want weeds in the garden! But even though we hate it, weeds grow.
 
-Dogen really understands the final thing, what remains after the final goal of religion, what’s left: this is the human body, human mind. This human body and human mind is completely beyond being or not being, like or dislike. It’s *there!* It grows with hatred, it falls with attachment. When the time comes, you have to die. When the time comes, it grows; even if you don’t like your life, anyway it grows. You have to grow. 
+Dōgen really understands the final thing, what remains after the final goal of religion, what’s left: this is the human body, human mind. This human body and human mind is completely beyond being or not being, like or dislike. It’s *there!* It grows with hatred, it falls with attachment. When the time comes, you have to die. When the time comes, it grows; even if you don’t like your life, anyway it grows. You have to grow. 
 
 So that is the final thing that you have to do. How can you take care of this human body and mind? This is really nothing but karma. Karma means [it is] completely beyond your control. This is reality, fact. 
 
@@ -222,7 +222,7 @@ So if you understand the Buddha Way, everything is equal, wonderful, okay? And t
 
 That’s why, please, take care of this karma. Because everything is changing; this body and mind is really in the stream of change, impermanence. Don’t attach too much; don’t hate too much. Anyway completely beyond hate or attachment, take care of your human body and mind, with *compassion*. Without compassion, you cannot take care of this human body and mind. 
 
-That’s why Dogen Zenji says finally, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” That means flowers and weeds have their own karma. Cats and dogs, trees and birds, all are Buddha, exactly, which means they can live in this world without [our] evaluation and judgement. Whatever you say, that is human business: it doesn’t matter, they can live. But: cat is cat. Cat has, also, his own karma. Dog [has] still his own karma. That’s why we can share our compassion with a dog, with a cat. 
+That’s why Dōgen Zenji says finally, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” That means flowers and weeds have their own karma. Cats and dogs, trees and birds, all are Buddha, exactly, which means they can live in this world without [our] evaluation and judgement. Whatever you say, that is human business: it doesn’t matter, they can live. But: cat is cat. Cat has, also, his own karma. Dog [has] still his own karma. That’s why we can share our compassion with a dog, with a cat. 
 
 The same applies to human beings: we can have, finally, human body and mind. Without this karma, we cannot practice! So, this is really karma, the human body, coming from parents. This is not a biological understanding, this is a really deep understanding. If you understand your body and mind just according to a biological, physiological point of view, well, you really hate your body and mind. But, if you understand more deeply, your body and mind become Buddha. 
 

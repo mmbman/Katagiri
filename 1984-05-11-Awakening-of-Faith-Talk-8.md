@@ -275,7 +275,7 @@ So *time* is, in this case, tathagatagarbha is always both: beyond time, but sim
 
 So in order to know real, pure, absolute, you have to understand where you stand. That is the time process. So what is time? That’s why we have to know time. Because the human world in terms of time is related already with delusions. Delusions. When your life is connected with delusion, that is called time, the time process. That is called creation of the human world in terms of time process. 
 
-So you have to understand time. That’s why Dogen Zenji says, if you don’t believe instance, the process of operation of instant, from moment to moment, you never get bodhi mind. So your life is really an instant, moment from moment. Moment from moment means you cannot grasp anything from a moment. So alway going. But that’s why Dogen Zenji says, if you don’t believe this one, you cannot get real bodhi-mind. 
+So you have to understand time. That’s why Dōgen Zenji says, if you don’t believe instance, the process of operation of instant, from moment to moment, you never get bodhi mind. So your life is really an instant, moment from moment. Moment from moment means you cannot grasp anything from a moment. So alway going. But that’s why Dōgen Zenji says, if you don’t believe this one, you cannot get real bodhi-mind. 
 
 So through and through, that’s why time is going from moment to moment. At super-speed. The world is moving, the earth is going at super-speed. That is from moment to moment. 
 
@@ -287,13 +287,13 @@ So, that’s why we have to understand the world in terms of phenomena. Through 
 
 That’s why we have to research. 
 
-So that’s why Dogen Zenji mentions in the *Shōbōgenzō* and the awakening of the bodhi-mind. The awakening of the bodhi mind. Explaining about time. Moment.
+So that’s why Dōgen Zenji mentions in the *Shōbōgenzō* and the awakening of the bodhi-mind. The awakening of the bodhi mind. Explaining about time. Moment.
 
 Okay. Do you have questions about this? 
 
 You are, and you must be, exactly in the time process. Do you understand this one? And then you can be free from time, and free from you. That is called *nirvana*. Enlightenment itself. In a different way, that is *non-attachment*. Because you must be always living there, not seeing the time objectively. You must be there and you must do something as best as you can. So that is non-attachment; we say so. 
 
-In order to practice non-attachment, your intellectual understanding must be refined. That’s why the Dogen Zenji mentions time. What is time? What is the moment, where you live? What is the total picture of the delusions, the human world? 
+In order to practice non-attachment, your intellectual understanding must be refined. That’s why the Dōgen Zenji mentions time. What is time? What is the moment, where you live? What is the total picture of the delusions, the human world? 
 
 So that is the originally, according to the primitive Buddhism, that is called Four Noble Truths. Eightfold practice way. It is the Eightfold Noble Truth. 
 
@@ -351,7 +351,7 @@ So waves, intellectually we can say waves are different from water, but without 
 
 So always there is one piece of paper with the two aspects, alright? That is a very good example. 
 
-You have to use the front of a piece of paper, well, completely. But then the back is hidden, but it’s always [present]. That’s what Dogen Zenji says, “When one side appears, the other side is darkness.” That is characteristic of alayavijnana, which will be explained next. 
+You have to use the front of a piece of paper, well, completely. But then the back is hidden, but it’s always [present]. That’s what Dōgen Zenji says, “When one side appears, the other side is darkness.” That is characteristic of alayavijnana, which will be explained next. 
 
 Okay, any other questions? 
 
@@ -361,7 +361,7 @@ Okay, any other questions?
 
 **Katagiri Roshi:** That is a practice, anyway. Refined understanding of time is, there is a moment. You have to understand the moment. 
 
-Moment is, according to Dogen Zenji, moment consists of the 60 moments. So usually we say this is a moment, but if you hear this moment, you already missed 60 moments. *[He chuckles.]* 
+Moment is, according to Dōgen Zenji, moment consists of the 60 moments. So usually we say this is a moment, but if you hear this moment, you already missed 60 moments. *[He chuckles.]* 
 
 **Same person:** That’s where you said it’s like the jet airplane, then. 
 
@@ -375,7 +375,7 @@ Moment is, according to Dogen Zenji, moment consists of the 60 moments. So usual
 
 **Katagiri Roshi:** You are there, so completely beyond your speculation, your life is in the time process. But you can create your own life, that means you can create your time, because you can enjoy sitting on the jet airplane, drinking champagne, et cetera. You can create. And you can experience the fears, joy, many things. Do you understand? 
 
-So that’s why Dogen Zenji [says] we have to understand, through and through, the meaning of significance of the moment, where you are living. You live in. 
+So that’s why Dōgen Zenji [says] we have to understand, through and through, the meaning of significance of the moment, where you are living. You live in. 
 
 #### 1:11:42
 
@@ -389,7 +389,7 @@ So that’s why Dogen Zenji [says] we have to understand, through and through, t
 
 #### 1:13:23
 
-**Question:** In “Arousing the Bodhi Mind,” Dogen Zenji talks about clarifying what a moment is. And then he says that each moment consists of 60 instants. And then during the day it has some huge number of instants. Why does he pin it down so precisely? I mean, he gives exact numbers: 60 instants to a moment, and then some 90 billion something instances in a day. Why didn’t he say, it moves so quickly you can’t grasp it? Why didn’t he say that instead of giving some concrete number like he did? 
+**Question:** In “Arousing the Bodhi Mind,” Dōgen Zenji talks about clarifying what a moment is. And then he says that each moment consists of 60 instants. And then during the day it has some huge number of instants. Why does he pin it down so precisely? I mean, he gives exact numbers: 60 instants to a moment, and then some 90 billion something instances in a day. Why didn’t he say, it moves so quickly you can’t grasp it? Why didn’t he say that instead of giving some concrete number like he did? 
 
 **Katagiri Roshi:** Yeah, because that is a *hint* of how quickly the moment in time is moving. 
 

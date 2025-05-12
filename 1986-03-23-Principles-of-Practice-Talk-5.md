@@ -37,13 +37,13 @@ Okay, let’s [look at] *Gakudō-yōjinshū* number 10. The title is “The Dire
 
 So far I have spoken about *bodhicitta* and also *faith* as the key point of the practice. And then next, you have to *actualize* it; you have to ingest the *bodhicitta* and *faith*, and actualize these two in our everyday practice. 
 
-That’s why Dogen Zenji [says here]:
+That’s why Dōgen Zenji [says here]:
 
 > There are two ways to settle body and mind in oneness. One is to listen to the dharma under a great teacher. The other is to do zazen wholeheartedly. 
 
 So, “there are two ways to settle body and mind in oneness.” This is my translation. 
 
-In this book (*Zen Master Dogen: An Introduction with Selected Writings*) it says, “There are two ways to realize enlightenment”; that’s it. But originally Dogen Zenji says, “There are two ways to settle the body and mind.” It’s very difficult to translate, but I think... well, “to settle body and mind in oneness.” *[He chuckles.]* In other words, if your body is here and listening to the Buddha’s teaching, all you have to do is your body and mind must be *settled*, right here, right now, becoming one with the Buddha’s teaching. That is called *settling*: to settle your body and mind in oneness. 
+In this book (*Zen Master Dōgen: An Introduction with Selected Writings*) it says, “There are two ways to realize enlightenment”; that’s it. But originally Dōgen Zenji says, “There are two ways to settle the body and mind.” It’s very difficult to translate, but I think... well, “to settle body and mind in oneness.” *[He chuckles.]* In other words, if your body is here and listening to the Buddha’s teaching, all you have to do is your body and mind must be *settled*, right here, right now, becoming one with the Buddha’s teaching. That is called *settling*: to settle your body and mind in oneness. 
 
 In other words, you have to settle your body and mind in repose and bliss, right here, right now. For this, there are two ways. 
 
@@ -69,7 +69,7 @@ So one [way] is to listen to the dharma under a good teacher. The other is to do
 
 #### 14:25
 
-And then Dogen Zenji says, 
+And then Dōgen Zenji says, 
 
 > Listening to the dharma means to give full play to the discriminating mind.
 
@@ -109,7 +109,7 @@ Very intellectual. *[He laughs.]* So, Buddhism allows you to make your head *big
 
 So, that’s why we have to practice under the guidance of a person who lives here, and you need this kind of guidance through the real person – the first [and] second point I have mentioned, as [key points] of practice. We have to understand those two, and next we have to actualize those two key points of our practice, under the guidance of a person who lives with you. And then, we have to listen to Buddha’s teaching this. 
 
-So that’s why Dogen Zenji says “to listen to the dharma means to give full play to the discriminating mind.” 
+So that’s why Dōgen Zenji says “to listen to the dharma means to give full play to the discriminating mind.” 
 
 So no matter how long you discuss about what is the right teacher, what is the wrong teacher – forget it! It’s ridiculous to discuss about this. Instead of this, please *do*. Please practice – according to these points I have mentioned. This is most important. Otherwise, no matter how long you are critical toward the Buddha’s teaching, toward your teachers, et cetera, it doesn’t make sense for you as a Buddhist, if you *really* want to know what is the spiritual life. 
 
@@ -149,7 +149,7 @@ So, this is the real picture of human suffering.
 
 #### 34:07
 
-And then next, Dogen Zenji [says], 
+And then next, Dōgen Zenji [says], 
 
 > Everyone is endowed with body and mind, though their actions inevitably vary, being either strong or weak, brave or cowardly. It is through the daily actions of our body and mind, however, that we directly become Buddha with our body and mind. This is known as realization of the Way.
 
@@ -179,7 +179,7 @@ And next it says:
 
 > There is no need to change our existing body and mind, for the direct realization of the Way simply means [to become enlightened through training under a true Zen master.]
 
-... Here Dogen Zenji tries to explain what *direct* means, what *directness* means. *Directness* means to allow to be realized by the teacher. “Teacher” means the Buddha; [to allow to be realized] by the Buddha. 
+... Here Dōgen Zenji tries to explain what *direct* means, what *directness* means. *Directness* means to allow to be realized by the teacher. “Teacher” means the Buddha; [to allow to be realized] by the Buddha. 
 
 So [that] *direct* means to allow to be realized by the teacher, by the Buddha, means you do not try to realize. If you try to realize, you are already attaching to your own discriminating mind. That’s why you always look at yourself and look at the teachers, look at the teaching, and look at the process of your practice, so very naturally lots of criticism is coming up. But actually, *direct* means you have to realize *where you are*. If you put yourself properly in the proper place, you are allowed to be realized. 
 
@@ -215,7 +215,7 @@ So, you have to simply release. If you really want to release and forget both yo
 
 So, very naturally you can learn something. Even if you don’t want to learn. If you put yourself properly in the proper place, very naturally you can learn the spirit of the wilderness, if you want. But even if you don’t want to learn anything, if you put yourself there, exactly you can learn something. 
 
-So Dogen Zenji says, “When the functioning comes from the direction of the Buddha, and you go in accord with it” – you really become one with it – “then with no strength needed and no thought expended, free from birth and death” – free from discriminating mind, free from your thoughts – “you become Buddha.” “You become Buddha” means you are *allowed* to be exactly in peace and harmony. 
+So Dōgen Zenji says, “When the functioning comes from the direction of the Buddha, and you go in accord with it” – you really become one with it – “then with no strength needed and no thought expended, free from birth and death” – free from discriminating mind, free from your thoughts – “you become Buddha.” “You become Buddha” means you are *allowed* to be exactly in peace and harmony. 
 
 That is what? It is really something surprising. It is really a surprise – astonishment, big shock. Then from this, you can see the broader picture, the panorama picture of life. Through the wilderness, through the grandeur of nature. Including your life, including birds, pebbles, and the skies, the whole universe – you can learn. From where? All life of the whole universe. It’s simple. Surprise, astonishment. When you really touch the spirit of the grandeur of nature, it’s just simple. 
 

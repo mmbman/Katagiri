@@ -1,5 +1,5 @@
 ---
-title: "Fukanzazengi: Dogen's Universal Recommendation for Zazen – Talk 7"
+title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 7"
 ---
 ## June 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
@@ -40,7 +40,7 @@ So the layman really respected the Buddha Shakyamuni’s zazen. *[Thunder.]*
 
 In those days, the attainment of [samadhi](glossary#samadhi) with no consciousness was regarded as the highest level of spiritual life. From this point, you can stop your breath for a certain period of time, or you can stay in a sort of death. You can stop the functioning of your heart. That was really the highest level of practice in those days, a practice [informed] by [Brahmanism](glossary#brahmanism). So if people attained this, everybody respected it. But [Buddha](glossary#buddha) didn’t do this; Buddha did zazen with consciousness. Nevertheless, he didn’t hear the sound. His zazen was not disturbed by the sound of the thunder. This layman had never heard before about such a kind of zazen. So he said, “How wonderful, excellent it is!”
 
-[Dogen](glossary#dogen) commented – *[thunder]* – on this story with deepest respect, in the collection of Dogen’s short preachings. Dogen Zenji says:
+Dōgen commented – *[thunder]* – on this story with deepest respect, in the collection of Dōgen’s short preachings. Dōgen Zenji says:
 
 > The Buddha enters samadhi with consciousness, and the thirty-four ways to sever [delusions](glossary#delusion) manifest themselves within it. The Buddha uses this from morning to night, and culminates the quest of his body in the [zendo](glossary#zendo).
 > 
@@ -48,11 +48,11 @@ In those days, the attainment of [samadhi](glossary#samadhi) with no consciousne
 
 “The Buddha enters samadhi with consciousness”: that is, exactly [Buddha Shakyamuni](glossary#shakyamuni-buddha ) did zazen with consciousness. *Samadhi* means oneness with subject and zazen. And when the practicer and zazen become one, that is samadhi. So, “the Buddha enters samadhi with consciousness.” 
 
-“The thirty-four ways to sever delusions manifested themselves within it.” In those days, there were thirty-four techniques to cut off the delusions and attain [enlightenment](glossary#enlightenment) and enter [nirvana](glossary#nirvana). But if the Buddha did zazen with consciousness, at that time within it, the thirty-four ways to sever delusion and enter nirvana manifest themselves. That is Dogen’s understanding. So it’s [one]. That’s why the layman also said, “How excellent it is.” *[Thunder.]* 
+“The thirty-four ways to sever delusions manifested themselves within it.” In those days, there were thirty-four techniques to cut off the delusions and attain [enlightenment](glossary#enlightenment) and enter [nirvana](glossary#nirvana). But if the Buddha did zazen with consciousness, at that time within it, the thirty-four ways to sever delusion and enter nirvana manifest themselves. That is Dōgen’s understanding. So it’s [one]. That’s why the layman also said, “How excellent it is.” *[Thunder.]* 
 
 #### 9:14
 
-Also, Dogen Zenji said in Bendōwa:
+Also, Dōgen Zenji said in Bendōwa:
 
 > Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.
 
@@ -62,7 +62,7 @@ Also, Dogen Zenji said in Bendōwa:
 
 Well, I told you so far, if you do really real zazen – not *before* zazen, not *after* zazen – [then] regardless of whether you are conscious of it or not, you are *right there*, you are right in the middle of zazen. No delusions, no confusions. But consciousness is very “picky.” So immediately, you can pick up *before* zazen, *after* zazen. If you stop the functioning of your mind, you can be there constantly, but always consciously our mind is picky. Even though you are right in the middle of zazen, you say, “Ah! I attain enlightenment!” And then immediately, you sleep. *[Someone chuckles.]* And then you wake up; the moment when you wake up, you say, “Oh – I attain enlightenment.” *[He laughs.]* I don’t think so. You sleep pretty well, in zazen. *[Laughter.]* And then, something happens and you wake up. *[Thunder.]* At that time, you don’t realize whether you were sleeping or you were entering samadhi. You don’t. So that’s why sometimes you misunderstand: “Oh, I attained enlightenment.” But it’s not actually enlightenment, okay? *[He laughs.]* 
 
-So sometimes, right in the middle of zazen, still you can go in enlightenment or go out of enlightenment. But whatever you do – goes in, goes out – all are going on right in the middle of zazen. So Dogen Zenji says, “Mind and its object both goes in, goes out of enlightenment within zazen itself, the stillness of samadhi. Since it occurs within the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
+So sometimes, right in the middle of zazen, still you can go in enlightenment or go out of enlightenment. But whatever you do – goes in, goes out – all are going on right in the middle of zazen. So Dōgen Zenji says, “Mind and its object both goes in, goes out of enlightenment within zazen itself, the stillness of samadhi. Since it occurs within the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
 
 “... it doesn’t disturb a single mote of dust...”: [Dust] means object. If you do zazen, zazen becomes the object. But, your zazen really doesn’t disturb your object. Without moving even an inch to the left or right, or front or backward, you *can* completely become one with zazen itself. At that time, using your body, your breath, and your mind – in other words, by the regulation of your body, and breath, and mind – if this practice is exactly perfect, your whole body is exactly fitting into zazen, your object. So, at that time, your body and mind disappear. Where? Within zazen. So, it’s not necessary to move zazen from one *A* place to *B* place, or forward and backward, or up and down. Nothing; just *there*. And all you have to do is make arrangement of your body, your breath and mind, and just fit into it. At that time, without moving, without disturbing even a single mote of dust, you can be one with it, you can be right in the middle of samadhi. That is called samadhi, okay?
 
@@ -74,15 +74,15 @@ And then, “since it occurs within the sphere of *jijuyu*” means, when you do
 
 At that time it is called *jijuyu* – samadhi of jijuyu. *Ji* is “of itself.” The *ju* of jijuyu means “receive.” *Yu* is “to function, to work, or to take advantage of.” So if you do zazen like this, you can receive freedom, very naturally, of itself. And, you can use it. 
 
-That’s why Dogen Zenji says, “Although in realization the mind and its object both arise and disappear within the stillness of samadhi, since it occurs within the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
+That’s why Dōgen Zenji says, “Although in realization the mind and its object both arise and disappear within the stillness of samadhi, since it occurs within the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
 
 So from this point, what the Buddha said, not to hear the sound of the thunder, doesn’t mean that he was in a state of no consciousness. He did zazen with consciousness. If you do zazen – [or] hitting the bell, chanting the sutras – with no consciousness, it doesn’t make sense, it’s useless. *Shijo*, the sign of the beginning of zazen, or [*kaijo*,] the sign of the end of zazen – it’s ridiculous, it doesn’t make sense. Why do you have to hit the bell, if the main purpose of zazen is to reach the state of no consciousness? It’s not necessary to hit the bell, because even though you hit the bell, you cannot hear it. It’s not necessary to eat your breakfast, and lunch, and dinner, because you can stop your heart for a certain period of time, for seven days. You can do it. Maybe so. I read an article about one of the saints in India. He was in a casket for more than seven days. And the scientists checked his heart; his heart was completely stopped. And after that he came out, but he was alive. So it’s *possible*; it’s possible. But the zazen we do is not something like this. We have zazen *with* consciousness. 
 
 #### 25:09
 
-And also Dogen Zenji says, “the Buddha uses this from morning to night.” Not only in the time of doing zazen, but also from morning to night, your mind must be attentive to all movement of behavior. Working in the kitchen, and walking in the hallways, walking in the zendo, picking a plant or grasses outside; whatever you do, your mind must be *there*, present with each movement.
+And also Dōgen Zenji says, “the Buddha uses this from morning to night.” Not only in the time of doing zazen, but also from morning to night, your mind must be attentive to all movement of behavior. Working in the kitchen, and walking in the hallways, walking in the zendo, picking a plant or grasses outside; whatever you do, your mind must be *there*, present with each movement.
 
-So zazen is always working in your daily living from morning to night, but it doesn’t mean you should be nervous because you have to pay careful attention to your mind, checking whether your mind is always attentive to each movement. If you do that, you will be nervous. I don’t mean that; because you cannot disturb even a single mote of dust. In other words, you cannot stop the stream of time. You must be always right in the middle of the stream of time. Nevertheless, there is mind present with the activities. That’s why Dogen Zenji says, “The Buddha uses this from morning to night – *[thunder]* – and culminates the quest of his body in the zendo.” “Culminates the quest of his body” means, mind completely fits [and] fills his body. 
+So zazen is always working in your daily living from morning to night, but it doesn’t mean you should be nervous because you have to pay careful attention to your mind, checking whether your mind is always attentive to each movement. If you do that, you will be nervous. I don’t mean that; because you cannot disturb even a single mote of dust. In other words, you cannot stop the stream of time. You must be always right in the middle of the stream of time. Nevertheless, there is mind present with the activities. That’s why Dōgen Zenji says, “The Buddha uses this from morning to night – *[thunder]* – and culminates the quest of his body in the zendo.” “Culminates the quest of his body” means, mind completely fits [and] fills his body. 
 
 In other words, I always use [the saying], “Your kind, compassionate attention must penetrate from the top of your head, to the tip of your toes.” That means, when you stand up, you have to stand up with what? Two feet. Of course, two feet. You can stand up with two hands, but usually you have to stand up with two feet. But that is not the real practice of [Zen](glossary#zen). You have to stand up with two feet, two hands, and also your nose, your eyes, your mouth, your heart, your emotions, all your circumstances. At that time, you can really culminate the quest of your body. And then you say, “Oh! This is standing up, perfectly.” You feel good at that time. 
 
@@ -90,11 +90,11 @@ Or, I always tell you, if you play the guitar, you can play the guitar with two 
 
 That is what is called “to culminate the quest of your body.” And then, in playing the guitar, in daily living, at that time you really feel good, from playing guitar from your body, from your mind. So finally that’s why you cannot stop playing guitar. Something compels you to continue to practice. Even if consciously you don’t want to, something compels you. So that’s why finally, you will be a great guitar player. Even though you don’t like it, even though you don’t expect it, finally, you will be a great guitar player.
 
-That’s why Dogen Zenji says, “Buddha uses this from morning to night and culminates the quest of his body in the zendo.” 
+That’s why Dōgen Zenji says, “Buddha uses this from morning to night and culminates the quest of his body in the zendo.” 
 
 #### 31:33
 
-That’s [also] why in [*Fukanzazengi*](topics#fukanzazengi) [Dogen says], *[thunder]*
+That’s [also] why in [*Fukanzazengi*](topics#fukanzazengi) [Dōgen says], *[thunder]*
 
 > Zazen must be deportment beyond one’s hearing and seeing.
 
@@ -102,7 +102,7 @@ But, of course it is hearing and seeing, because you cannot move even a single m
 
 We should know the mind is very picky; “monkey mind.” That’s why we need the practice of regulating the mind. But we have to *use* the mind. When you regulate your body and breath, there must be the mind *with* your body, your breath. Otherwise, you become cats and dogs. Cats and dogs and birds can do with their bodies but no mind. But we are human beings. So first we have to do something with our body, but there must be mind, constantly. 
 
-So, the final goal of regulating the mind is to be free from mind, because mind is picky. That’s why Dogen Zenji says we have to practice samadhi, complete samadhi, becoming one; using your whole body and mind in order to fit your object perfectly. Adjusting, regulating your body, and breath, and mind. And then, if everything is perfect at that time, very naturally your body fits to your object. And then, something happens. Something happens; we don’t know what it is. And then when we see it, when our mind is immediately there and *picking* that, then we say, “Oh, that’s zazen.” But before your mind picks it up, that zazen is *no-name*. Just, something happens. So, very naturally, zazen blooms. And also *you* bloom, as total personality there. 
+So, the final goal of regulating the mind is to be free from mind, because mind is picky. That’s why Dōgen Zenji says we have to practice samadhi, complete samadhi, becoming one; using your whole body and mind in order to fit your object perfectly. Adjusting, regulating your body, and breath, and mind. And then, if everything is perfect at that time, very naturally your body fits to your object. And then, something happens. Something happens; we don’t know what it is. And then when we see it, when our mind is immediately there and *picking* that, then we say, “Oh, that’s zazen.” But before your mind picks it up, that zazen is *no-name*. Just, something happens. So, very naturally, zazen blooms. And also *you* bloom, as total personality there. 
 
 #### 35:18
 

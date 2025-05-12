@@ -9,11 +9,11 @@ This is a partial index of topics in Katagiri Roshi’s talks. It only includes 
 
 Sections:
 
-- [Dogen Index](#dogen-index)
+- [Dōgen Index](#dogen-index)
   - [Shobogenzo](#shobogenzo)
   - [Shobogenzo Zuimonki](#shobogenzo-zuimonki)
   - [Eihei Koroku](#eihei-koroku)
-  - [Other Dogen](#other-dogen)
+  - [Other Dōgen](#other-dogen)
 - [Mahayana Sutras Index](#mahayana-sutras-index)
 - [Pali Canon Index](#pali-canon-index)
 - [Blue Cliff Record Index](#blue-cliff-record-index)
@@ -21,7 +21,7 @@ Sections:
 
 ----
 
-# Dogen Index
+# Dōgen Index
 
 ## Shobogenzo
 
@@ -44,16 +44,16 @@ Sections:
 
 ### Bendowa
 
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
 
 ### Prajnaparamita
 
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Talk-6#11636)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Talk-6#11636)
 
 ### One Bright Pearl (*Ikka Myōju*)
 
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
 ### Life and Death (*Shōji*)
 
@@ -65,7 +65,7 @@ Sections:
 
 Reference:
 
-- [Dogen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
+- [Dōgen Institute: Four Horses](https://dogeninstitute.wordpress.com/tag/four-horses/)
 
 ### *Shinjin Gakudo* (Studying the Way with Body and Mind)
 
@@ -82,7 +82,7 @@ This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
 [Fukanzazengi – Talk 1 (36:23)](1979-06-09-Fukanzazengi-Talk-1#3623)
 
 - [antaiji.org: Zazengi text](https://antaiji.org/en/classics/zazengi/)
-- [terebess.hu: "The Heart of Dogen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf) 
+- [terebess.hu: "The Heart of Dōgen's Shobogenzo" PDF file](https://terebess.hu/zen/dogen/The-Heart-of-Dogens-Shobogenzo.pdf) 
 
 ### Ocean Seal Samadhi
 
@@ -103,7 +103,7 @@ Japanese: Kaiin-zanmai
 
 [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths, Talk 2 (1:03:19)](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2#10319)
 
-## Other Dogen
+## Other Dōgen
 
 ### Fukanzazengi
 
@@ -137,7 +137,7 @@ Japanese: Kaiin-zanmai
 ### Prajnaparamita Sutra
 
 - [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [*Diamond Sutra*: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
 - [Turning the Three Poisons into Wheels (12:00)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#1200)
 
@@ -167,8 +167,8 @@ Japanese: Kaiin-zanmai
 
 ### Abhidharmakosha
 
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#233)
-- [*Fukanzazengi*: Dogen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3#233)
+- [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
 ### Eightfold Path
 

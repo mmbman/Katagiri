@@ -295,7 +295,7 @@ In other words, *cognition itself*, strictly speaking, cognition itself – not 
 
 So if you swim with total function, you don’t know what the swim is. That is called *shikan*. That is called  “free from thought,” or “transcend thoughts.” That’s why if you want to be free from thoughts, you always, you know, practice, and you must be always in the process, in process of practice, action, with clear mind, not blind. Because action is very dangerous. Because immediately action goes this way or that way. Because action creates result, very naturally. So you have to take care of action as clear as it is. So with your clear mind, you have to do it. 
 
-That is *practice in precision*. Dogen Zenji [talks about] precision, practice in precision. When you do gassho, your whole body and mind must do gassho. Not only two hands. When you play the piano, you have to play the piano with the whole body and mind. That is called *shikan*, your actions. At that time your mind, your body, operates clearly. At that time it is called *free from thoughts*.
+That is *practice in precision*. Dōgen Zenji [talks about] precision, practice in precision. When you do gassho, your whole body and mind must do gassho. Not only two hands. When you play the piano, you have to play the piano with the whole body and mind. That is called *shikan*, your actions. At that time your mind, your body, operates clearly. At that time it is called *free from thoughts*.
 
 It doesn’t mean to try to see something, but to see it as it really is. That means when you swim, you have to swim as you really are. That’s it. Not trying to know swim, or not trying to swim. You just swim. You just swim, there. 
 

@@ -18,11 +18,11 @@ title: "Principles of Practice, Talk 4: Faith"
 
 **Katagiri Roshi:** Today I would like to talk about the key point of the practice in terms of *faith*.
 
-In *Gakudō-yōjinshū*, “Points to Watch in Buddhist Training,” number 9, page 57, Dogen Zenji says:
+In *Gakudō-yōjinshū*, “Points to Watch in Buddhist Training,” number 9, page 57, Dōgen Zenji says:
 
 > To study the Way is to try to become one with it – to forget even a trace of enlightenment. Those who would practice the Way should first of all believe in it. Those who believe in the Way should believe that they have been in the Way from the very beginning, subject to neither delusion, illusive thoughts, and confused ideas nor increase, decrease, and mistaken understanding. Engendering belief like this, clarify the Way and practice it accordingly – this is the essence of studying the Way.
 > 
-> (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
+> (From *Zen Master Dōgen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
 So the essence of the practice, practicing the Way, is to believe that you are present right in the midst of the Way, “subject to neither delusion, illusive thoughts, and confused ideas nor increase, decrease, and mistaken understanding.” 
 
@@ -60,7 +60,7 @@ Just be. [...] *Tathagata* knows how to stop vibrating. That means to just *be* 
 
 #### 15:16
 
-So that [what Dogen Zenji talks about] in the chapter “Buddha Nature.” [It is] a little bit difficult, the terms there, but let me read it:
+So that [what Dōgen Zenji talks about] in the chapter “Buddha Nature.” [It is] a little bit difficult, the terms there, but let me read it:
 
 > Therefore the self and environment of sentient being, whole being is not in the least involved in the waxing influences of karma, ...
 
@@ -102,7 +102,7 @@ That is first [that] we have to *believe* [we ourselves are] exactly present rig
 
 #### 25:23
 
-But next, in the process of reaching this one world – so-called *belief*, *faith* – Dogen Zenji says there are two processes. One is, *cut off the root of discriminating thinking*. Second, *body and mind dropping off*. 
+But next, in the process of reaching this one world – so-called *belief*, *faith* – Dōgen Zenji says there are two processes. One is, *cut off the root of discriminating thinking*. Second, *body and mind dropping off*. 
 
 This is our practice. This is [...] one of the processes to reach that belief: one world; you are present right in the midst of the Way, without any delusions, confusions, perverted views, mistakes. How can we reach there? That is first, we have to cut off the root of discriminating thinking. 
 
@@ -124,7 +124,7 @@ So this is the best way, very simple, and *you* have to do it. I can help, and a
 
 So this is the first point: you have [...] to reach that faith. Believing in yourself right in the midst of the Way, which is completely peaceful, harmonious – with all sentient beings. You should trust in *you* like this, and believe in *you* like this. 
 
-How? This is the practice. First, how can we do it? How can we reach there? That is the practice: first cut off delusion, the root of discriminating mind. And then very naturally, secondly, Dogen Zenji says, body and mind [are] dropping off. 
+How? This is the practice. First, how can we do it? How can we reach there? That is the practice: first cut off delusion, the root of discriminating mind. And then very naturally, secondly, Dōgen Zenji says, body and mind [are] dropping off. 
 
 [...] This is called *total realization*. If you cut off the root of discriminating mind, put yourself right there, and then you can see the whole situation of the Twin Cities [as] if you are on the top of the IDS tower. 
 
@@ -136,25 +136,25 @@ So constantly you put your body and mind right in the middle of the very minute 
 
 #### 35:48
 
-But Dogen Zenji was very compassionate, very kind, if you read *The Record of Things Heard*. In the *Gakudō-yōjinshū* he [said it] like this: you cut off delusion, cut off the root of the discriminating mind, right here, right now, day by day; this is the important process to reach that Buddhist faith. But [in *The Record of Things Heard*], Dogen Zenji said, still it’s pretty hard. It’s very hard.
+But Dōgen Zenji was very compassionate, very kind, if you read *The Record of Things Heard*. In the *Gakudō-yōjinshū* he [said it] like this: you cut off delusion, cut off the root of the discriminating mind, right here, right now, day by day; this is the important process to reach that Buddhist faith. But [in *The Record of Things Heard*], Dōgen Zenji said, still it’s pretty hard. It’s very hard.
 
-Very naturally you can see [that] you are tempted by worldly affairs. Even though we know how important practice is, [and] what kind of practice is important for me, for all of you, [still] it’s very difficult. So Dogen Zenji says, or ancestors and buddhas say, “Please forsake your body and mind, plunging into Buddha’s world.” That means plunging into that just one world, the very first moment of being present right now, right here; which is very pure and clean, beyond good or bad, right or wrong. We have to practice; that is called “forsake your body and mind.”
+Very naturally you can see [that] you are tempted by worldly affairs. Even though we know how important practice is, [and] what kind of practice is important for me, for all of you, [still] it’s very difficult. So Dōgen Zenji says, or ancestors and buddhas say, “Please forsake your body and mind, plunging into Buddha’s world.” That means plunging into that just one world, the very first moment of being present right now, right here; which is very pure and clean, beyond good or bad, right or wrong. We have to practice; that is called “forsake your body and mind.”
 
 But still, the worldly affairs *[unintelligible]*. So it’s very difficult.
 
-From [here] on, [...] I give you the spirit of Dogen’s compassion through this *Record of Things Heard*. I don’t want to translate it, I don’t want to read it [verbatim], but this is the first thing Dogen Zenji mentions. You have to constantly forsake yourself, give yourself to that one first very moment, which is pure and clean. But it’s very difficult. Because if you live in the worldly affairs, you are immediately tempted by many circumstances, conditions. 
+From [here] on, [...] I give you the spirit of Dōgen’s compassion through this *Record of Things Heard*. I don’t want to translate it, I don’t want to read it [verbatim], but this is the first thing Dōgen Zenji mentions. You have to constantly forsake yourself, give yourself to that one first very moment, which is pure and clean. But it’s very difficult. Because if you live in the worldly affairs, you are immediately tempted by many circumstances, conditions. 
 
-And then very naturally people say, “I don’t have the way seeking mind, I don’t want to have aspiration. I want to have aspiration, but it’s very difficult to keep it.” So we say, “I don’t want to practice.” Because Dogen Zenji or ancestors say that first you need the way seeking mind, *bodhicitta*, but what you can see is yourself who is constantly tempted by the worldly affairs. So very naturally you lose the spirit of *bodhicitta*, ...
+And then very naturally people say, “I don’t have the way seeking mind, I don’t want to have aspiration. I want to have aspiration, but it’s very difficult to keep it.” So we say, “I don’t want to practice.” Because Dōgen Zenji or ancestors say that first you need the way seeking mind, *bodhicitta*, but what you can see is yourself who is constantly tempted by the worldly affairs. So very naturally you lose the spirit of *bodhicitta*, ...
 
 *[Tape change.]*
 
-... you give up. But Dogen Zenji [says it] like this: “Even though you don’t have bodhi-mind, please be willing to follow the teaching, follow the practice, to be the follower, because nothing is impossible to a willing heart. So please *do it*, even though you don’t have a bodhi-mind.”
+... you give up. But Dōgen Zenji [says it] like this: “Even though you don’t have bodhi-mind, please be willing to follow the teaching, follow the practice, to be the follower, because nothing is impossible to a willing heart. So please *do it*, even though you don’t have a bodhi-mind.”
 
 If you look seriously at yourself, you believe that “I don’t have a bodhi-mind.” We don’t know what the bodhi-mind is. But even though you don’t [know], [still,] practically, please take the initiative to practice, okay? With a willing heart. Constantly. And then, naturally you will come to deepen your life. 
 
 Why do we have to do it? 
 
-Then Dogen Zenji says, “In the ancient time, there were many, many ancestors, buddhas, who tried to practice, [...] under various conditions, without being tossed away by cold and heat, et cetera. Anyway, they were very patient and continued to practice. Ancestors and buddhas are not strong or brave persons, but nevertheless ancestors and buddhas have been practicing for long with a willing heart, so that’s why they reach the Buddha’s way. So please look at the ancestors and buddhas in ancient times.” 
+Then Dōgen Zenji says, “In the ancient time, there were many, many ancestors, buddhas, who tried to practice, [...] under various conditions, without being tossed away by cold and heat, et cetera. Anyway, they were very patient and continued to practice. Ancestors and buddhas are not strong or brave persons, but nevertheless ancestors and buddhas have been practicing for long with a willing heart, so that’s why they reach the Buddha’s way. So please look at the ancestors and buddhas in ancient times.” 
 
 This is encouragement for us. Don’t look at yourself only, but look at yourself in terms of ancestors and buddhas: how they did it, how they continued to practice. 
 
@@ -164,7 +164,7 @@ So, please do not believe that you are – what would you say – despicable. Do
 
 #### 44:03
 
-Dogen Zenji encourages us like this, and then naturally – not naturally, *probably* – we could have *bodhicitta*, the way seeking mind. Let’s do it! Let’s start to practice zazen, and listen to Buddha’s teaching. Let’s start. 
+Dōgen Zenji encourages us like this, and then naturally – not naturally, *probably* – we could have *bodhicitta*, the way seeking mind. Let’s do it! Let’s start to practice zazen, and listen to Buddha’s teaching. Let’s start. 
 
 But: the more seriously you start to practice – for five years, ten years – the more you can see no “hit” among the hundreds of attempts to hit to the bullseye. It’s very difficult. 
 
@@ -176,7 +176,7 @@ It is very natural. Because the Buddha’s world or the world of the universe is
 
 So very naturally, you can see no “hit,” among the hundred thousand attempts to hit the bullseye. Nothing. So most people are completely discouraged.
 
-And then Dogen Zenji says, “But don’t be discouraged by realizing no hit among the hundred attempts to hit the bullseye. Please don’t be discouraged, and continue to be a follower of the Buddha’s Way, by virtue of turning a willing ear to buddhas’ and ancestors’ teaching, and giving a willing hand to teachers and ancestors and buddhas. And please, continue to practice like this.” He said *waku jū chishiki*, which means following the teacher – following a great teacher, following the ancestors, following the buddhas. And [after *waku jū chishiki*], *waku jū kyōkan* means following the scriptures, Buddha’s teaching. 
+And then Dōgen Zenji says, “But don’t be discouraged by realizing no hit among the hundred attempts to hit the bullseye. Please don’t be discouraged, and continue to be a follower of the Buddha’s Way, by virtue of turning a willing ear to buddhas’ and ancestors’ teaching, and giving a willing hand to teachers and ancestors and buddhas. And please, continue to practice like this.” He said *waku jū chishiki*, which means following the teacher – following a great teacher, following the ancestors, following the buddhas. And [after *waku jū chishiki*], *waku jū kyōkan* means following the scriptures, Buddha’s teaching. 
 
 So don’t be discouraged; please continue to practice, by virtue of the turning [your] willing the ears to listen to Buddha’s teaching, and giving your willing hands to great teachers, ancestors, and buddhas. 
 
@@ -198,15 +198,15 @@ But it is [an] event which occurs just in a moment. So you don’t see it.
 
 So that’s why very naturally according to your intellectual sense, you can see “no hit” among a hundred thousand attempts to try to hit the bullseye. Nothing. 
 
-That’s why we need the encouragement – “please, follow like this” – [which] Dogen mentions. 
+That’s why we need the encouragement – “please, follow like this” – [which] Dōgen mentions. 
 
 #### 55:14
 
-That is called *reflection*. And also Dogen Zenji mentions in this book – Number Six, page 53 – the second paragraph from the bottom:
+That is called *reflection*. And also Dōgen Zenji mentions in this book – Number Six, page 53 – the second paragraph from the bottom:
 
 > The Buddha Sakyamuni said, “Turning the sound-perceiving stream of the mind inward, forsake knowing and being known.” 
 > 
-> (From *Zen Master Dogen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
+> (From *Zen Master Dōgen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
 This is cutting off the root of discriminating mind, so-called reflection. “Learn the backward step, and turn your light inwardly to illuminate yourself.” How do you do this? This is “Avalokiteshvara turns the sound-perceiving.” 
 
@@ -222,7 +222,7 @@ So Avalokiteshvara listens to that sound. If you listen to the sound, immediatel
 
 So very naturally Avalokiteshvara listens, but simultaneously Avalokiteshvara is free from knowing and [what] is known. Free from subject, object. It means Avalokiteshvara constantly stands up in the *source*, [the] first source, the very basis of the being, which is silent and stable, from where the life of all sentient beings blooms. So Avalokiteshvara constantly goes back to that space, that world, that point. And then, he or she can help. He or she can help all sentient beings. 
 
-So that is called “Avalokiteshvara turns the sound-perceiving stream of the mind, forsakes knowing and being known.” According to Dogen’s message, I think you have to cut off the root of discriminating mind. 
+So that is called “Avalokiteshvara turns the sound-perceiving stream of the mind, forsakes knowing and being known.” According to Dōgen’s message, I think you have to cut off the root of discriminating mind. 
 
 [You may ask,] “Shall I do zazen forever, in order to deepen my life, in order to make my life happy?” Yes, you should do it. 
 
@@ -234,7 +234,7 @@ So, this is the point of the practice in terms of Buddhist faith.
 
 Constantly, first of all, you are a great container. Trust in this: you are a great container, beyond good or bad, right or wrong. Don’t put yourself down, don’t despise yourself. Anyway, encourage yourself constantly, and do it. 
 
-That’s why Dogen Zenji says practice is just like walking in the mist. It’s a really good example: walking in the mist, constantly, and then, before you are conscious of it, your dress gets wet. This is our practice. Otherwise, you cannot continue to practice, no. It’s very difficult to build up peaceful world. But if your practice is exactly just like walking in the mist, before you are conscious of it, your dress gets wet. If you practice like this, you really create peaceful life. And you can help all sentient beings. 
+That’s why Dōgen Zenji says practice is just like walking in the mist. It’s a really good example: walking in the mist, constantly, and then, before you are conscious of it, your dress gets wet. This is our practice. Otherwise, you cannot continue to practice, no. It’s very difficult to build up peaceful world. But if your practice is exactly just like walking in the mist, before you are conscious of it, your dress gets wet. If you practice like this, you really create peaceful life. And you can help all sentient beings. 
 
 Okay. Do you have a question? 
 
@@ -246,7 +246,7 @@ So, I think usually you can see the person who really wants to [do] religious pr
 
 But we don’t do it, usually. 
 
-That’s why Dogen Zenji says, the basic attitude is *this*, but nevertheless, you cannot follow it exactly, it’s very difficult. That’s why you need the compassion, wisdom, encouragement, practicing together, et cetera. 
+That’s why Dōgen Zenji says, the basic attitude is *this*, but nevertheless, you cannot follow it exactly, it’s very difficult. That’s why you need the compassion, wisdom, encouragement, practicing together, et cetera. 
 
 Read this *Record of Things Heard*. *Shōbōgenzō* is very strict in a sense, but on the other hand, this *Record of Things Heard* tries to encourage us to practice, to follow the Buddha’s way, continually, with really deep compassion. 
 

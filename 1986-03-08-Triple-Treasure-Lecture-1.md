@@ -42,7 +42,7 @@ That is the Precepts. So the Triple Treasure is the very foundation of the Prece
 
 #### 9:33
 
-In *Zen Master Dogen*, page 60, I think Dogen Zenji talks about this Triple Treasure. He said it here like this: 
+In *Zen Master Dōgen*, page 60, I think Dōgen Zenji talks about this Triple Treasure. He said it here like this: 
 
 >  ... you should deeply venerate the Three Treasures. They deserve our veneration and respect no matter how much our life and body may change.  
 
@@ -56,9 +56,9 @@ And that is, in English we say *take refuge in*. Or another expression in Englis
 
 #### 14:00
 
-And also, Dogen Zenji says, [through] day and night, be mindful of the Triple Treasure. In your everyday life, be mindful of the Triple Treasure. 
+And also, Dōgen Zenji says, [through] day and night, be mindful of the Triple Treasure. In your everyday life, be mindful of the Triple Treasure. 
 
-Why? What is the reason why we have to do this? Dogen Zenji says, 
+Why? What is the reason why we have to do this? Dōgen Zenji says, 
 
 > We take refuge in the Buddha because he is our great teacher. 
 
@@ -94,7 +94,7 @@ So we are human beings, but we are not human beings. We shouldn’t forget this 
 
 #### 24:31
 
-And next Dogen Zenji says:
+And next Dōgen Zenji says:
 
 > It is only by taking refuge in the Three Treasures that one can become a disciple of the Buddha and become qualified to receive all the other precepts.
 

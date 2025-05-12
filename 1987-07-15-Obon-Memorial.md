@@ -151,7 +151,7 @@ So in Buddhism we call Parinama. Parinama means turning the merit of your practi
 
 So anyway, that's why if you practice, if you do zazen, that merit of the practice extends to you, to people around you, and also to the trees, birds, and also parents, the people for the seven generations. In other words, to extend *all* universe in ten directions. 
 
-So if you read *Jijiyu Samadhi*, *Jijiyu Zanmai*, on the sutra card, Dogen [talks] about this. This is the real significance of doing zazen exactly. Sitting truly with wholeheartedness, you can taste it, this one. 
+So if you read *Jijiyu Samadhi*, *Jijiyu Zanmai*, on the sutra card, Dōgen [talks] about this. This is the real significance of doing zazen exactly. Sitting truly with wholeheartedness, you can taste it, this one. 
 
 #### 2 - 14:44
 
