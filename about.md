@@ -16,6 +16,4 @@ Words where I am unsure of the best transcription, or where I am adding words to
 
 Katagiri Roshi’s talks are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org). For more information, visit [The Katagiri Project Home Page](https://www.mnzencenter.org/katagiri-project.html).
 
-You can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts).
-
-If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
+You can follow [Katagiri Transcripts on Facebook](https://www.facebook.com/KatagiriTranscripts). If you have comments or questions, you can [email me](mailto:michaelhoward@mac.com).
