@@ -5,8 +5,6 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Soto Zen Buddhism.
 
-For one good entry point into Katagiri Roshi’s teaching, see the [“Fundamentals of Zen”](fundamentals) series.
-
  [**Introduction**](about)
 
 **Talk Series:**
