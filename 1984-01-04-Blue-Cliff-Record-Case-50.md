@@ -15,7 +15,7 @@ title: "Blue Cliff Record Case 50: Yun Men’s Every Atom Samadhi"
 
 #### 0:00
 
-Case Number Fifty: “Yun Men’s Every Atom Samadhi.” 
+**Katagiri Roshi:** Case Number Fifty: “Yun Men’s Every Atom Samadhi.” 
 
 Pointer: 
 
