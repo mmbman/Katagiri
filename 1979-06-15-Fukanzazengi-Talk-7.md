@@ -94,7 +94,7 @@ That’s why Dōgen Zenji says, “Buddha uses this from morning to night and cu
 
 #### 31:33
 
-That’s [also] why in [*Fukanzazengi*](topics#fukanzazengi) [Dōgen says], *[thunder]*
+That’s [also] why in *Fukanzazengi* [Dōgen says], *[thunder]*
 
 > Zazen must be deportment beyond one’s hearing and seeing.
 

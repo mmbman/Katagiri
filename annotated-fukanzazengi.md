@@ -10,7 +10,7 @@ Katagiri Roshi discussed *Fukanzazengi* – Zen Master Dōgen’s “Universal R
 
 The text annotated here is the [Sōtōshū translation of *Fukanzazengi* (external link)](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many English-speaking Zen centers. Alternative translations by Katagiri Roshi are provided where they are available.
 
-No single English translation of *Fukanzazengi* should be taken as authoritative. For a comparison of six English translations of Fukanzazengi, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf).
+No single English translation of *Fukanzazengi* should be taken as authoritative. For a comparison of six English translations of *Fukanzazengi*, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf).
 
 ---
 
@@ -60,12 +60,12 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 
 > Body and mind of themselves will drop away, and your original face will manifest. 
 
-- “Body and mind of themselves will drop away” is extensively discussed in the [*Fukanzazengi*](fukanzazengi) series. Particularly see the beginning of [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4): “In shikantaza, all delusions drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself.” And also: “Dōgen Zenji says, ‘Zazen is dropping off body and mind.’ Remember this. In your whole life, you should remember: ‘Zazen is dropping off body and mind.’ It means all delusions drop off.” 
+- “Body and mind of themselves will drop away” is extensively discussed in the [*Fukanzazengi*](fukanzazengi) series. Particularly see the beginning of [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4): “In shikantaza, all delusions drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself.” And also: “Dōgen Zenji says, ‘Zazen is dropping off body and mind.’ Remember this. In your whole life, you should remember: ‘Zazen is dropping off body and mind.’ It means all delusions drop off.” 
 - “Dropping off body and mind” is discussed in conjunction with “from the first, dullness and distraction are struck aside.” See the notes for “dullness and distraction are struck aside” below, closer to the end.
 - Another clear reference is in [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4): “So that is, if you put your body *right there*, then you can drop off your body and mind, drop off, you can be free from the root of discriminating mind. That means you can be exactly one with the very minute vibration of the mind. And then, no concept of the minute vibration of the mind.”
 - Or, see [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind). This is an important talk where dropping off body and mind is discussed in relation to *compassion*. 
 - A good search term in KR’s talks is “drop off.” There are many references to things that “drop off”: delusions, dullness and distraction, verbal explanations, all unwholesome things, all unwholesome human behaviors, thought and discursive thinking, ideas, the “concept of wondrous practice which you have realized” ... and so on.
-- “Original face” is discussed in connection with *total personality* and *buddha-nature* at the beginning of [“Fukanzazengi – Talk 2”](1979-06-10-Fukanzazengi-Talk-2). See also [“Fukanzazengi – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [1:16:36](1979-06-14-Fukanzazengi-Talk-6#11636), and [“Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2”](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) after [1:00:05](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#10005).
+- “Original face” is discussed in connection with *total personality* and *buddha-nature* at the beginning of [“*Fukanzazengi* – Talk 2”](1979-06-10-Fukanzazengi-Talk-2). See also [“*Fukanzazengi* – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [1:16:36](1979-06-14-Fukanzazengi-Talk-6#11636), and [“Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2”](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) after [1:00:05](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#10005).
 
 > If you want to realize such, get to work on such right now.
 
@@ -78,27 +78,27 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
    - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
-- “A quiet room is suitable” is discussed as “arrangement of the sensory system” in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [36:23](1979-06-09-Fukanzazengi-Talk-1#3623), and in the rest of the series, along with additional details from *Shōbōgenzō Zazengi* (which is distinct from *Fukan Zazengi*).
+- “A quiet room is suitable” is discussed as “arrangement of the sensory system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [36:23](1979-06-09-Fukanzazengi-Talk-1#3623), and in the rest of the series, along with additional details from *Shōbōgenzō Zazengi* (which is distinct from *Fukan Zazengi*).
 
 > Eat and drink moderately. 
 
-- “Eat and drink moderately” (and also “breathe gently through your nose”) is discussed as “arrangement of the internal organ system” or “gut system” in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [42:38](1979-06-09-Fukanzazengi-Talk-1#4238), and in the rest of the series.
+- “Eat and drink moderately” (and also “breathe gently through your nose”) is discussed as “arrangement of the internal organ system” or “gut system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [42:38](1979-06-09-Fukanzazengi-Talk-1#4238), and in the rest of the series.
 
 > Put aside all involvements and suspend all affairs. 
 
-- “Cast aside all involvements; cease all affairs” is discussed as “arrangement of circumstances” in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1” (34:20)](1979-06-09-Fukanzazengi-Talk-1#3420) and in the rest of the series.
+- “Cast aside all involvements; cease all affairs” is discussed as “arrangement of circumstances” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (34:20)](1979-06-09-Fukanzazengi-Talk-1#3420) and in the rest of the series.
 - “Cease all affairs, all involvements” is discussed in [“*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 1”](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
 - “Throw away all affairs” is discussed in [“Arts and Buddhism”](1983-10-29-Arts-and-Buddhism)
 - “Throw away all worldly affairs,” et cetera is discussed in [“*The Awakening of Faith* – Talk 38”](1986-05-02-Awakening-of-Faith-Talk-38)
 
 > Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down?
 
-- This is discussed as the “arrangement of the brain and nervous system” in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1” (44:56)](1979-06-09-Fukanzazengi-Talk-1#4456) and in the rest of the series.
+- This is discussed as the “arrangement of the brain and nervous system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (44:56)](1979-06-09-Fukanzazengi-Talk-1#4456) and in the rest of the series.
 - Here Katagiri Roshi uses the Norman Waddell and Masao Abe translation: “Do not think good or bad; do not administer pros and cons.” “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
 > At your sitting place, spread out a thick mat and put a cushion on it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, first place your right foot on your left thigh, then your left foot on your right thigh. In the half-lotus, simply place your left foot on your right thigh. Tie your robes loosely and arrange them neatly. Then place your right hand on your left leg and your left hand on your right palm, thumb-tips lightly touching. Straighten your body and sit upright, leaning neither left nor right, neither forward nor backward. Align your ears with your shoulders and your nose with your navel. Rest the tip of your tongue against the front of the roof of your mouth, with teeth together and lips shut. 
 
-- This is discussed as the arrangement of the “movement system” in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1” (39:42)](1979-06-09-Fukanzazengi-Talk-1#3942) and in the rest of the series.
+- This is discussed as the arrangement of the “movement system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (39:42)](1979-06-09-Fukanzazengi-Talk-1#3942) and in the rest of the series.
 
 > Always keep your eyes open, and breathe softly through your nose.
 
@@ -118,9 +118,9 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside.
 
 - KR translates this as: “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.”
-- This line is extensively discussed in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) as “a sort of conclusion of the main subject in *Fukanzazengi*,” and as “[the real] meaning of *shikantaza*.”
-- “Dullness and distraction” are meant to exemplify all kinds of delusions. See [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3).
-- "Dullness and distraction" are extensively discussed in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3), and also [Talk 5](1979-06-13-Fukanzazengi-Talk-5) and [Talk 6](1979-06-14-Fukanzazengi-Talk-6).
+- This line is extensively discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) as “a sort of conclusion of the main subject in *Fukanzazengi*,” and as “[the real] meaning of *shikantaza*.”
+- “Dullness and distraction” are meant to exemplify all kinds of delusions. See [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3).
+- "Dullness and distraction" are extensively discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3”](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3), and also [Talk 5](1979-06-13-Fukanzazengi-Talk-5) and [Talk 6](1979-06-14-Fukanzazengi-Talk-6).
 - This is synonymous with “body and mind of themselves will drop away.” See above.
 
 > When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. 
@@ -130,17 +130,17 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 > In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
 
 - KR translates this as: “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen.”
-- See [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 4”](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
+- See [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
 
 > In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; ...
 
 - KR translates this as: “In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.”
-- This is discussed in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) at [21:38](1979-06-14-Fukanzazengi-Talk-6#2138).
+- This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) at [21:38](1979-06-14-Fukanzazengi-Talk-6#2138).
 
 > ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views?
 
 - KR translates this as: “... it cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions?”
-- This is discussed in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [39:44](1979-06-14-Fukanzazengi-Talk-6#3944).
+- This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [39:44](1979-06-14-Fukanzazengi-Talk-6#3944).
 
 > This being the case, intelligence or lack of it is not an issue; make no distinction between the dull and the sharp-witted. If you concentrate your effort single-mindedly, that in itself is wholeheartedly engaging the way.
 Practice-realization is naturally undefiled. Going forward is, after all, an everyday affair.
