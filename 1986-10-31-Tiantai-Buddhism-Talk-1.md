@@ -121,7 +121,7 @@ However, the decline of Tendai teaching didn't [result in ignoring] the teaching
 
 And also the Chinese Tendai school was handed down to Japan. The founder's name is Saichō, and Saichō founded the Tendai school in Japan at Mount Hiei, which exists [today] in Japan, where major founders of new Buddhism [in the] Kamakura [era] studie[d] at Mount Hiei and Tendai teaching first. 
 
-And then Nichiren, founder of the Nichiren school, and Shinran, founder of Shinshū Pure Land school. And Zen: Dōgen Zenji, founder of Soto Zen. And also Hōnen, the founder of Jodo Shinshu Pure Land school; Hōnen is Shinran's teacher. Those teachers studied at Mount Hiei and the Tendai teaching first. 
+And then Nichiren, founder of the Nichiren school, and Shinran, founder of Shinshū Pure Land school. And Zen: Dōgen Zenji, founder of Sōtō Zen. And also Hōnen, the founder of Jodo Shinshu Pure Land school; Hōnen is Shinran's teacher. Those teachers studied at Mount Hiei and the Tendai teaching first. 
 
 [The] Japanese Tendai school is a little different taste from Chinese Tendai. But in this book, I think [there is] the general point of Tendai teaching in China. 
 

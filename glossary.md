@@ -282,7 +282,7 @@ Vajracchedikā Prajñāpāramitā Sūtra
 
 ## Dōgen
 
-Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Soto Zen Buddhism](glossary#soto-zen ) in Japan. Dōgen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Soto Zen Buddhism in general). His most famous work is [Shōbōgenzō](topics#shobogenzo). 
+Eihei Dōgen (永平道元; 19 January 1200 – 22 September 1253) - "Eternal Peace Way Source" - was the founder of [Sōtō Zen Buddhism](glossary#soto-zen ) in Japan. Dōgen is probably the most frequently referenced source in Katagiri Roshi's talks (and in Sōtō Zen Buddhism in general). His most famous work is [Shōbōgenzō](topics#shobogenzo). 
 
 Katagiri Roshi often refers to him respectfully as "Dōgen Zenji": Zen Master Dogen.
 
@@ -371,7 +371,7 @@ External link: [Wikipedia: Four Dharma Seals](https://en.wikipedia.org/wiki/Four
 
 ## Fukanzazengi
 
-*Fukanzazengi* – Dōgen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Soto Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
+*Fukanzazengi* – Dōgen's "Universal Recommendation for Zazen" – provides the cannonical guidance for practicing zazen in the [Sōtō Zen](glossary#soto-zen ) school. It is often recited daily during [sesshins](glossary#sesshin).
 
 ## Fukutoku
 
@@ -410,7 +410,7 @@ Chinese Zen Master, 835 - 908 CE. A successor of [Seppō Gison](#seppō-gison).
 
 ## Green Gulch
 
-Green Gulch Farm near San Francisco, California, one of the [Soto Zen](glossary#soto-zen ) practice centers established by [Suzuki Roshi](#suzuki-roshi).
+Green Gulch Farm near San Francisco, California, one of the [Sōtō Zen](glossary#soto-zen ) practice centers established by [Suzuki Roshi](#suzuki-roshi).
 
 - [Fukanzazengi – Talk 3 (59:40)](1979-06-11-Fukanzazengi-Talk-3#5940)
 
@@ -533,7 +533,7 @@ External link: [Wikipedia: Zhaozhou Congshen](https://en.wikipedia.org/wiki/Zhao
 
 ## Katagiri
 
-Dainin Katagiri Roshi, a primary figure who brought [Soto Zen](glossary#soto-zen) Buddhism to America. His Buddhist name, Jikai Dainin, means "Compassion Ocean Great Patience". In these talks he is usually addressed as [Roshi](glossary#roshi) or Hojo-san, but he often refers to himself as "Katagiri". He sometimes refers to his younger self (e.g. in monastic training) as just [Dainin](glossary#dainin).
+Dainin Katagiri Roshi, a primary figure who brought [Sōtō Zen](glossary#soto-zen) Buddhism to America. His Buddhist name, Jikai Dainin, means "Compassion Ocean Great Patience". In these talks he is usually addressed as [Roshi](glossary#roshi) or Hojo-san, but he often refers to himself as "Katagiri". He sometimes refers to his younger self (e.g. in monastic training) as just [Dainin](glossary#dainin).
 
 ## Keitoku Dentō-roku
 
@@ -585,7 +585,7 @@ External link: [Wikipedia: Mahayana](https://en.wikipedia.org/wiki/Mahayana)
 
 ## Manjushri
 
-The [Bodhisattva](glossary#bodhisattva) of Discerning Wisdom. Traditionally, [Soto Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](glossary#zendo). 
+The [Bodhisattva](glossary#bodhisattva) of Discerning Wisdom. Traditionally, [Sōtō Zen](glossary#soto-zen) temples have a statue of Manjushri in the [zendo](glossary#zendo). 
 
 External link: [Wikipedia: Manjushri](https://en.wikipedia.org/wiki/Manjushri)
 
@@ -807,7 +807,7 @@ External links:
 
 ## San Francisco Zen Center
 
-The [Soto Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with [Suzuki Roshi](glossary#suzuki-roshi) in the 60's. 
+The [Sōtō Zen](glossary#soto-zen ) temple in San Francisco where Katagiri worked with [Suzuki Roshi](glossary#suzuki-roshi) in the 60's. 
 
 - [Fukanzazengi – Talk 3 (1:40:15)](1979-06-11-Fukanzazengi-Talk-3#14015),
 - [Fukanzazengi – Talk 4 (54:16)](1979-06-12-Fukanzazengi-Talk-4#5416)
@@ -878,7 +878,7 @@ The “*just*” from “just sitting”; see [shikantaza](glossary#shikantaza).
 
 ## Shikantaza
 
-A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Soto Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
+A Japanese word meaning “just sitting”. “Shikan” is not "just" in a casual sense, but with emphasis: ***Just*** *sitting*. Shikantaza is difficult to define in concrete terms, but it is the primary practice in [Sōtō Zen](glossary#soto-zen ), so Katagiri discusses it frequently.
 
 - [Fukanzazengi – Talk 2 (25:09)](1979-06-10-Fukanzazengi-Talk-2#2509)
 - [Fukanzazengi – Talk 3 (1:04:30)](1979-06-11-Fukanzazengi-Talk-3#10430), [(1:08:27)](1979-06-11-Fukanzazengi-Talk-3#10827)
@@ -905,7 +905,7 @@ Shōbōgenzō: "Treasury of the True Dharma Eye" is a collection of texts by [D�
 
 External link: [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 
-## Soto Zen
+## Sōtō Zen
 
 ## Śrīmālādevī Siṃhanāda Sutra
 

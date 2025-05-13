@@ -242,7 +242,7 @@ It’s really true. He got out!
 
 If you get out, the story is over. Don’t give up. *[Laughter.]*
 
-If you want to be a Rinzai Zen [center], I wish I could, but... maybe next life. I like very much this powerful, strong *[unintelligible]*. But if I do imitate Rinzai’s way, no one believes me! *[Laughter.]* So I give up! Katagiri must be Katagiri, okay? I don’t have any capability to combine Rinzai and Soto, like Maezumi Roshi. He is very smart ... *[unintelligible]* can show this is Rinzai, and this is Soto, this is Buddhism. That’s pretty good. But I can’t do this. 
+If you want to be a Rinzai Zen [center], I wish I could, but... maybe next life. I like very much this powerful, strong *[unintelligible]*. But if I do imitate Rinzai’s way, no one believes me! *[Laughter.]* So I give up! Katagiri must be Katagiri, okay? I don’t have any capability to combine Rinzai and Sōtō, like Maezumi Roshi. He is very smart ... *[unintelligible]* can show this is Rinzai, and this is Sōtō, this is Buddhism. That’s pretty good. But I can’t do this. 
 
 Well, I think I should stop. 
 

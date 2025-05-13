@@ -112,7 +112,7 @@ So that is called *light*. Light comes from everywhere.
 
 > Hsueh Tou says, “How many people can there be who know the weight of this seven-pound shirt?”  
 
-[This part is because,] “I am Katagiri[’s] very small body, but Katagiri creates universal life” – it’s really true, but it’s very difficult to show you, to tell you. That’s why in Zen, particularly in the Soto tradition, you have to learn that point from life. From the living teacher, living together – anyway, learn from everyday. Because it’s very hard to explain. 
+[This part is because,] “I am Katagiri[’s] very small body, but Katagiri creates universal life” – it’s really true, but it’s very difficult to show you, to tell you. That’s why in Zen, particularly in the Sōtō tradition, you have to learn that point from life. From the living teacher, living together – anyway, learn from everyday. Because it’s very hard to explain. 
 
 An individual knows that point in a moment of time only. Even the teacher knows this point in the moment of time only. So that’s why *everyday* works very well, vividly. And then through this life you have to have your mature eyes to see, to get it. That is [what] we call *zuishin*, [which] means following the body, [which] means following the teacher. [*Zuishin* is] that system of practice with the teacher – living and studying [with the teacher].
 

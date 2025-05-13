@@ -123,11 +123,11 @@ Well, even the zazen. There are many kinds of zazen, sitting meditation. Christi
 
 And there are many meditations: yoga meditations... yoga meditation itself is not dualistic, it is non-dualistic, but people *use* yoga meditation as a dualistic technique. At that time, *endlessly*, you have to seek for the yoga meditation in order to... what? Always there is a purpose, always there is a certain stage you have to reach. If you cannot, you are a failure. So, very naturally, there is encouragement there, but on the other hand, there is disappointment there, always. So, how can you get the peace? 
 
-And, also, sitting in zazen. Even the zazen in Zen, okay? There are a couple of different zazen there. Rinzai zazen, and Soto zazen. And Obaku zazen. [Huang Po] zazen. Chinese zazen, Korean zazen, and many kinds of zazen. 
+And, also, sitting in zazen. Even the zazen in Zen, okay? There are a couple of different zazen there. Rinzai zazen, and Sōtō zazen. And Obaku zazen. [Huang Po] zazen. Chinese zazen, Korean zazen, and many kinds of zazen. 
 
-Even, you can say, mainly everyone knows Rinzai and Soto, okay? If you practice Rinzai zazen, what do they do? Always, the teacher gives you a koan, and you have to research and give an answer to this koan. You have to “pass” many koans, by zazen. So, zazen is a means. The main practice is to find a solution, or to pass in the koans. So, zazen is secondary, so, very naturally, zazen is a means. 
+Even, you can say, mainly everyone knows Rinzai and Sōtō, okay? If you practice Rinzai zazen, what do they do? Always, the teacher gives you a koan, and you have to research and give an answer to this koan. You have to “pass” many koans, by zazen. So, zazen is a means. The main practice is to find a solution, or to pass in the koans. So, zazen is secondary, so, very naturally, zazen is a means. 
 
-Even the Soto priests [...] in Japan always mention sometimes like this. “Of course, zazen is important, but zazen is not the final thing you have to do, but it is a means.” Still people say so. 
+Even the Sōtō priests [...] in Japan always mention sometimes like this. “Of course, zazen is important, but zazen is not the final thing you have to do, but it is a means.” Still people say so. 
 
 But, I don’t think it is *right understanding* of Buddha Shakyamuni’s teaching generally, as a whole. Not Buddha Shakyamuni’s life, but that is all of your life. If you don’t accept your life in that way, you never get peace. 
 

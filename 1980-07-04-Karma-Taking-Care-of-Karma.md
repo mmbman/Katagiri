@@ -18,7 +18,7 @@ Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma
 
 #### 0:00
 
-**Katagiri Roshi:** This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dōgen, the founder of Soto Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dōgen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
+**Katagiri Roshi:** This is my last talk for this week. Next week, I would like to talk about karma from a little bit different angle, particularly according to Dōgen, the founder of Sōtō Zen, because he wrote a [fascicle] on karma in *Shōbōgenzō*. So next week I would like to talk about karma according to Dōgen’s way: how he understands [and] accepts karma. For today’s last talk, as much as possible I would like to have a conclusion.
 
 In Buddhism, meditation is called *dhyāna*. If you really start to study Buddhism, dhyāna or meditation is not a simple practice, it’s pretty deep. Most people handle meditation as a means to make your life strong, et cetera, but this is really just a little bit of understanding of meditation in Buddhism. The more you practice meditation, you really realize how deep meditation is. 
 

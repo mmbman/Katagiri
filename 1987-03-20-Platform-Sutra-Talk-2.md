@@ -287,7 +287,7 @@ This is called *wisdom*. Or, this is called *emptiness*.
 
 Dōgen Zenji [says], “You shouldn’t hate life and death; you shouldn’t love nirvana. You must be free from life and death, you must be free from nirvana.” But it doesn’t mean ignoring nirvana; it’s not ignoring life and death. So, “you must be free from life and death and nirvana” means you yourself must be generous, magnanimous, beyond the concept of life and death which you have thought, or beyond the concept of nirvana which you have thought. You must be generous and compassionate, tolerant. Take a deep breath. Don’t judge immediately. Don’t be ... indulgent, lazy. 
 
-Well, in Soto Zen, we say, “Just sit down; that’s enough.” That is really lazy. *[He laughs.]* Or, that’s why the other school says, “Attain enlightenment! If you don’t, you are not a good student of Zen!” So there is another technique which is giving blows [on] your hip, just like a cow or horse, you know, to get enlightenment. On the other hand, Soto Zen says, “Sit down, that’s enough.” Both are not *right* understanding of the buddha way. 
+Well, in Sōtō Zen, we say, “Just sit down; that’s enough.” That is really lazy. *[He laughs.]* Or, that’s why the other school says, “Attain enlightenment! If you don’t, you are not a good student of Zen!” So there is another technique which is giving blows [on] your hip, just like a cow or horse, you know, to get enlightenment. On the other hand, Sōtō Zen says, “Sit down, that’s enough.” Both are not *right* understanding of the buddha way. 
 
 So, “just sit down”: within that “just sit down,” there is sincerity, sincere heart, and great effort, full devotion there. On the other hand, no attachment. Because if you do *fully*, there is no attachment. You can be free. Generous. 
 

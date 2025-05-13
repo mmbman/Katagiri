@@ -169,7 +169,7 @@ But usually, we always try to live in the realm of awakening or *satori*, and *t
 
 **Someone:** Excuse me, Roshi. Could you clarify what the difference is when you’re say this is a Buddhist view versus this is Dōgen’s view? 
 
-**Katagiri Roshi:** Well, Dōgen’s view is a more practical point. He gives suggestions how to practice it, how to [make] Buddha’s teaching alive in human life, practically. That’s always what Dōgen Zenji [talks about]. So he has very deep thought, [...] and his practice is backed by this deep thought – that’s why people say Soto Zen’s [or] Dōgen’s philosophy [is] “scholastic.” I don’t think he is “scholastic.” *[He laughs.]* He is a pretty religious, genuine person. 
+**Katagiri Roshi:** Well, Dōgen’s view is a more practical point. He gives suggestions how to practice it, how to [make] Buddha’s teaching alive in human life, practically. That’s always what Dōgen Zenji [talks about]. So he has very deep thought, [...] and his practice is backed by this deep thought – that’s why people say Sōtō Zen’s [or] Dōgen’s philosophy [is] “scholastic.” I don’t think he is “scholastic.” *[He laughs.]* He is a pretty religious, genuine person. 
 
 So he always puts it into practice, and then be free from thought, because deep thought is always working in his life as a religious life. So that’s why his practice is very deep. But on the other hand, it’s really manifested, so it’s just like everyday practice. 
 
@@ -321,7 +321,7 @@ That’s a little bit... it seems to be easy, but it’s not so easy, because we
 
 **Katagiri Roshi:** Hmm?
 
-**Questioner:** I’m just trying to figure out... It’s always confusing to me, in Soto Zen, what effort looks like, you know, how you do it. 
+**Questioner:** I’m just trying to figure out... It’s always confusing to me, in Sōtō Zen, what effort looks like, you know, how you do it. 
 
 **Katagiri Roshi:** Well, usually, you direct yourself to the practice, don’t you? That is very common. It’s not confusing. So using your body and your consciousness, anyway, in the physical body and the psychological situation, then you do what? Practice, we say. Practice means using a certain form, and then jump [in], put your body and mind in it. That is our practice. Like putting your body and mind in a bathtub.
 
