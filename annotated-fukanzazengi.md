@@ -10,7 +10,7 @@ Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Reco
 
 The text annotated here is the [Sōtōshū translation of *Fukanzazengi* (external link)](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many English-speaking Zen centers. Alternative translations by Katagiri Roshi are provided where they are available. (No single English translation of *Fukanzazengi* should be taken as authoritative. For a comparison of six English translations of *Fukanzazengi*, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf).)
 
-This is very much a work in progress; I will update this page as I transcribe talks and find additional references.
+This is very much a work in progress. I will update this page as I transcribe talks and find additional references.
 
 ---
 
