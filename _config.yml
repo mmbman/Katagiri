@@ -2,7 +2,7 @@ theme: minima
 title: Katagiri Transcripts
 description: "Zen Dharma Talks by Dainin Katagiri Roshi"
 header_pages:
-  - about.md
+  - introduction.md
   - list.md
   - search.md
 github:
