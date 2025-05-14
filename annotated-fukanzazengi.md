@@ -39,6 +39,7 @@ No single English translation of *Fukanzazengi* should be taken as authoritative
 - In Katagiri Roshi’s talks, discussions of the idea of *separation* or *discrimination* – and its opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” etc. –  are probably too numerous to cite. A random example would be [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50) (the talk I happen to be transcribing at the time of writing), which lines up very well with this discussion.
 - Similarly, “like or dislike” appears too many times to be enumerated here – probably in over ten percent of Katagiri Roshi’s talks.
 - The specific term “hairsbreadth deviation” appears in the *Song of the Jewel Mirror Awareness*. The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
+- “Between heaven and earth”: see “*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? Talk 1” at 51:32 (in progress).
 
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
