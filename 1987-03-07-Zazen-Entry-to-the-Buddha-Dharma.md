@@ -335,7 +335,7 @@ Yes, I can understand. I don’t know. But that is ... well if you explain it, y
 
 Do you understand? No? 
 
-**Questioner:**A little bit. 
+**Questioner:** A little bit. 
 
 **Katagiri Roshi:** Okay, good. That’s enough. [Thank you.] *[Laughter.]* 
 
