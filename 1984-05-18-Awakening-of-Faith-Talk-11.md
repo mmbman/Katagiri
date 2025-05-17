@@ -325,7 +325,7 @@ And also it must be more closely subjective and awakening. At that time it is ca
 
 **Someone:** So by connecting that to ourself, it’s subjective, that gives people more hope. 
 
-**Katagiri Roshi:** Hope? Yes. The concept of "Ara Vijnana" gives some more hope, more deep understanding of the structure of foundation, human foundation of being. 
+**Katagiri Roshi:** Hope? Yes. The concept of "alayavijnana" gives some more hope, more deep understanding of the structure of foundation, human foundation of being. 
 
 In other words, they should be free, anyway. Free from any particular idea – "bad boy" or "good boy." Alright?
 
