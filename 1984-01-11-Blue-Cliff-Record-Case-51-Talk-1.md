@@ -15,9 +15,7 @@ title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi:** 
-
-The 51st case, Hsueh Feng’s “What Is It?” Let me read the case first. 
+**Katagiri Roshi:** The 51st case, Hsueh Feng’s “What Is It?” Let me read the case first:
 
 > When Hsueh Feng was living in a hut, there were two monks who came to pay their respects. Seeing them coming, he pushed open the door of the hut with his hand, popped out, and said, “What is it?” A monk also said, “What is it?” Feng lowered his head and went back inside the hut.
 > 
@@ -33,21 +31,21 @@ I think if you read the commentary, look at page 347, just the middle, it says, 
 
 > Later, due to a purge, Yen T’ou became a ferryman by the shores of Lake O Chu. On each shore hung a board: when someone wanted to cross, he would knock on the board. T’ou would call out, “Which side are you crossing to?” Then he would wave his oar and come out from among the reeds.
 
-From this paragraph, I think at this day Buddhism was about to be destroyed by a government. So that’s why here it says “later due to a purge.” So all Zen monks had to come out of the temple and hide somewhere. So the same applied to Hsueh Feng and also Yen T’ou. 
+From this paragraph, I think at this day Buddhism was about to be destroyed by a government. So that’s why here it says “later, due to a purge.” So all Zen monks had to come out of the temple and hide somewhere. So the same applied to Hsueh Feng and also Yen T’ou. 
 
 In this story Yen T’ou became a ferryman, carrying the people from this shore to the other shore. In Chinese Buddhist history sometimes you can find a very interesting point, because Chinese history went always up and down very roughly. And nevertheless, the history of Buddhism was not exceptional, so Buddhism also always was going up and down. Sometimes Buddhism flourished very well, but sometimes Buddhism was almost destroyed. So whatever happens, a very interesting thing was that Zen monks always survived, somewhere. And then after the peaceful world was coming up, then Zen monks came back, and they started to practice and study Buddhism again. 
 
-So this is one very interesting case. Here it says “later due to a purge”; even though Yen T’ou became a ferryman, still people were interested in this ferryman. Sometimes people went to see him and discuss, listen to his life. 
+So this is one pretty interesting case. Here it says “later due to a purge”: even though Yen T’ou became a ferryman, still people were interested in this ferryman. Sometimes people went to see him and discuss, listen to his life. 
 
-So in this case, Hsueh Feng also was hidden in the heart of the mountains, which was a little difficult for the people to find him. Maybe he lived in the heart of the mountains at the little hut, that’s why it says,
+So in this case, Hsueh Feng also was hidden in the heart of the mountains, which was a little difficult for the people to find him. Maybe he lived in the heart of the mountains at the little hut, that’s why it says:
 
-> When Hsueh Feng was living in a hut, 
+> When Hsueh Feng was living in a hut, ...
 
 So he didn’t have his temple. But nevertheless, monks were interested in seeing him and practicing with him. So, 
 
 > ... there were two monks who came to pay their respects. 
 
-#### 
+#### 8:38
 
 > Seeing them coming, he pushed open the door of the hut with his hand, popped out, and said, “What is it?”
 
