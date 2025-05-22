@@ -130,7 +130,7 @@ This is very much a work in progress. I will update this page as I transcribe ta
 > In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
 
 - KR translates this as: “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen.”
-- See [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
+- This is extensively discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
 
 > In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; ...
 
