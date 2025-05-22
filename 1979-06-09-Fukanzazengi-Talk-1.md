@@ -17,19 +17,21 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s
 
 #### 0:00
 
-**Katagiri Roshi:** The last sentence of the main subject of *Fukanzazengi* – Universal Recommendation for Zazen – says:
+**Katagiri Roshi:** The last sentence of the main subject of *Fukanzazengi*, “Universal Recommendation for Zazen”, says:
 
 > For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.
 
-This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means [that if you do zazen,] the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside.” From the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. 
+This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means [that if you do zazen] the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside.” *From the first*, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. 
 
-This is [the real] meaning of *shikantaza*. It is pretty difficult to understand, but this is really true, which you experience in your daily living. [...] Life is really based on this teaching. 
+This is [the real] meaning of *shikantaza*. It’s pretty difficult to understand, but this is really true, which you experience in your daily living. [Life] is really based on this teaching. 
 
-When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, “from the first, dullness and confusion and distraction are struck aside.” Because you are manifesting yourself as you really are, from moment to moment – in other words, you can stand up straight, right now, right here. But that means you can manifest *yourself*, so if you can stand up straight, right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
+When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, from the first, dullness and confusions and distractions are struck aside, because you are manifesting yourself as you really are from moment to moment. In other words, you can stand up straight, right now, right here, but that means you can manifest *yourself*; so if you can stand up straightly right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
 
 Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion in your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. 
 
-If you really want anger to go away very naturally, all you have to do is, you must be [...] a little bit scared of the world. In other words, if you do gassho, or sometimes, religiously speaking, you pray to [a] God, you pray to the Bodhisattvas, you pray to Avalokiteshvara: “Please help me. Please help.” And at least while you are praying to the God, or you are praying to the Buddha, or Bodhisattva Avalokiteshvara, Manjushri, or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
+If you really want anger to go away, very naturally all you have to do is, you must be in the really big scale of the world. 
+
+In other words, if you do gassho, or sometimes, religiously speaking, you pray to God, you pray to the Bodhisattvas, you pray to Avalokiteshvara: “Please help me. Please help.” And at least while you are praying to God, or you are praying to the Buddha, or Bodhisattva Avalokiteshvara, Manjushri – or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
 
 But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
 
