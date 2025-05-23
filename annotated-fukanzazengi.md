@@ -4,7 +4,7 @@ title: "Annotated Fukanzazengi"
 
 #### Annotations by Kikan Michael Howard
 
-#### Updated May 13, 2025
+#### Updated May 22, 2025
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
@@ -21,6 +21,7 @@ This is very much a work in progress. I will update this page as I transcribe ta
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
 - The meaning of *shō* (證), often translated as “realization,” should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō*, and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment.” See [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5).
 - The oneness of practice and realization is often presented as a key point of Dōgen’s teaching, if not his key point, period. On the statement “to think practice and realization are not one is a heretical view” from *Bendōwa*, see [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4).
+- See also the commentary on these lines in *Each Moment Is the Universe*, Chapter 6, “The Root of the Buddha Way.” This chapter is derived from more than one talk, which may or may not be available in the archive – to be determined.
 
 > The true vehicle is self-sufficient. What need is there for special effort? 
 
@@ -149,6 +150,10 @@ Practice-realization is naturally undefiled. Going forward is, after all, an eve
 
 > You have gained the pivotal opportunity of human form. Do not pass your days and nights in vain. You are taking care of the essential activity of the buddha-way. Who would take wasteful delight in the spark from a flintstone? Besides, form and substance are like the dew on the grass, the fortunes of life like a dart of lightning --emptied in an instant, vanished in a flash.
 
-> Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely.
+> Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. 
+
+- For the (presumably related) story of the blind men touching the elephant, see [“Karma: Taking Care of Karma”](1980-07-04-Karma-Taking-Care-of-Karma) at [45:24](1980-07-04-Karma-Taking-Care-of-Karma#4524), tied to the discussion of *saṃjñā* or “perception.”
+
+> Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely.
 
 - “If you follow this practice, your treasure chest will open of itself and you can use it at will” is discussed in Q&A in [“Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4) at [1:16:15](1987-03-14-Bendowa-Talk-4#11615).
