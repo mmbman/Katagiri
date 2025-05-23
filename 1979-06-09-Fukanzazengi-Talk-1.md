@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendations for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners usually hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha nature*. 
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendation for how to practice zazen (seated meditation), by examining the meaning of the critical line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners often hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha-nature*. 
 
 ### Transcript
 
@@ -71,73 +71,77 @@ That is *shikantaza* – very naturally.
 
 #### 17:16
 
-Psychologically speaking, there are several component factors in living. 
+Psychologically speaking, there are several component factors in our living. 
 
-One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system* [...] And also, the *gut system*: your guts. We have lots of guts. And also, the *brain-nerve system*. (*Transcriber’s Note:* In subsequent talks, the *gut system* is referred to as the *internal organ system*.)
+One is *circumstances*. The second is the sensory world, *sensory system*. And also the movement world, *movement system*. [...] And also, the *guts system*: your guts. We have lots of guts. And also, the *brain-nerve system*. (*Transcriber’s Note:* In subsequent talks, the *guts system* is referred to as the *internal organ system*.)
 
-So [there are] *circumstances* and also the *sensory system*. The sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
+*Circumstances* and also the *sensory system*: the sensory system is to get some information or to give some information to somebody, and to learn information from the outside, through the sensory system, which is called eyes, nose, ears – so, the sense of seeing, sense of hearing, sense of tangibility, et cetera. That is the sensory world, sensory system.
 
-The *movement system* is [that] through your body and mind, by getting the lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
+The *movement system* is [that] through the body and the mind, by getting the lots of information outside [and] inside, immediately you can do [something]. Your whole body and mind create a certain energy to compel you to act. That is the movement system; you have this. That is the complete unity of the sensory system and the nerve and brain system, lots of things, and then immediately you can create a certain movement.
 
-And also, the *gut system*: you have lots of guts. 
-
-And next is the *brain-nerve system*. 
+And also, the *guts system*: you have lots of guts. And next is the *brain-nerve system*. 
 
 And one more thing: that is *total personality*. 
 
-*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. There is Katagiri: that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is *total* personality. 
+*Total personality* is exactly the center of your living, the core of your living. Without total personality, you cannot get circumstances, or sensory world, or movement system – nothing there. 
 
-But *my* personality is something *I* can create, after my birth. But this is kind of *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can’t] create. So I have carried my personality from before my birth; this is maybe my parents, and also maybe I have carried [it] from [...] my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
+There is Katagiri: that core of Katagiri is really supported by total personality. Total personality is the character created by Katagiri in the past, in the present, in the future. My parents, my grandparents, and my ancestors; that is *total* personality. 
+
+*My* personality is something *I* can create, after my birth. But this is kind of *character*. If you say *personality*, psychologically speaking, this is a little bit broad. So *my* personality is something I can create after my birth, but there is another personality I [can’t] create, so I have carried my personality from before my birth. This is maybe my parents, and also maybe I have carried [it] from [...] my grandparents, from my grand-grandparents, and ancestors. That is *total personality*, the *whole* personality. 
 
 So if I see myself – here is Katagiri – immediately there is a certain kind of a “smell.” [...] A part of this *smell* consists of something I have created after my birth. But the other aspect of my *smell* is something I have carried before my birth: from my parents, grandparents, grand-grandparents, and ancestors – maybe from before the world began. So at that time, that personality is really a smell. If you see somebody, there is a smell. Katagiri smells. 
 
-But Katagiri’s *smell* is a kind of a result that we have judged. But from where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future. *Then* you can understand. 
+But Katagiri’s *smell* is a kind of a result that we have judged. From where does that smell come? If you research again and again, finally, there is no evaluation, because you don't know from where it comes. You have to go back to the beginningless past; you have to go back. And you have to go to the endless future. And *then* you can understand. 
 
 So finally, that smell is something not evaluated. That is called *buddha* – or, the *original nature of existence*. But psychologically speaking, that is called *total personality*. Total personality, or maybe *trans-personality*, whatever you say. (*Transcriber’s Note:* *Trans-personality* might be related to [transpersonal psychology](https://en.wikipedia.org/wiki/Transpersonal_psychology).)
 
-But [you immediately smell this] trans-personality: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good, [but] feeling good is not always *feeling good* *[he chuckles]*, not always helping you; sometimes it becomes a “stink.” So whatever *I* feel from my personality, [...] there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. Because that feeling comes from a “stink,” which is called total personality. 
+But immediately [you smell this trans-personality]: “*I* smell something; I smell myself as Katagiri.” So at that time it's pretty hard to adjust, to make myself in peace and harmony, in an evil sense. But in a good sense, I feel good – [but] feeling good is not always *feeling good*, *[he chuckles,]* not always helping you. Sometimes it becomes a “stink.” So whatever *I* feel from my personality, [...] there is always some confusion, waves of the mind. Feeling good, feeling bad; whatever you say, that is a wave. Because that feeling comes from “stink,” which is called total personality. 
 
-Because I don't know what my karma is. Why did I become a monk? I don't know. I know why – but on the other hand, there are lots of reasons. I don't know why [exactly], so I cannot say.
+Because I don't know what my karma is. Why did I become a monk? I don't know. I know *why* – but on the other hand, there are lots of reasons. I don't know why [exactly], so I cannot say.
 
-That is really a “stink.” [...] But where does that stink of Katagiri come from? No way. You have to really go back to the beginningless past, to the endless future. So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree. Because [your existence] is extending to the past and the future – your personality. 
+That is really a stink. [...] But that stink is completely [beyond evaluation]. From where does that stink of Katagiri come? No way. You have to really go back to the beginningless past, to the endless future.
+
+So finally, that stink of Katagiri, which is called *total personality*, becomes *trans-personality*. That is the original nature of existence. That is the core of your daily living. You are already under this core, under this huge tree. It's vast, a *huge* tree. Because [your existence] is extending to the past and the future – your personality. 
 
 You have to believe this. Well – believe it or not, your life is really there.
 
-So that is [that] we are called *buddha nature*. And also, what is buddha nature? If you want to know psychologically, that is called *alayavijñāna* in Buddhist psychology. Or sometimes, primitive Buddhism says that is *karma*. 
+So that is [that] we are called *buddha-nature*. And also, what is buddha-nature? If you want to know psychologically, that is called *alayavijñāna* in Buddhist psychology. Or sometimes, primitive Buddhism says that is *karma*. 
 
-Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life \[in the] samsaric world. [...] Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do you know? In your daily living, you can know. 
+Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life in the samsaric world. Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is]. But karma is with you. How do we know? In your daily living, you can know. 
 
 #### 30:00
 
-When I became a monk and went to a monastery, at that time monastic life was completely blooming for me. So it really awakened me, every day. My eyes opened wide, and looking at everything, I learned lots of things. Some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] But for me, it was wonderful. 
+When I became a monk and went to a monastery, at that time monastic life was completely blooming for me. It really awakened me, every day. My eyes [were] opened wide, and looking at everything, and I learned lots of things. But some other monks were always creating a dull feeling, and indulgence, and they didn't like sometimes doing zazen, and laziness... [*He chuckles.*] But for me, it was wonderful for me. 
 
-And on the other hand, I felt wonderful, but people called me crazy. Of course, maybe so! According to indulgence, maybe the [hard practice] was crazy, it [might be] crazy. But I didn't care, because I learned lots of things. So day after day was really bright. I just did it.
+And on the other hand, I felt wonderful, but people called me crazy. Of course, maybe so! According to indulgence, maybe to practice hard was crazy, it makes you crazy. But I didn't care, because I learned lots of things. Day after day was really bright. So I just did it.
 
-On the other hand, there is a completely opposite aspect of life I learned from all these monks. I really wanted to ask them, “Why do you do it in that way? Why are you in the monastery? You want to be lazy in the monastery? You want to learn laziness? Well of course it's okay, but what is the purpose? *Why*? Why are you here?” I didn't understand why they didn’t care.
+On the other hand, there is a completely opposite aspect of life I learned from other monks. I really wanted to ask them, “Why do you do it in that way? Why are you in the monastery? You want to be lazy in the monastery? You want to learn laziness? Well of course it's okay, but what is the purpose? *Why*? Why are you here?” I didn't understand why they didn’t care.
 
 [And] on the other hand, the same applied to me: “Why are you practicing hard in that way?” I don't know.
 
-From this point, in everyday life, we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense *not* understandable. So, life is pretty [big]. 
+From this point, in everyday life, we can create our own everyday life, but on the other hand, there is another aspect of life we cannot create, [which] something compels us to do. So, our daily living is in some aspect understandable, but our daily living is in some sense *not* understandable. Life is pretty [big]. 
 
-That is called *karma*; that is called *buddha nature*. We don't understand, because the present – your life – comes from beginningless past, endless future. [We should be there]. And finally, we should accept this and we must be *present* there, constantly on the big tree. This is [the] core. Psychologically speaking, this is *total personality*.
+That is called *karma*; that is called *buddha-nature*. We don't understand, because the present – your life – comes from beginningless past, endless future. [We should be there]. And finally, we should accept this and we must be *present* there, constantly on the big tree. This is [the] core. Psychologically speaking, this is *total personality*.
 
 #### 34:20
 
-[...] In order to *realize* this core of human life, first of all we have to *make arrangement* of circumstances, and sensory world, and also movement system, and gut system, and brain-nerve system.
+[...] In order to *realize* this core of human life, first of all we have to *make arrangement* of circumstances, and the sensory world, and also the movement system, and the gut system, and brain-nerve system. Anyway, we have to *make arrangement*. 
 
 That's why Dōgen Zenji said in *Fukanzazengi*, “Cast aside all involvements; cease all affairs.” This is arrangement of *circumstances*. 
 
-If you meddle with “all involvements” or “all affairs” right in the middle of zazen, you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. So first of all, we have to make arrangement of circumstances. Instead of expressing hatred with circumstances, or destroying circumstances, just make arrangement. 
+If you meddle with *all involvements* or *all affairs* right in the middle of zazen, you cannot experience calmness. You cannot stand up straight, you cannot sit quietly right in the middle of zazen, because there are too many things you are involved in. 
+
+So first of all, we have to *make arrangement of circumstances*. Instead of expressing hatred with circumstances, or destroying circumstances, just make arrangement. 
 
 #### 36:23
 
 And next, our *sensory system*. We have a sensory system; but it's not necessary to destroy [it or] to keep away the sensory world, because we have it already. So instead of [maligning] or throwing away or destroying the sensory system, first of all we should accept the sensory system. And the important point is, how to use the sensory system. 
 
-That's why Dōgen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” This is how to make arrangement of the sensory world. (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the *Zazengi* chapter of *Shōbōgenzō*, which is distinct from *Fukan zazengi*.)
+That's why Dōgen Zenji says, “A quiet room is suitable.” Or, “Do not allow drafts of air to enter, or rain and frost to intrude.” Or, “The place of sitting should be lighted, and kept from becoming dark at any time, day or night.” “Eyes should be open, not too widely, nor too narrowly.” (*Transcriber’s Note:* “Do not allow drafts of air to enter,” etc. is from the *Zazengi* chapter of *Shōbōgenzō*, which is distinct from *Fukan zazengi*.)
 
-First of all, you should make a choice of circumstances, what kind of a room you have to use. Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? If this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
+This is how to make arrangement of the sensory world. First of all, you should make a choice of circumstances: what kind of a room you have to use. Because you have six senses. You can see this room through your eyes. It’s really dark. If you painted this wall red, green, and yellow, [you would see it] completely differently, don't you think so? And also if this room is too dark, it's not good; if this room is too bright, it distracts your mind, distracts the sense of vision. And also, if you choose a room in a very noisy location, it really distracts the sense of hearing. So the important point is, “A quiet room is suitable,” and also, “Not too dark, not too bright, at any time, day or night.”
 
-So that is how to make arrangement of the sensory world, instead of destroying, escaping from, or expressing hatred toward the sensory world. We should [deal with it].
+So that is how to make arrangement of the sensory world. Instead of destroying, escaping from, or expressing hatred toward the sensory world, we should [deal with it].
 
 #### 39:42
 
@@ -219,7 +223,7 @@ The young kids are listening to the radio and also studying and also trying to a
 
 How can you throw away? *Simplify*. You should simplify your activity, [simplify the relationship with] yourself and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. [...] How can you simplify? Let's practice *samadhi*. Samadhi is one-pointedness. If you practice one-pointedness, there is *egolessness*. Let egolessness simplify your life. [Manifest simplicity,] simplify your life. Because [then] you can offer yourself into the object: zazen, and study, et cetera. 
 
-And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha nature. And then this total personality, which is called buddha, is completely perfect and all-pervading. Dōgen Zenji says, “The origin of the way is perfect and all-pervading.” 
+And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha-nature. And then this total personality, which is called buddha, is completely perfect and all-pervading. Dōgen Zenji says, “The origin of the way is perfect and all-pervading.” 
 
 And also, “manifesting the original nature of existence.” If you arrange the circumstances, and sensory world, movement system, gut system, and also the brain [and] nervous system, very naturally you can practice samadhi, you can offer yourself into [zazen], and you can practice egolessness. And also, you can do something without any design on expecting a reward. That is perfect, harmonious life. That is peaceful life.
 
