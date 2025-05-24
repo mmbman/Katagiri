@@ -17,15 +17,15 @@ title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 5"
 
 I would like to explain a little more about the [word] *realization* [that] Dōgen Zenji uses very often here: *practice and realization*. I don't know how you understand what *realization* is. I think this is my problem, how to translate this term in English. Well, English always uses *realization*, but I don't know *how* you understand this [word]. 
 
-But Dōgen uses three kinds of *satori*, enlightenment. One is *awareness* – *kaku*, “awakening.” Second is *satori* – usually “enlightenment.” Third is *sho*. [...] *Literally* it means “verification” or “proof.” Literally, okay? 
+But Dōgen uses three kinds of *satori*, enlightenment. One is *awareness* – *kaku*, “awakening.” Second is *satori* – usually “enlightenment.” Third is *shō*. [...] *Literally* it means “verification” or “proof.” Literally, okay? 
 
-So three kinds of terms are often used by Dōgen, but in this case, *practice and realization* is the third one (*sho*). *Realization* is corresponding to the third one – “proof” or “verification,” literally translated. But I am still looking for the appropriate term in English; I don't know what kind of English [word] is best, so I have to explain a little bit about this one. 
+So three kinds of terms are often used by Dōgen, but in this case, *practice and realization* is the third one (*shō*). *Realization* is corresponding to the third one – “proof” or “verification,” literally translated. But I am still looking for the appropriate term in English; I don't know what kind of English [word] is best, so I have to explain a little bit about this one. 
 
-[This enlightenment is] *sho* (證) in Japanese. Plainly speaking, *sho* literally means “proof” or “certification”; this is also *sho*. [To certify], or to prove, or to verify, or to witness. [...] Anyway, *sho*. 
+[This enlightenment is] *shō* (證) in Japanese. Plainly speaking, *shō* literally means “proof” or “certification”; this is also *shō*. [To certify], or to prove, or to verify, or to witness. [...] Anyway, *shō*. 
 
-The first one and second one, *kaku* (*awakening*) or *satori*, both are something experienced, something which you can experience through the six senses. But *sho*, translated as *realization*, is a little more than that which you can experience or you can awaken. So [it has] a little deeper meaning, rather than *kaku*, awakening, or *satori*, enlightenment. 
+The first one and second one, *kaku* (*awakening*) or *satori*, both are something experienced, something which you can experience through the six senses. But *shō*, translated as *realization*, is a little more than that which you can experience or you can awaken. So [it has] a little deeper meaning, rather than *kaku*, awakening, or *satori*, enlightenment. 
 
-So I don't know how to translate it, but maybe we can say *sho*, translated literally as *verification* or *witness*, means “actualizing the consummation of being.” Consummation [of being], [the] ultimate nature of being. 
+So I don't know how to translate it, but maybe we can say *shō*, translated literally as *verification* or *witness*, means “actualizing the consummation of being.” Consummation [of being], [the] ultimate nature of being. 
 
 So “consummation of being” – how can I say it – is a place where everything synchronizes with each other. Well, according to [what Buddha says], I think [whether] animate being or inanimate being, all [were] simultaneously enlightened when he attained enlightenment. Or, he said, “I and the heaven and earth [...] are the same and one root, where all living beings attain enlightenment simultaneously.” So that is a *consummation of being*. Consummation of the ultimate nature of being is the same and one place where everything coexists in peace. 
 
@@ -41,15 +41,15 @@ Because it’s pretty hard to say: if you’re really alive in this world, creat
 
 *Ze* is “this.” That *nyo*, “thusness,” is something existent right now, right here. That is called *this*. So *nyoze* is translated as *thusness*, or *suchness* sometimes. So *nyoze* is what is, just *is*, of itself. 
 
-So that is the place where all living beings coexist in peace, and ... synchronize with each other in peace and harmony. That is *sho*, “realization.” 
+So that is the place where all living beings coexist in peace, and ... synchronize with each other in peace and harmony. That is *shō*, “realization.” 
 
-So that *sho*, the consummation of being, is not [something] you try to manifest. No, you cannot do it, because this is exactly the *ultimate* state of existence. You don't know [it]. But the unique way is to let it manifest by virtue of making your water clear or calm. Or, practically speaking, you really devote yourself to do something thoroughly, with sincere heart, *exactly* do it: then, the consummation of being comes out, emerges from [that] naturally. That is our practice. 
+So that *shō*, the consummation of being, is not [something] you try to manifest. No, you cannot do it, because this is exactly the *ultimate* state of existence. You don't know [it]. But the unique way is to let it manifest by virtue of making your water clear or calm. Or, practically speaking, you really devote yourself to do something thoroughly, with sincere heart, *exactly* do it: then, the consummation of being comes out, emerges from [that] naturally. That is our practice. 
 
-But we always try to get that truth or consummation of being. We try to get it. That's why we say, “By practice, let's attain enlightenment.” That makes you *more* confused. It's pretty hard to get such enlightenment. Of course you can attain enlightenment, but that enlightenment is the first or second enlightenment I mentioned: *kaku* or *satori*. Still *kaku* and *satori* are nothing but a human experience, limited by individualities. So it's not universal. Universal enlightenment is the state of being free from individual experience called *kaku*, awakening, or *satori*. According to Buddha's term, it is called *nirvana*. Nirvana. So *nirvana* corresponds to *sho*: proof, or verification. 
+But we always try to get that truth or consummation of being. We try to get it. That's why we say, “By practice, let's attain enlightenment.” That makes you *more* confused. It's pretty hard to get such enlightenment. Of course you can attain enlightenment, but that enlightenment is the first or second enlightenment I mentioned: *kaku* or *satori*. Still *kaku* and *satori* are nothing but a human experience, limited by individualities. So it's not universal. Universal enlightenment is the state of being free from individual experience called *kaku*, awakening, or *satori*. According to Buddha's term, it is called *nirvana*. Nirvana. So *nirvana* corresponds to *shō*: proof, or verification. 
 
 So *nirvana* is a place where all kinds of experience of highest spiritual life are melted into. That is called nirvana. In other words, all kinds of the highest level of spiritual life is liberated. And then it is called *nirvana*. That is called *total liberation*. 
 
-So that's why ... even though you don't experience this *sho*, the actualizing the consummation of being, even though you don't experience the ultimate nature of existence... as best as we can, we try to approach it, we try to come near to it. In many ways – psychologically, intellectually – in many ways we try [to] see even a dim image. As close as you can, you try to approach. That is our study.
+So that's why ... even though you don't experience this *shō*, the actualizing the consummation of being, even though you don't experience the ultimate nature of existence... as best as we can, we try to approach it, we try to come near to it. In many ways – psychologically, intellectually – in many ways we try [to] see even a dim image. As close as you can, you try to approach. That is our study.
 
 And then, [...] to touch directly the ultimate nature of [your self] is your responsibility, your business. Your responsibility, so-called ... flow of activities – when you are exactly in the continuous flow of activities, and then you are there, exactly. [But] consciousness always slips off this flow of activities, and analyzes, synthesizes, so that's why it's pretty hard to touch directly. 
 
@@ -81,9 +81,9 @@ So we say “dirty clothes; I don’t want them”; we want to be free from it. 
 
 #### 24:10
 
-And then, in *Bendōwa*, Dōgen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *sho*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
+And then, in *Bendōwa*, Dōgen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *shō*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
 
-That is, in terms of practice, *sho* is explained as *jijiyu samadhi*: self becomes self, and is self-ing, and settles in the self, exactly. That is a unique way to manifest the ultimate nature of existence called *sho*. Very deep, deep experience of enlightenment. Very deep, profound – *before* you put the name on it. This is called *sho*. 
+That is, in terms of practice, *shō* is explained as *jijiyu samadhi*: self becomes self, and is self-ing, and settles in the self, exactly. That is a unique way to manifest the ultimate nature of existence called *shō*. Very deep, deep experience of enlightenment. Very deep, profound – *before* you put the name on it. This is called *shō*. 
 
 That is perfect freedom. Perfect freedom. Perfect freedom which is free from the concept of freedom. 
 
@@ -111,7 +111,7 @@ So if you say, “it’s nonsense,” that means *you* are nonsense.
 
 That’s why Nansen wakes up the monk who believes that the Roso’s practice is really nonsense, useless. That’s why he says it like this. But it is not criticizing. Okay?
 
-Do you have some questions about this *sho*? So, *practice and realization* – otherwise it’s a little bit difficult for you to understand [...] *satori*. 
+Do you have some questions about this *shō*? So, *practice and realization* – otherwise it’s a little bit difficult for you to understand [...] *satori*. 
 
 #### 33:02
 
@@ -133,7 +133,7 @@ Do you have some questions about this *sho*? So, *practice and realization* – 
 
 I think *awakening* is used in English textbooks in many ways. But generally speaking, *awakening* is the first experience of spiritual life through the six senses. Okay? And then enlightenment, *satori*, is a little deeper than awakening, penetrating. You have to experience *satori* [...] through the body and mind. But awakening kind of comes through the consciousness; then you can awake. So *awakening* occurs in the conscious level, but *satori* occurs in the conscious and also physical levels, both. So a little deeper. 
 
-**Question:** But... there’s *sho*, even if you don’t experience *kaku* or *satori*, isn’t there?
+**Question:** But... there’s *shō*, even if you don’t experience *kaku* or *satori*, isn’t there?
 
 **Katagiri Roshi:** Yeah, *kaku* and *satori*...
 
@@ -149,7 +149,7 @@ So [the] most important point is, you must be liberated from that pride of your 
 
 So I don’t mean *satori* and awakening are not important. They are very important for us. 
 
-**Questioner:** So, [...] *sho* was somehow always there. 
+**Questioner:** So, [...] *shō* was somehow always there. 
 
 **Katagiri Roshi:** Always there!
 
@@ -157,13 +157,13 @@ So I don’t mean *satori* and awakening are not important. They are very import
 
 **Katagiri Roshi:** *Satori* and awakening are kind of bubbles coming up, you know?
 
-**Questioner:** Yes, [...] to experience it is important. But is it possible to realize [or] experience *sho* fully if you haven’t experienced *satori* first? 
+**Questioner:** Yes, [...] to experience it is important. But is it possible to realize [or] experience *shō* fully if you haven’t experienced *satori* first? 
 
-**Katagiri Roshi:** I don’t know which comes first. I think first, basically, *sho* is there, from the beginning to end, always. And then, under the certain circumstances, you can call it *awakening*, sometimes, you can call it *satori*, sometimes. Sometimes you cannot call it at all. That is *sho*. No name there, but you feel strong, on the basis of your life. You don’t know what it is, but you feel strength. 
+**Katagiri Roshi:** I don’t know which comes first. I think first, basically, *shō* is there, from the beginning to end, always. And then, under the certain circumstances, you can call it *awakening*, sometimes, you can call it *satori*, sometimes. Sometimes you cannot call it at all. That is *shō*. No name there, but you feel strong, on the basis of your life. You don’t know what it is, but you feel strength. 
 
 **Questioner:** So are you saying that *satori* or awakening is not really necessary if you... ? 
 
-**Katagiri Roshi:** Well, it’s necessary, but I don’t think you should try to hold [them] always, try to get a hold. No. But you shouldn’t ignore the *satori* and awakening. The point is you have to focus on that point, *sho*, where we are. Because we live there. So [focus on] where we are, and then we should take care of our life. 
+**Katagiri Roshi:** Well, it’s necessary, but I don’t think you should try to hold [them] always, try to get a hold. No. But you shouldn’t ignore the *satori* and awakening. The point is you have to focus on that point, *shō*, where we are. Because we live there. So [focus on] where we are, and then we should take care of our life. 
 
 But usually, we always try to live in the realm of awakening or *satori*, and *then* we try to take care of human life. That’s why [we are] more confused there. But we should focus on the very basic foundation, there. And then, you can deal with *satori*, awakening, and many things. That’s [what] Dōgen Zenji tries to present always. But this is not Dōgen’s teaching, this is a general Buddhist teaching. [It’s] why Nagarjuna mentions 18 emptinesses, you know? *[He laughs.]* Why he has to say 18 emptinesses, 25 emptinesses, constantly. It’s ridiculous! *[He laughs.]* But he has to say [it]. 
 
@@ -179,43 +179,43 @@ So very naturally, if you see such a practice, [for example] *gassho* and the fo
 
 ... Is that okay? That is the point you wanted to ask? 
  
-**Questioner:** Yeah, I think. In awakening, then you would say, “This is *sho*.” But when I say that, I’m separating consciousness from *sho*. So that’s what you were just talking about, you’re criticizing. 
+**Questioner:** Yeah, I think. In awakening, then you would say, “This is *shō*.” But when I say that, I’m separating consciousness from *shō*. So that’s what you were just talking about, you’re criticizing. 
 
 **Katagiri Roshi:** No, not separated. 
 
 **Questioner:** Yes, [...] but I *do*. 
 
-**Katagiri Roshi:** Uh-huh. Awakening is not separate from *sho*. [...] Through the conscious world you can experience awakening, but it is not separate from *sho*. [...] That’s why [we ask], how can you take care of awakening? This is the point. Alright? Is that clear? 
+**Katagiri Roshi:** Uh-huh. Awakening is not separate from *shō*. [...] Through the conscious world you can experience awakening, but it is not separate from *shō*. [...] That’s why [we ask], how can you take care of awakening? This is the point. Alright? Is that clear? 
 
-If you deal with awakening, so-called “it’s not separate from,” or “it is one with it,” you already handle awakening as consciousness. So very naturally, you become high. You are carried away by conceptualizations. But awakening based on *sho* is something *alive*. Not the conceptual world: beyond [conceptualization]. Because awakening and *sho* [are] one, and working. That is the true reality, we say, we live in. So how can you take care of one? Of awakening and *sho*. 
+If you deal with awakening, so-called “it’s not separate from,” or “it is one with it,” you already handle awakening as consciousness. So very naturally, you become high. You are carried away by conceptualizations. But awakening based on *shō* is something *alive*. Not the conceptual world: beyond [conceptualization]. Because awakening and *shō* [are] one, and working. That is the true reality, we say, we live in. So how can you take care of one? Of awakening and *shō*. 
 
-So if you see the *sho*, awakening, you shouldn’t [attach to] it, you shouldn’t stay with awakening, you must be free from awakening. That means experience, [and] that’s it. You know? And then all you have to do is just walk on the path of *sho*. That’s it. 
+So if you see the *shō*, awakening, you shouldn’t [attach to] it, you shouldn’t stay with awakening, you must be free from awakening. That means experience, [and] that’s it. You know? And then all you have to do is just walk on the path of *shō*. That’s it. 
 
-And then next, you are attached to the *sho*: “Here it is, I can experience *sho*.” That’s why Dōgen Zenji says, I mentioned yesterday, you have to be free from original realization too, and then, *sho* – real enlightenment – penetrates your body and mind. Just like walking in the mist. This is basic practice: going, always going. 
+And then next, you are attached to the *shō*: “Here it is, I can experience *shō*.” That’s why Dōgen Zenji says, I mentioned yesterday, you have to be free from original realization too, and then, *shō* – real enlightenment – penetrates your body and mind. Just like walking in the mist. This is basic practice: going, always going. 
 
 #### 44:38
 
-**Question:** Wouldn’t it be correct to say that in a sense, everything is a manifestation of *sho*? 
+**Question:** Wouldn’t it be correct to say that in a sense, everything is a manifestation of *shō*? 
 
-**Katagiri Roshi:** Yes, everything is manifestation of the *sho*, that’s true. 
+**Katagiri Roshi:** Yes, everything is manifestation of the *shō*, that’s true. 
 
 **Questioner:** But then, all the defilements that... 
 
 **Katagiri Roshi:** Defilements? Uh-huh.
 
-**Questioner:** Defilements, they are also in a way a manifestation of *sho*.
+**Questioner:** Defilements, they are also in a way a manifestation of *shō*.
 
 **Katagiri Roshi:** Yes, that’s true. 
 
-In terms of Ocean Seal Samadhi, it’s always whatever, defilements and not defilements, and flowers, all are right in the middle of ocean sea of samadhi, so-called *sho*. *Nirvana*, we say.
+In terms of Ocean Seal Samadhi, it’s always whatever, defilements and not defilements, and flowers, all are right in the middle of ocean sea of samadhi, so-called *shō*. *Nirvana*, we say.
 
 **Questioner:** But then still it’s a paradox, because drowsiness and lots of other defilements obscure our experience. 
 
 **Katagiri Roshi:** Yeah, but it’s not contradictory. If you *think* of it, if you play with that situation with the intellectual world, conceptualization, then you think it is contradictory. But it’s not, because drowsiness or defilements are nothing but [beings], produced by conditional elements, which are constantly [changing]. Okay?
 
-So *sho*, when the *sho* appears under certain circumstances – in other words, produced by certain conditional elements – then *sho* is called defilement. That’s why [Nan-yueh] says there are enlightenment and practice, but both are not contaminated by each other. So [they are] always there, but they don’t bother [each other]. So when you practice, just the practice. In other words, you have to really make the practice pure and clean, then it’s turned into *sho*. 
+So *shō*, when the *shō* appears under certain circumstances – in other words, produced by certain conditional elements – then *shō* is called defilement. That’s why [Nan-yueh] says there are enlightenment and practice, but both are not contaminated by each other. So [they are] always there, but they don’t bother [each other]. So when you practice, just the practice. In other words, you have to really make the practice pure and clean, then it’s turned into *shō*. 
 
-And then, if you attach to the *sho* with your consciousness, *sho* is no longer *sho*. *[He laughs.]* It’s defilement; something like that. That’s why defilement, drowsiness, and good or bad, are always something produced by conditional elements. Okay? 
+And then, if you attach to the *shō* with your consciousness, *shō* is no longer *shō*. *[He laughs.]* It’s defilement; something like that. That’s why defilement, drowsiness, and good or bad, are always something produced by conditional elements. Okay? 
 
 Conditional elements, yesterday I mentioned, [are] many things. We don’t know what they are. Okay? Through this kind of phenomenal world, maybe you can say conditional elements are warmness, and human efforts which you don’t see but you can feel or touch, something like that. Many conditional elements there. But if you go [much] more deeply into the ultimate nature of existence, we don’t know how many conditional elements are there. Because sometimes that is atoms, or quarks, you know? *[He laughs.]* We don’t know what they are, but *many* conditional elements there. Do you understand *quark*? *[Some laughter.]*
 
@@ -231,7 +231,7 @@ So that’s a problem, but the microphone itself: no problem. Even a nuclear wea
 
 But still there is a problem there. So where is the problem? This is a question for us. 
 
-**Question:** It seems like *sho* is very natural. 
+**Question:** It seems like *shō* is very natural. 
 
 **Katagiri Roshi:** Yes, natural. 
 
@@ -243,7 +243,7 @@ But still there is a problem there. So where is the problem? This is a question 
 
 **Katagiri Roshi:** Yes, that is our habit and the customs, we believe in that way. So it’s very difficult to see the [oneness]. It’s not separated; it’s exactly one. But according to our habit and education, it’s very difficult to see that exactly they are working together. We don’t know, we don’t see. That’s why we practice like this, and then finally we have to taste what is oneness. [Oneness] is not separate, not two? No, it’s not correct, you know? So it is one? It’s not correct. So that’s why [Buddhist] philosophy is coming up. The truth is not one, not two; not separate or not same – something like that. Always lots of terms coming up, in order to let us know what is the real meaning of the oneness. But according to consciousness, it’s pretty hard to know; it’s *immediately* separate. 
 
-**Questioner:** So is there an awakening or a *satori* based on *sho* that is the same understanding as self-consciousness? ...
+**Questioner:** So is there an awakening or a *satori* based on *shō* that is the same understanding as self-consciousness? ...
 
 **Katagiri Roshi:** Uh... pretty close, but self-consciousness is not involved so much in the awakening and *satori*. 
 
@@ -263,7 +263,7 @@ But still there is a problem there. So where is the problem? This is a question 
 
 **Katagiri Roshi:** Same and one world? 
 
-**Questioner:** Yes, as *sho*. 
+**Questioner:** Yes, as *shō*. 
 
 **Katagiri Roshi:** Uh-huh. Yes.
 
@@ -273,13 +273,13 @@ But still there is a problem there. So where is the problem? This is a question 
 
 **Questioner:** Do you have it? 
 
-**Katagiri Roshi:** Well, that is not the conceptual world, that is not ideas. It is activity *only*, arising only, always. [...] Right in the middle of flow of activity, there is oneness, there is *sho*, manifesting as one, *with* your self-consciousness. So consciousness is no longer self-consciousness; it’s is something more than self-consciousness. Universal. 
+**Katagiri Roshi:** Well, that is not the conceptual world, that is not ideas. It is activity *only*, arising only, always. [...] Right in the middle of flow of activity, there is oneness, there is *shō*, manifesting as one, *with* your self-consciousness. So consciousness is no longer self-consciousness; it’s is something more than self-consciousness. Universal. 
 
 That’s why the book *Beyond Boredom and Anxiety* [talks] about the [flow] between, you know, chess players, and musicians, et cetera. They use self-consciousness in the beginning, [and in] the end, but in the end self-consciousness doesn’t bother him or her, self-consciousness just [is] present with her or him. And then, all he can do is, some energies – we don’t know what it is – some energies between the chess and him or her let him do, continually. 
 
-So that is a kind of experience of a *sho*. But in terms of spirituality, I think that the flow of activity must be based on deep and profound understanding, profound taste of what ultimate nature of existence is, based on impermanence, et cetera. It’s a very deep awakening. Not only understanding that flow of activity according to the “data” of the individual, [but] many people’s experience. And then we say, here it is, this is important, [this is human life]. But that is scientific. That’s why naturally you have to explain this scientifically. 
+So that is a kind of experience of a *shō*. But in terms of spirituality, I think that the flow of activity must be based on deep and profound understanding, profound taste of what ultimate nature of existence is, based on impermanence, et cetera. It’s a very deep awakening. Not only understanding that flow of activity according to the “data” of the individual, [but] many people’s experience. And then we say, here it is, this is important, [this is human life]. But that is scientific. That’s why naturally you have to explain this scientifically. 
 
-**Questioner:** If there is such a thing as the self-consciousness in the state of just arising, so it’s identical with the deep vision in *sho*, then it seems like self-consciousness is automatically practiced in every moment. 
+**Questioner:** If there is such a thing as the self-consciousness in the state of just arising, so it’s identical with the deep vision in *shō*, then it seems like self-consciousness is automatically practiced in every moment. 
 
 **Katagiri Roshi:** Mm-hmm.
 
@@ -303,7 +303,7 @@ Okay, any other?
 
 **Question:** Yes. What part does effort play in these three stages? 
 
-**Katagiri Roshi:** The main effort is focusing on the third, *sho*. *Sho* means that the practice and realization [are] one. You have to focus on that one. Then, naturally, you can experience awakening, enlightenment. 
+**Katagiri Roshi:** The main effort is focusing on the third, *shō*. *Shō* means that the practice and realization [are] one. You have to focus on that one. Then, naturally, you can experience awakening, enlightenment. 
 
 **Questioner:** Okay. What constitutes *focusing*? 
 
@@ -317,7 +317,7 @@ That’s a little bit... it seems to be easy, but it’s not so easy, because we
 
 **Katagiri Roshi:** Yes, if your practice is ready. Ready means if your practice is handled, coped with, exactly [unfolding]. Then, it appears... not “then” *[he laughs]*, simultaneously [it is] there. 
 
-**Questioner:** So you make effort in the practice. You can’t make effort in *sho*? Practice is *sho*. 
+**Questioner:** So you make effort in the practice. You can’t make effort in *shō*? Practice is *shō*. 
 
 **Katagiri Roshi:** Hmm?
 
