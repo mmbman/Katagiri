@@ -106,7 +106,7 @@ But this is not something abstract from us. We should believe in that totality, 
 
 So we need *you*; the world needs you. Totality needs you. Oneness needs you, whoever you are. Oneness is open to everyone, and it needs you always. That’s why we have to receive it, and deal with it, and make it alive. 
 
-When the totality appears in the actual [facets] of your life, at that time totality is called *ki*. In Japanese, *ki* means momentum. *Ki* means a kind of ... there are no English words, but *ki* is usually translated as *device*, or *work*, or *chance*, or *opportunity*. But still we don’t understand what *ki* means. 
+When the totality appears in the actual [facets] of your life, at that time totality is called *ki* (機). In Japanese, *ki* means momentum. *Ki* means a kind of ... there are no English words, but *ki* is usually translated as *device*, or *work*, or *chance*, or *opportunity*. But still we don’t understand what *ki* means. 
 
 Do you know the American TV series *Bewitched*? *[Laughter.]* I love it. *[Laughter.]* You know the woman, both the daughter and the mother, are witches. Do you know how the daughter always moves her nose? At that time, I always feel I want to *pinch* that nose before she does it. *[Laughter.]* The first moment of her nose moving, I want to pinch it, that’s what I am feeling. I am curious about that. That is called *ki*. *[Laughter.]* The whole works. In other words, you have to come back to the very first moment of your doing – gassho, or moving your nose, or zazen – and when you return to the very first moment, if you can grasp it, pinch it, that is called *ki*. That is a place where the dharma, wholeness, really works.
 
