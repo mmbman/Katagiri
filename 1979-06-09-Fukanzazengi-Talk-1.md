@@ -145,13 +145,15 @@ So that is how to make arrangement of the sensory world. Instead of destroying, 
 
 #### 39:42
 
-And next, the *movement system*. The movement system comes from the unity of your physical and mental organs. Your body and mind work, and then simultaneously movement comes up. 
+And next, the *movement system*. 
 
-You cannot destroy your movement. Sometimes movement comes from instinct; sometimes it comes from the sensory world; sometimes it comes from a higher level [of spirit]. Sometimes, we don't know. Karma? But anyway, there is always movement. 
+The movement system comes from the unity of your physical and mental organs. Your body and mind work, and then simultaneously movement comes up. 
+
+You cannot destroy your movement. Sometimes movement comes from instinct; sometimes it comes from the sensory world; sometimes it comes from a higher level [of spirit]. Sometimes, we don't know. Karma. But anyway, there is always movement. 
 
 So we have to make arrangement of movement. For this, Dōgen Zenji says, that is the half lotus position or full lotus position. Or he says: “Place both your hands in this manner, close to the body, with the joints of the thumb opposite the navel.” Or, “Sitting upright in proper position, neither inclining to the left nor to the right; leaning neither forward nor backward. Sitting in zazen silently and immobile.” 
 
-This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just [half]. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus, or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. 
+This is very simple movement. The two hands are unified; your eyes are not wide open, not closed, just *[unintelligible]*. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. 
 
 This is movement simplified, by our arrangement. 
 
@@ -161,17 +163,17 @@ And next, the *gut system*. (The *internal organ system*.) For this, Dōgen Zenj
 
 (*Transcriber’s Note:* The next paragraph is very hard to make out.)
 
-Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It’s going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gas] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* –  that is [the way it is]. Sometimes you have to accept it.
+Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It’s going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gasoline] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* slow down, [...] that is the way it is. Sometimes you have to accept it.
 
-But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your blood is pretty good; [your pulse] is pretty good. And your heart is beating normally, very naturally.
+But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your blood is pretty good, [your pulse] is pretty good, and your heart is beating normally, very naturally.
 
 #### 44:56
 
 Next, the *brain-nerve system*. About the brain-nerve system, Dōgen Zenji says, “Do not think good or bad; do not administer pros and cons.” Or, “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe, from *The Heart of Dōgen's Shobogenzo*. Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
+(*Transcriber’s Note:* The translation is by Norman Waddell and Masao Abe. Alternative translations for “do not administer pros and cons” include “do not judge true or false,” or “do not consider right and wrong.”)
 
-That is the brain-nerve system. According to the brain-nerve system, we have to regulate mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the function of the mind ...
+That is the brain-nerve system. According to the brain-nerve system, we have to regulate mind. Mind is characterized by attachment: attaching to one of two extreme ideas. This is the characteristic of mind. So, we have to make arrangement of the functioning of the mind ...
 
 *[Tape change.]*
 
