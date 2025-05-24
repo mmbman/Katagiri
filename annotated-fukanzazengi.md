@@ -138,6 +138,7 @@ This is very much a work in progress. I will update this page as I transcribe ta
 
 - KR translates this as: “In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.”
 - This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) at [21:38](1979-06-14-Fukanzazengi-Talk-6#2138).
+- “By the opportunity provided by” is omitted from the Sōtōshū translation, perhaps to streamline the sentence, but this is perhaps a questionable choice. The difference in meaning is whether the noted devices bring about enlightenment directly or the noted devices provide an opportunity. “Opportunity” is *ki* (機), which comes up again in “pivotal opportunity of human form”; see below.
 
 > ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views?
 
@@ -149,7 +150,11 @@ Practice-realization is naturally undefiled. Going forward is, after all, an eve
 
 > In general, in our world and others, in both India and China, all equally hold the buddha-seal. While each lineage expresses its own style, they are all simply devoted to sitting, totally blocked in resolute stability. Although they say that there are ten thousand distinctions and a thousand variations, they just wholeheartedly engage the way in zazen. Why leave behind the seat in your own home to wander in vain through the dusty realms of other lands? If you make one misstep, you stumble past what is directly in front of you.
 
-> You have gained the pivotal opportunity of human form. Do not pass your days and nights in vain. You are taking care of the essential activity of the buddha-way. Who would take wasteful delight in the spark from a flintstone? Besides, form and substance are like the dew on the grass, the fortunes of life like a dart of lightning --emptied in an instant, vanished in a flash.
+> You have gained the pivotal opportunity of human form. 
+
+- “Pivotal opportunity” is *kiyō*, according to the Nishijima and Cross translation of *Shobogenzo*. For commentary on *ki* (機), see [“Dealing with Death, Dealing with Life”](1989-01-07-Dealing-with-Death-Dealing-with-Life) at [33:32](1989-01-07-Dealing-with-Death-Dealing-with-Life#3332).
+
+> Do not pass your days and nights in vain. You are taking care of the essential activity of the buddha-way. Who would take wasteful delight in the spark from a flintstone? Besides, form and substance are like the dew on the grass, the fortunes of life like a dart of lightning --emptied in an instant, vanished in a flash.
 
 > Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. 
 
