@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 4"
 
 ### Summary
 
-What does it mean to die sitting in zazen? Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” using the example of *Blue Cliff Record* Case 46, “Ching Ch’ing’s Sound of Raindrops.” He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
+Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” using the example of *Blue Cliff Record* Case 46, “Ching Ch’ing’s Sound of Raindrops.” He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
 
 ### Transcript
 
