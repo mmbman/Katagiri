@@ -34,11 +34,11 @@ And fourth is the *internal organ system*. The internal organs work very smoothl
 
 The fifth is the *brain-nerve system*. So that is, according to zazen, regulation of mind. 
 
-Also number six is, I told you yesterday, the *whole personality* or *total personality*; the personality that, according to general Buddhism, is *buddha nature*, or according Buddhist psychology it is called *karma*.
+Also number six is, I told you yesterday, the *whole personality* or *total personality*; the personality that, according to general Buddhism, is *buddha-nature*, or according Buddhist psychology it is called *karma*.
 
-That total personality has a double face. One face is karma; you have carried this from the past. And the other face is [that] that total personality is completely beyond human criticism; that is really buddha nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in *Fukanzazengi*, Dōgen Zenji says, “The origin of the way is perfect and all-pervading.”
+That total personality has a double face. One face is karma; you have carried this from the past. And the other face is [that] that total personality is completely beyond human criticism; that is really buddha-nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in *Fukanzazengi*, Dōgen Zenji says, “The origin of the way is perfect and all-pervading.”
 
-And then also, if you do zazen, the original face of existence appears, manifests itself. That is, as Dōgen says in *Fukanzazengi*, [perfect and all-pervading] – the origin of the way, the origin of existence, is perfect and all-pervading. That is buddha nature. If you do zazen, immediately [it] appears. That is what is called the original nature of existence manifesting itself. 
+And then also, if you do zazen, the original face of existence appears, manifests itself. That is, as Dōgen says in *Fukanzazengi*, [perfect and all-pervading] – the origin of the way, the origin of existence, is perfect and all-pervading. That is buddha-nature. If you do zazen, immediately [it] appears. That is what is called the original nature of existence manifesting itself. 
 
 #### 6:19
 
@@ -92,7 +92,7 @@ So if you concentrate on *body* and *breath*, that is samadhi. By the help of sa
 
 That egolessness is what is called “having no design of having reward.” [That’s why,] finally, something is left. That something is just activity. That is called *shikantaza*. 
 
-So, this regulation of the mind doesn’t connect with this (*shikantaza*). Of course, it connects, because regulation of the mind is really closely related with number three, regulation of the body. The body and mind are one; that’s why it’s very close. But if you completely practice the regulation of the mind based on *samadhi* and *egolessness* and *no design on having any reward* – at that time, you don’t know. You cannot perceive what total personality is, what [...] buddha nature is. You can experience it, but you don’t know what it is. It doesn’t connect. In a sense it connects, but it doesn’t connect [totally]. So you don’t know what it is.
+So, this regulation of the mind doesn’t connect with this (*shikantaza*). Of course, it connects, because regulation of the mind is really closely related with number three, regulation of the body. The body and mind are one; that’s why it’s very close. But if you completely practice the regulation of the mind based on *samadhi* and *egolessness* and *no design on having any reward* – at that time, you don’t know. You cannot perceive what total personality is, what [...] buddha-nature is. You can experience it, but you don’t know what it is. It doesn’t connect. In a sense it connects, but it doesn’t connect [totally]. So you don’t know what it is.
 
 #### 22:51
 
@@ -168,7 +168,7 @@ In a sense, according to the common sense – you know, consciousness, our sense
 
 On the other hand, that total personality comes from where? Beginningless past, and endless future. So finally that’s total personality, [so] Katagiri is Katagiri. So why don’t I take care of Katagiri with compassionate attention, completely beyond judgement [of] good or bad, right and wrong? So we must be right in the middle of total personality, everyday life. Total personality is the core of life, so we must always be there.
 
-So from *this* point, it’s pretty easy, no difficulty. That’s why Dōgen Zenji says that the Buddhist faith – if you believe total personality, or buddha nature, whatever there is – within total personality or the original nature of existence, there is no suffering, no confusion, no agitation, et cetera. Completely perfect. 
+So from *this* point, it’s pretty easy, no difficulty. That’s why Dōgen Zenji says that the Buddhist faith – if you believe total personality, or buddha-nature, whatever there is – within total personality or the original nature of existence, there is no suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 So it’s pretty easy, in a sense. But in a sense, according to the six consciousnesses, it’s pretty hard. Because in the six consciousnesses we can understand our life according to the huge pile of experiences which we have accumulated. That’s why it’s pretty hard. Arrangement, regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? 
 
