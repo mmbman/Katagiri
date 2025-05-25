@@ -4,7 +4,7 @@ title: "Annotated Fukanzazengi"
 
 #### Annotations by Kikan Michael Howard
 
-#### Updated May 22, 2025
+#### Updated May 24, 2025
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
