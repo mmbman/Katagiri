@@ -16,7 +16,13 @@ This is very much a work in progress. I will update this page as I transcribe ta
 
 ### *Fukanzazengi*
 
-> The way is originally perfect and all-pervading. How could it be contingent on practice and realization? 
+> The Way is originally perfect and all-pervading. 
+
+- Katagiri Roshi translates this as, “The origin of the way is perfect and all-pervading.” See [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [56:36](1979-06-09-Fukanzazengi-Talk-1#5636), and also the start of [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2”](1979-06-10-Fukanzazengi-Talk-2).
+- "The Way" is *tao* or *dao* (道), or in Japanese transliteration, *dō*. Dōgen Zenji’s name  – *Dō*-*gen* (道元) – means “Way origin.”
+- For an explanation of what “The Way” actually means in Buddhism, perhaps the best place to start is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), from the beginning, followed by the whole [“Principles of Practice”](principles-of-practice) series. Although, perhaps unsurprisingly, “The Way” is discussed in many of Katagiri Roshi’s other talks! In the future I may add more references here.
+
+> How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
 - The meaning of *shō* (證), often translated as “realization,” should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō*, and its distinction from *kaku* and *satori*, which are also sometimes translated as “enlightenment.” See [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5).
