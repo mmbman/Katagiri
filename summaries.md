@@ -656,7 +656,7 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 
 ---
 
-#### 1988
+### 1988
 
 ##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
