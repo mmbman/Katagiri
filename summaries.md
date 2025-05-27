@@ -2,7 +2,7 @@
 title: "Talk Summaries"
 ---
 
-These are the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
+This is a list of talks that have been transcribed on this site, with brief summaries compiled by Kikan. Like the transcripts themselves, the summaries are a continuing work in progress.
 
 Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989)
 
