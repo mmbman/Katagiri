@@ -4,6 +4,8 @@ title: "Talk Summaries"
 
 These are the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
 
+Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989)
+
 ---
 
 ### 1979
@@ -202,13 +204,19 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 
 ### 1981
 
+--- 
+
 ##### [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
 
 What will we need after we die? What is the meaning of keeping silent? Keeping silent means to take off the “clothes” of our concepts, such as success and failure, pleasure and suffering, life and death. But you cannot stay with the silence; you have to know the person completely unfolded behind the silence. This is how to “light the candle” of human culture. Also: There is no discrimination between the four kinds of horses, which are us. Still, at some point, you need a whip. And then, you can run.
 
+--- 
+
 ##### [*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
 What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
+
+--- 
 
 ##### [*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2)
 
@@ -218,192 +226,215 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 
 ### 1982
 
-##### [*Blue Cliff Record* Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
-###### November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
+--- 
 
-Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: How to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
+##### [*Blue Cliff Record* Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
+
+Katagiri Roshi examines Case 34 of the *Blue Cliff Record*, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: How to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
 
 ---
 
 ##### [*Blue Cliff Record* Case 35: The Dialogue of Manjusri and Wu Cho](1982-11-24-Blue-Cliff-Record-Case-35)
-###### November 24, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses Case 35 of the *Blue Cliff Record*, in which an obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: Does it matter how many people come to our Zen Center?
+An obscure monk has a spiritual discussion with the Bodhisattva of Wisdom. Can we settle our uncertainties? Can we accept our lives in terms of infinity? Or will we be like a lion running around in a cage? If we find ourselves in a cage, how should we practice? Also: Does it matter how many people come to our Zen Center?
 
 ---
 
 ##### [*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1)
-###### December 1, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Wandering in the mountains, life flowing freely: how very like the sense of springtime. Katagiri Roshi discusses seeking for the truth, and returning following the falling flowers. What is total communication between you and the mountain? Sages and ordinary people are the same, but what is beyond *sage* or *ordinary person*? Movement and practice responding to the rhythm of life. Also: how to get fired from a job in the human world. The caution against falling into the weeds is ironic commentary.
 
 ---
 
 ##### [*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 2](1982-12-08-Blue-Cliff-Record-Case-36-Talk-2)
-###### December 8, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi further expounds on “Ch’ang Sha Wandering in the Mountains,” focusing on the verse. He especially focuses on the first line, “The earth is clear of any dust.” This is Buddha’s world, which is identical with the original nature of existence. But also, “A mad monkey cries on the ancient terrace”: this is us looking through the telescope of our karmic perceptions. Buddhist practice is not to destroy all human delusions and *then* you can have Buddha’s world; we need both. Good or bad are nothing but time, but time is not good or bad. A monk walks in the snow without leaving a trace. 
 
 ---
 
 ##### [*Blue Cliff Record* Case 37: P’an Shan’s There Is Nothing in the World](1982-12-15-Blue-Cliff-Record-Case-37)
-###### December 15, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 If there is nothing that can be pinned down in the vast expanse of the universe, then where is the mind? *Where is the mind* is a question, but also it is already an answer: the answer of what the real state of human life is. The essence is raising *(sic)*, just like a spring of water coming up. The continuation of flow makes a rhythm, or music; a concert, an orchestra. If we pay attention, and make ourselves simple and open, we can learn from this tune. Examining this case and verse, Katagiri Roshi shares the meaning of such poetry as, “When the rain has passed, the autumn water is deep in the evening pond,” and, “The moon’s brightness shines, revealing the night traveller.” Poetry and art are a shadow, but without them, we cannot approach the truth. 
 
 ---
 
 ##### [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1](1982-12-22-Blue-Cliff-Record-Case-38-Talk-1)
-###### December 22, 1982 Dharma Talk by Dainin Katagiri Roshi
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the sudden and the gradual in Zen. We need both, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop!
 
 ---
 
+### 1983 
+
+---
+
 ##### [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
-###### January 5, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 The ancestors all convey Buddha Mind – magnanimous mind, compassionate mind, and joyful mind – to the next generation. This is why Feng Hsueh Zen Master explains Buddha Mind as being just like an Iron Ox. Katagiri Roshi further examines this case. Should we add our own ideas to Buddhism?
 
 ---
 
 ##### [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge, Talk 1](1983-01-12-Blue-Cliff-Record-Case-39-Talk-1)
-###### January 12, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Pointer to case Thirty-Nine of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. To “observe times and seasons, causes and conditions” does not mean we should observe from a distance; we must observe *closely*, settling ourself in the self. “Times and seasons” means our life in the stream of the time process, and “causes and conditions” means the spacious dimension of our existence. Our life is in the pivot position, where time and space are working constantly in dynamism, whether we know it or not.
 
 ---
 
 ##### [*Blue Cliff Record* Case 39: Yun Men’s Flowering Hedge, Talk 2](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2)
-###### January 19, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Verse to Case 39 of the *Blue Cliff Record*, “Yun Men’s Flowering Hedge”. What is the real picture of a flower? There is an interesting statement of what *samsara* is, which is related to *Sandokai* (*The Harmony of Difference and Sameness*). The marks on the scale are on the balance arm, not on the pan. The rhythm of being means including all sentient beings.
 
 ---
 
 ##### [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 1](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1)
-###### January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dream? Why do we need a push from the top of a one hundred foot pole? Also: is Buddhist community like army training?
 
 --- 
 
 ##### [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
-###### February 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. What is the *dharma stage*?
 
 ---
 
 ##### [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes, Talk 1](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1)
-###### March 2, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explores Case 42 of the *Blue Cliff Record*, in which Layman P’ang says, “Good snowflakes—they don’t fall in any other place.” As it says in the *Song of the Jewel Mirror Samadhi*, “Inquiry and response come up together.” If we really devote ourselves to doing zazen beyond our evaluation, accepting totally, we manifest ourselves in a totally appropriate way, and very naturally, everything will respond. We must jump into the realm of silence so that our life springs forth. Even if we don’t say anything with our mouth, our whole body speaks volumes. Buddha is not something divine, apart from us; Buddha has to go down to the human world and work. 
 
 ---
 
 ##### [*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes, Talk 2](1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
-###### March 9, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the rhythm of causation, which is *not falling into cause and effect and not ignoring cause and effect*.  Representing cause and effect is Layman P’ang; representing freedom from cause and effect or *emptiness* is the monk Ch’uan. If you understand emptiness, you can become sick of emptiness. To avoid Zen sickness, offer a turning word. Also: Teaching without doing is not a good deal. 
 
 ---
 
 ##### [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat, Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
-###### March 16, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
 ##### [*Blue Cliff Record* Case 43 Talk 2: The Five Ranks](1983-04-06-Blue-Cliff-Record-Case-43-Talk-2)
-###### April 6, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. *(Warning: the archive audio cuts out before the explanation of the fifth rank.)*
 
 ---
 
 ##### [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
-###### April 20, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
 ##### [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
-###### April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
 ##### [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1)
-###### May 25, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 Where does *the one* come from? Who creates the first cause? The one comes from right *here*. A “seven pound shirt” means an ordinary shirt is interconnected with the whole universe. It’s not necessary to move fast or slow in Zen; your life must be connected beyond speed. Being still in dynamism, dynamic in stillness — that is spiritual security. But we realize it in a moment of time only.
 
 ---
 
 ##### [*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2)
-###### June 1, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings forth the seven pound shirt: universal, creative life. But can we wear it? If we wear it, achieving stability in a moment of time, then next moment we have to throw it away. A refreshing breeze passes through the horse pasture of all beings. It’s not exactly mysticism. 
+Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings forth the seven pound shirt: universal, creative life. But can we wear it? If we wear it, achieving stability in a moment of time, then next moment we have to throw it away. A refreshing breeze passes through the horse pasture of all beings. It’s not exactly mysticism.
 
 ---
 
 ##### [*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1)
-###### June 15, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *This talk is not available due to an error in the online audio archive.*
 
 ---
 
 ##### [*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
-###### August 24, 1983 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
 ##### [Arts and Buddhism](https://katagiritranscripts.net/1983-10-29-Arts-and-Buddhism)
-###### October 29, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses what the true purpose of Buddhism is, which intersects with a discussion of Buddhistic art. *Bendo* means to expend our every possible effort toward *the way*, not for the purpose of satisfying our desires. 
-
----
-
-##### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
-###### March 21, 1984 Dharma Talk by Dainin Katagiri Roshi
-
-Katagiri Roshi discusses the Four Foundations of Mindfulness, focusing on the first foundation: contemplation of the body. This series of talks examines the “Thirty-Seven Elements of Bodhi” (*Sanjūshichi-bon-bodai-bunpō*) chapter of Zen Master Dōgen’s *Shōbōgenzō*, which explains traditional Buddhist teachings in Mahayana terms. In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body. He discusses how *samatha* (tranquility) and *vipassana* (insight) function together, and weighs in on the practice of meditating on the decomposition of human corpses. Also, the meaning of “facing the wall,” and why the word *Zen* is overused.
+Katagiri Roshi discusses the true purpose of Buddhism, which intersects with a discussion of the arts and their relation to *sunyata* (“emptiness”). Life and death should be seen in terms of the way (*bendo*), not in terms of satisfying our desires. 
 
 ---
 
-##### [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)
-###### March 22, 1984 Dharma Talk by Dainin Katagiri Roshi
+##### [*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
 
-The body is total dynamic working, and total dynamic working is like a maple leaf falling, showing its front and back. And also, the maple leaf is sucked into a black hole. Failure is really development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of *mind only*. 
-
---- 
-
-##### [Mindfulness – Talk 3](1984-03-23-Mindfulness-Talk-3)
-###### March 23, 1984 Dharma Talk by Dainin Katagiri Roshi
-
-If you observe the body, the body observes you; there is no one-way traffic. And then, all sentient beings support your observation. Liberation comes from action, but that action must come from emptiness, or liberation itself. First we have to have a very deep faith that all sentient beings have the-same-and-one-nature; and then we have to establish the state of our mind that is like a wall, which is emptiness. Also: Translating *Shōbōgenzō* into English is hard.
+Katagiri Roshi discusses the relationship between action, communication, and boundaries. Never rest on your so-called enlightenment. It’s all food for the fish.
 
 ---
 
-##### [The Awakening of Faith: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
-###### May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
+##### [*Blue Cliff Record* Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
+
+Katagiri Roshi explains that there are two aspects of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must constantly practice both, like a rolling ball, or like a flag flapping in the eight worldly winds. Also, the meaning of *not killing*.
+
+---
+
+### 1984
+
+---
+
+##### [*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi](1984-01-04-Blue-Cliff-Record-Case-50)
 
 *Summary not yet available.*
 
 ---
 
-##### [Introduction to Buddhism](1985-06-22-Introduction-to-Buddhism)
-###### June 22, 1985 Dharma Talk by Dainin Katagiri Roshi
+##### [*The Awakening of Faith* – Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
 
-An alternative title for this talk might have been, “What Is Buddhist Faith?” What does *faith* mean in Buddhism, where the central philosophy is *emptiness*? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. And he answers the question, “What does this have to do with zazen?”
+Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by another question.
+
+---
+
+##### [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
+
+Katagiri Roshi explains the first aspect of mindfulness, mindfulness of the body, from the viewpoint of Zen Master Dōgen. Mindfulness is “observing that the body is a bag of skin that covers the entire universe.” In this talk, he introduces the topic of why we must go beyond the idea of purity or impurity of the body, and how *samatha* (tranquility) and *vipassana* (insight) function together. 
+
+---
+
+##### [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)
+
+The body is *total dynamic working*, and *total dynamic working* is like a maple leaf falling, showing its front and back. And also the maple leaf is sucked into a black hole. Failure is really development and growth. There is more discussion of *shamata* and *vipassana*, the intersection of time and space, and the meaning of “mind only.” 
+
+--- 
+
+##### [Mindfulness – Talk 3](1984-03-23-Mindfulness-Talk-3)
+
+Mindfulness is not an idea of mindfulness. If you observe the body, the body observes you, and then all sentient beings support your observation. There is no one-way traffic. Liberation comes from action, but that action must come from emptiness, or liberation itself. First, we have to have a very deep faith that all sentient beings have the-same-and-one-nature. And then, we have to establish the state of mind that is like a wall, which is emptiness.
+
+---
+
+##### [Mindfulness – Talk 4](1984-03-24-Mindfulness-Talk-4)
+
+Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-buddhas,” and “people-becoming-buddhas,” and how this relates to mindfulness of the body.
+
+---
+
+##### [Mindfulness – Talk 5](1984-03-25-Mindfulness-Talk-5)
+
+Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dōgen compares the method of Buddhist practice to the method of washing a robe. Mindfulness is dynamic communication. This moment is a blank canvas. 
+
+---
+
+##### [*The Awakening of Faith* – Talk 3: One Mind and Its Two Aspects](1984-04-06-Awakening-of-Faith-Talk-3)
+
+Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter One, “Revelation of True Meaning,” begins with the section “One Mind and Its Two Aspects.”
+
+---
+
+### 1985
+
+---
+
+##### [What Is Buddhist Faith? (Introduction to Buddhism)](1985-06-22-Introduction-to-Buddhism)
+
+What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
 
 ---
 

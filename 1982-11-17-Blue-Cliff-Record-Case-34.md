@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 34: Yang Shan Asks â€œWhere Have You Come From?â€
 
 ### Summary
 
-Katagiri Roshi examines Case 34 of the Blue Cliff Record, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: How to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
+Katagiri Roshi examines Case 34 of the *Blue Cliff Record*, which appears to be an ordinary conversation, but is actually an ordinary conversation in the broad scale of human life, which is beyond ordinary or not-ordinary. He explains the importance of paying attention to daily routine, and why we should get up in the morning. Also: How to practice compassion with emotions, how to be an actor, and how to be a not-actor. 
 
 ### Transcript
 
