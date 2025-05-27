@@ -10,6 +10,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 ### 1979
 
+---
+
 ##### [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 
 Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the fundamental point that it teaches: “*A* is *A*, but *A* is not *A*, this means *A* is really *A*.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
@@ -95,6 +97,8 @@ Why is there “no merit”? Katagiri Roshi covers one of the most famous storie
 ---
 
 ### 1980
+
+---
 
 ##### [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
@@ -200,6 +204,8 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 
 ### 1981
 
+---
+
 ##### [*Blue Cliff Record* Case 18: National Teacher Chung’s Seamless Monument](1981-07-18-Blue-Cliff-Record-Case-18)
 
 What will we need after we die? What is the meaning of keeping silent? Keeping silent means to take off the “clothes” of our concepts, such as success and failure, pleasure and suffering, life and death. But you cannot stay with the silence; you have to know the person completely unfolded behind the silence. This is how to “light the candle” of human culture. Also: There is no discrimination between the four kinds of horses, which are us. Still, at some point, you need a whip. And then, you can run.
@@ -219,6 +225,8 @@ Katagiri Roshi discusses the pointer to this case. What is our potential? What i
 ---
 
 ### 1982
+
+---
 
 ##### [*Blue Cliff Record* Case 34: Yang Shan Asks “Where Have You Come From?”](1982-11-17-Blue-Cliff-Record-Case-34)
 
@@ -257,6 +265,8 @@ Is the Iron Ox dead or alive? Katagiri Roshi discusses the sudden and the gradua
 ---
 
 ### 1983 
+
+---
 
 ##### [*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 2](1983-01-05-Blue-Cliff-Record-Case-38-Talk-2)
 
@@ -368,6 +378,8 @@ Katagiri Roshi explains that there are two aspects of Buddhist practice: *the wa
 
 ### 1984
 
+---
+
 ##### [*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi](1984-01-04-Blue-Cliff-Record-Case-50)
 
 *Summary not yet available.*
@@ -418,6 +430,8 @@ Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter 
 
 ### 1985
 
+---
+
 ##### [What Is Buddhist Faith? (Introduction to Buddhism)](1985-06-22-Introduction-to-Buddhism)
 
 What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
@@ -425,6 +439,8 @@ What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with tot
 ---
 
 ### 1986
+
+---
 
 ##### [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 
@@ -529,6 +545,8 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 ---
 
 ### 1987
+
+---
 
 ##### [Dōgen: Four Points](1987-01-10-Dogen-Four-Points)
 
@@ -658,6 +676,8 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 
 ### 1988
 
+---
+
 ##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
 *Summary not yet available.*
@@ -672,6 +692,8 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
 ---
 
 ### 1989
+
+---
 
 ##### [Dealing with Death, Dealing with Life](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 ###### January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
