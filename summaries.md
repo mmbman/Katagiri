@@ -450,6 +450,33 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ---
 
+##### [Principles of Practice, Talk 1: The Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
+
+*Summary not yet available.*
+
+---
+
+##### [Principles of Practice, Talk 2: *Bodhicitta*](1986-03-20-Principles-of-Practice-Talk-2)
+
+*Summary not yet available.*
+
+--- 
+
+##### [Principles of Practice, Talk 3: High Resolve](1986-03-21-Principles-of-Practice-Talk-3)
+
+*Summary not yet available.*
+
+--- 
+
+##### [Principles of Practice, Talk 4: Faith](1986-03-22-Principles-of-Practice-Talk-4)
+
+*Summary not yet available.*
+
+--- 
+
+##### [Principles of Practice, Talk 5: Direct Transmission](1986-03-23-Principles-of-Practice-Talk-5)
+
+*Summary not yet available.*
 
 --- 
 
@@ -460,51 +487,180 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 ---
 
 ##### [Buddha’s Birthday](1986-04-13-Buddhas-Birthday)
-###### April 13, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour tea over the statue of the baby Buddha, why according to legend the baby Buddha took seven steps, and the real meaning of his declaration, “I alone am the honored one in heaven and on earth.” 
 
 --- 
 
 ##### [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
-###### April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
 ##### [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
-###### May 3, 1986 Dharma Talk by Dainin Katagiri Roshi
+
+*Summary not yet available.*
+
+---
+
+##### [The Goldenness of the Earth, the Sweet Milk of the Long River](1986-05-31-Goldenness-of-the-Earth)
 
 *Summary not yet available.*
 
 ---
 
 ##### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
-###### June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
 
 ---
 
-##### [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
-###### March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+##### [Verse of Opening the Sutra](1986-07-23-Verse-of-Opening-the-Sutra)
 
-Katagiri Roshi introduces a series of seven talks on the *Platform Sutra,* the recorded teaching of Hui Neng, the Sixth Ancestor in China. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is really “to see into one’s own nature.” 
+Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, which is usually chanted before a dharma talk. He connects the *Verse* to related passages from the *Lotus Sutra* and the *Samadhi Sutra*, and also draws a connection with the psychologist Alice Miller.
+
+---
+
+##### [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
+
+*Summary not yet available.*
+
+---
+
+### 1987
+
+##### [Dōgen: Four Points](1987-01-10-Dogen-Four-Points)
+
+Katagiri Roshi explains Zen Master Dōgen’s teaching in terms of four points: *realization of impermanence*, *shikantaza*, *liberation in action*, and *the whole works*. This talk focuses on *realization of impermanence* and the meaning of *shikantaza*, or *zazen* as practice.
+
+---
+
+##### [Zazen: Dropping off Body and Mind](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
+
+Katagiri Roshi discusses the meaning of the phrases “dropping off body and mind” and “*sanzen* is *zazen*” in Zen Master Dōgen’s teaching. This is related to the meaning of Avalokiteshvara as *compassion*. Also: *suffering*, *faith*, and *emptiness*. 
+
+---
+
+##### [*Platform Sutra* – Talk 1](1987-03-06-Platform-Sutra-Talk-1)
+
+Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This talk comments on Chapter 1, “Action and Intention,” which includes the famous “poetry contest.” He discusses the controversy of whether the point of Zen is “to see into one’s own nature” (*kenshō*) to achieve Buddhahood.
+
+---
+
+##### [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
+
+Katagiri Roshi introduces a series of talks on the question-and-answer section of *Bendōwa*, “A Talk on Pursuing the Way.” He discusses why zazen is the “right entrance to the buddha-dharma” – particularly, what “right” means – and what “to study” or “to learn” means in Zen.
+
+---
+
+##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
+
+*Summary not yet available.*
+
+---
+
+##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
+
+*Summary not yet available.*
+
+---
+
+##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
+
+*Summary not yet available.*
+
+---
+
+##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
+
+*Summary not yet available.*
+
+---
+
+##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
+
+*Summary not yet available.*
 
 ---
 
 ##### [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
-###### March 20, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi comments on Chapter 2 of the *Platform Sutra*: “*Prajna*,” or “wisdom.” The discussion includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
+Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajna*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
 
 ---
 
-##### [Karma in Buddhism](1987-05-23-Karma-in-Buddhism)
-###### June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
+##### [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)
 
-Katagiri Roshi summarizes the origins and development of the concept of *karma*, and then explores both its deeper meaning and its practical application. Karma is related both to the problem of whether there is a world after death, and how we should live in the present world. Practically, we can *feel* karma in our lives through *whole personality*. This is connected with the Buddhist concept of *vedanā* (*feeling*). After we *feel* our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the broader perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept; karma includes dynamic energy to move toward the future. We have to develop our individual character, and simultaneously the global character of human beings, in order to build up a peaceful world.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+
+---
+
+##### [*Platform Sutra* – Talk 4](1987-04-03-Platform-Sutra-Talk-4)
+
+Katagiri Roshi comments further on whether the point of Zen is actually “to see one’s own nature (*kenshō*) and realize the Buddha Way.” He connects this to a passage from the “Scripture of Mountains and Waters” in *Shōbōgenzō* which relates to four kinds of misunderstanding of Buddhism. The main point of practice is *to achieve continuity of going beyond*. We have to pay attention to Buddhist teaching and simultaneously produce creative life, like morning flowers blooming from a trellis.
+
+---
+
+##### [*Platform Sutra* – Talk 5](1987-04-10-Platform-Sutra-Talk-5)
+
+Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve continuity of going beyond* by dealing with all phenomena directly, with compassion and kindness. What does it mean to experience *kensho*? There is a longer explanation of how the three poisons (greed, anger, and ignorance) transform into the three “learnings” (morality, concentration, and wisdom).
+
+---
+
+##### [*Platform Sutra* – Talk 6](1987-04-17-Platform-Sutra-Talk-6)
+
+Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration.” He also discusses the statement that “if there were no people the ten thousand dharmas would not exist.” Buddhist teachings come from the human heart, not the other way around. There is a long question about how to relate to “non-attachment to objects” as an object.
+
+---
+
+##### [*Platform Sutra* – Talk 7](1987-04-24-Platform-Sutra-Talk-7)
+
+Katagiri Roshi concludes this series on the *Platform Sutra* by discussing the relationship between *karma* and *nirvana*, or the phenomenal world and the truth, or the “ordinary” self and original self-nature. “Our fundamental self-nature is clear and pure” means there is no gap between them. We should continually deepen the experience of our lives, because karmic life is buddha.
+
+--- 
+
+##### [Karma in Buddhism](1987-05-23-Karma-in-Buddhism)
+
+Katagiri Roshi summarizes the origins and development of the concept of *karma*, and then explores both its deeper meaning and its practical application. Karma is related both to the problem of whether there is a world after death, and how we should live in the present world. Practically, we can *feel* karma in our lives through *whole personality*. This is connected with the Buddhist concept of *vedanā* (*feeling*). After we *feel* our life and other’s lives, we judge and make distinctions, limiting our view. First, we should understand how narrow our intellectual understanding of the world is, and we should work day-by-day to understand the human world in the broader perspective, through meditation. Second, there is no way to find a perfect understanding of life and death, so we must simply entrust ourselves to our life as it really is. But that doesn’t mean just to accept; karma includes dynamic energy to move toward the future. We have to develop our individual character, and simultaneously the global character of human beings, in order to build up a peaceful world. 
+
+---
+
+##### [*Genjokoan*: Talk 1 (Egolessness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+
+*Summary not yet available.*
+
+---
+
+##### [*Genjokoan*: Talk 2 (Consciousness)](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
+
+*Summary not yet available.*
+
+---
+
+##### [*Genjokoan*: Talk 3 (Flow)](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
+
+*Summary not yet available.*
+
+---
+
+##### [*Genjokoan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
+
+*Summary not yet available.*
+
+---
+
+##### [*Genjokoan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+
+*Summary not yet available.*
+
+---
+
+#### 1988
+
+##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
+
+*Summary not yet available.*
 
 ---
 
@@ -515,9 +671,10 @@ Katagiri Roshi discusses how and why we should devote ourselves to dharma. He sa
   
 ---
 
+### 1989
+
 ##### [Dealing with Death, Dealing with Life](1989-01-07-Dealing-with-Death-Dealing-with-Life)
 ###### January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi discusses how we should practice with those who are ill or dying. We have to deeply understand human suffering and pain. There shouldn’t be an expectation that there is a certain way to die; lots of emotions come up, and we should be right there with it. Also, we should practice a feeling of togetherness with those who are ill or dying, because there is no separation between us and them. We need to practice this in our day-to-day lives, or we will not be ready to offer compassion in difficult times. This everyday practice may seem to be small, trifling things, but it is very important for us; it makes our personality mature. It includes expressing emotions in appropriate ways and times, not recklessly. We need oneness, and also oneness needs *us*. We have to receive oneness, and deal with it, and make it alive. To illustrate the Japanese word *ki*, Katagiri Roshi talks about his love of the American television show *Bewitched*.
+Katagiri Roshi discusses how we should practice with those who are ill or dying. We have to deeply understand human suffering and pain. There shouldn’t be an expectation that there is a certain way to die; lots of emotions come up, and we should be right there with it. Also, we should practice a feeling of togetherness with those who are ill or dying, because there is no separation between us and them. We need to practice this in our day-to-day lives, or we will not be ready to offer compassion in difficult times. This everyday practice may seem to be small, trifling things, but it is very important for us; it makes our personality mature. It includes expressing emotions in appropriate ways and times, not recklessly. We need oneness, and also oneness needs *us*. We have to receive oneness, and deal with it, and make it alive.
 
----
