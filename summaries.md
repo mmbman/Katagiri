@@ -312,7 +312,7 @@ Katagiri Roshi discusses the rhythm of causation, which is *not falling into cau
 
 ##### [*Blue Cliff Record* Case 43: Tung Shan’s No Cold or Heat, Talk 1](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -324,13 +324,13 @@ Katagiri Roshi explains the Five Ranks, a fundamental teaching of Zen Buddhism. 
 
 ##### [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 1](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Blue Cliff Record* Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -354,7 +354,7 @@ Katagiri Roshi explains the verse to this case. The old awl Chao Chou brings for
 
 ##### [*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -382,7 +382,7 @@ Katagiri Roshi explains that there are two aspects of Buddhist practice: *the wa
 
 ##### [*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi](1984-01-04-Blue-Cliff-Record-Case-50)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -468,37 +468,37 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ##### [Principles of Practice, Talk 1: The Purpose of Practice](1986-03-19-Principles-of-Practice-Talk-1)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [Principles of Practice, Talk 2: *Bodhicitta*](1986-03-20-Principles-of-Practice-Talk-2)
 
-*Summary not yet available.*
+Summary not yet available.
 
 --- 
 
 ##### [Principles of Practice, Talk 3: High Resolve](1986-03-21-Principles-of-Practice-Talk-3)
 
-*Summary not yet available.*
+Summary not yet available.
 
 --- 
 
 ##### [Principles of Practice, Talk 4: Faith](1986-03-22-Principles-of-Practice-Talk-4)
 
-*Summary not yet available.*
+Summary not yet available.
 
 --- 
 
 ##### [Principles of Practice, Talk 5: Direct Transmission](1986-03-23-Principles-of-Practice-Talk-5)
 
-*Summary not yet available.*
+Summary not yet available.
 
 --- 
 
 ##### [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -510,25 +510,25 @@ Katagiri Roshi discusses the Buddha’s Birthday ceremony, including why we pour
 
 ##### [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [The Goldenness of the Earth, the Sweet Milk of the Long River](1986-05-31-Goldenness-of-the-Earth)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -540,7 +540,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 
 ##### [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -574,31 +574,31 @@ Katagiri Roshi introduces a series of talks on the question-and-answer section o
 
 ##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -646,31 +646,31 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 
 ##### [*Genjokoan*: Talk 1 (Egolessness)](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Genjokoan*: Talk 2 (Consciousness)](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Genjokoan*: Talk 3 (Flow)](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Genjokoan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
 ##### [*Genjokoan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
@@ -680,7 +680,7 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 
 ##### [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
-*Summary not yet available.*
+Summary not yet available.
 
 ---
 
