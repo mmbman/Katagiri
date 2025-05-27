@@ -4,7 +4,7 @@ title: "Annotated Fukanzazengi"
 
 #### Annotations by Kikan Michael Howard
 
-#### Updated May 26, 2025
+#### Updated May 27, 2025
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
@@ -25,7 +25,7 @@ This is very much a work in progress. I will update this page as I transcribe ta
 > How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
-- The meaning of *shō* (證), often translated as “realization,” should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō*, and its distinction from *kaku* and *satori*, which are sometimes translated as “awakening” and “enlightenment.” See [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5).
+- The meaning of *shō* (證), often translated as “realization,” should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō*, and its distinction from *kaku* and *satori*, which are sometimes translated as “awakening” and “enlightenment”: see [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). This is also discussed in [“*Diamond Sutra*: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness), in  [“*Genjokoan*: Talk 2 (Consciousness)” at 1:08:08](1987-06-06-Shobogenzo-Genjokoan-Talk-2#10808), and probably in other talks yet to be transcribed.
 - The oneness of practice and realization is often presented as a key point of Dōgen’s teaching, if not his key point, period. On the statement “to think practice and realization are not one is a heretical view” from *Bendōwa*, see [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4).
 - See also the commentary on these lines in *Each Moment Is the Universe*, Chapter 6, “The Root of the Buddha Way.” This chapter is derived from more than one talk, which may or may not be available in the archive.
 
