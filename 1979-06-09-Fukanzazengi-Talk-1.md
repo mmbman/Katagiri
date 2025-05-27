@@ -23,7 +23,7 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s
 
 This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means [that if you do zazen] the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside.” *From the first*, distraction and dullness are going away, by themselves, even though there is nothing to force them to go away. 
 
-This is [the real] meaning of *shikantaza*. It’s pretty difficult to understand, but this is really true, which you experience in your daily living. [Our] Life is really based on this teaching. 
+This is [the real] meaning of *shikantaza*. It’s pretty difficult to understand, but this is really true, which you experience in your daily living. [Our] life is really based on this teaching. 
 
 When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, from the first, dullness and confusions and distractions are struck aside, because you are manifesting yourself as you really are from moment to moment. In other words, you can stand up straight, right now, right here, but that means you can manifest *yourself*; so if you can stand up straightly right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
 
