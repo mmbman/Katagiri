@@ -4,8 +4,6 @@ title: "Talk Summaries"
 
 These are the talks that have been transcribed on this site, with brief summaries compiled by Kikan.
 
----
-
 ### 1979
 
 ##### [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
@@ -44,66 +42,41 @@ The conclusion to the series of talks on *Fukanzazengi* takes place during a dra
 
 Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is *no perception of self and no perception of object*. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of *provisional being*, and also *empathy*, which is universal consciousness. This is how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if some king insists on chopping you to bits.
 
----
-
 ##### [*Diamond Sutra*: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
-###### August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 What is a buddha, and what does a buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *shō* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
----
-
 ##### [*Diamond Sutra*: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-###### August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Why is the perfection of generosity the most important quality in Mahayana Buddhism? What is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the *Duino Elegies* by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to “get” something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face,” he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
 
----
-
 ##### [*Diamond Sutra*: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
-###### August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *nirmanakaya*, *sambhogakaya*, and *dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would do well to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
----
-
 ##### [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths, Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
-###### November 17, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*, a renowned collection of one hundred koans (or “public cases”) in the Zen tradition. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
-
----
+Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
 
 ##### [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths, Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
-###### November 18, 1979 Dharma Talk by Dainin Katagiri Roshi
 
 Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Sōtō denominations.
 
----
+### 1980
 
 ##### [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
-###### January 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting one hundred percent” – not ninety, not ninety-nine, only one hundred or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? Also: dragging yourself in muddy water like a sewer rat chased by a cat. 
 
----
-
 ##### [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
-###### January 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called *shikantaza*. But this simplicity is not simple as we usually understand it: this simplicity is to do something with no choice, on the edge of life and death.
 
----
-
 ##### [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
-###### March 15, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what *all* means. It may not mean what we usually think. In Buddhism, *all* means something which is closely connected with our individual life. Ultimately, we have to dive into the ocean of karma, which is *samskaras*.
 
----
-
 ##### [*Blue Cliff Record* Case 3: Master Ma Is Unwell, Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
-###### April 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
 What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is fleeting, ephemeral. What is the opportunity of this human body and mind? How can we communicate human life to each other, in order to enter a peaceful world? Even though body and mind are going on in the rhythm of the universe, we are always poking our head into a hole, like a cat. Do we need to stay in the hole, turning it into a den? Katagiri Roshi discusses what is *right*, in the sense of *Right Thought* and *Right View* in Buddha’s Noble Eightfold Path. He also discusses how we should relate to modern civilization, and there is a story about his brother learning to swim in the Navy.
 
