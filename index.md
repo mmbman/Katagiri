@@ -27,13 +27,15 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 [**Talk List**](list)
 
+[**Talk Summaries**](summaries)
+
 **Resources:**
 
 - [Annotated *Fukanzazengi*](annotated-fukanzazengi)
 
 **Latest Updates:**
 
-- May 27, 2025: Revised [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1). Updated [“Annotated *Fukanzazengi*”](annotated-fukanzazengi).
+- May 27, 2025: Revised [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1). Updated [“Annotated *Fukanzazengi*”](annotated-fukanzazengi). Reinstated the [Talk Summaries](summaries) page.
 - May 14, 2025: Updated the [Introduction](introduction).
 - May 11, 2025: Updated drafts of the [Principles of Practice](principles-of-practice) series.
 - May 3, 2025: Posted drafts of the [Principles of Practice](principles-of-practice) series.
