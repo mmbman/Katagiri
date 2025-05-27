@@ -8,57 +8,85 @@ These are the talks that have been transcribed on this site, with brief summarie
 
 ### 1979
 
+--- 
+
 ##### [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 
 Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the fundamental point that it teaches: “*A* is *A*, but *A* is not *A*, this means *A* is really *A*.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
+
+--- 
 
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 
 Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendation for how to practice zazen (seated meditation), by examining the meaning of the line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners often hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha-nature*. 
 
+--- 
+
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 2](1979-06-10-Fukanzazengi-Talk-2)
 
 Katagiri Roshi expands on the six-component system for understanding zazen that he introduced in the previous talk. He further discusses the relationship between regulation of body and mind, *samadhi* (one-pointedness), *egolessness*, “no design on having a reward,” and *shikantaza* (just sitting). The distinction between “religious zazen” and philosophical or psychological zazen is explored. There is an extended question and answer period.
+
+--- 
 
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3](1979-06-11-Fukanzazengi-Talk-3)
 
 Katagiri Roshi examines the meaning of the line “from the first, dullness and distraction are struck aside” from another angle, discussing Hashimoto Roshi’s statement that “if you sit down even for a moment, you become Buddha.” He talks about three different kinds of zazen (sitting meditation), and why *shikantaza* is not a means to an end. He also explains what it means to accumulate merit and virtue, how to understand and work with past karma, and why we have to aim at the life after next life. There is a story about a commando who visited the Zen Center. Also: what to do when death taps your back. 
 
+--- 
+
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4](1979-06-12-Fukanzazengi-Talk-4)
 
 Katagiri Roshi discusses the meaning of the line, “In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen,” using the example of *Blue Cliff Record* Case 46, “Ching Ch’ing’s Sound of Raindrops.” He talks about life and death, and how to “cease fire” in zazen. There is a story about a machine that reads brain waves, and he discusses whether there are any real Zen teachers in the United States. 
+
+--- 
 
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 
 Katagiri Roshi talks about the difference between zazen itself and seeing zazen *before zazen* or *after zazen*, using the example of Gensha Shibi in “One Bright Pearl.” In an extended question and answer period, he explains the difference between physical and psychological exhaustion, how to work with the “vomit” of the mind, and why we should do zazen for future generations. Does the world disappear during zazen? Are there techniques in Zen? And is Zen the simplest, most “pure” way?
 
+--- 
+
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
 Katagiri Roshi explains “body and mind dropping off” from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” Samskara is presented as a sort of a bridge or door which enables you to take mind to either the dualistic world or the non-dualistic world, because samskara itself is completely free. In relation to this, Katagiri Roshi explains a key line from Dōgen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+
+--- 
 
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
 
 The conclusion to the series of talks on *Fukanzazengi* takes place during a dramatic thunderstorm, the sounds of which Katagiri Roshi integrates into the talk. The Buddha does zazen during a thunderstorm, but he is not disturbed by the sound of the thunder. Katagiri Roshi discusses why the purpose of zazen is not to reach a state of no consciousness, and the meaning of the term *jijuyu* (usually translated as “self-fulfillment”) in *Bendōwa*. Also: How to play guitar with two hands and two feet. A Rinzai Zen Master plays a Bach concerto in the zendo. And what does Manjushri do, anyway?
 
+--- 
+
 ##### [*Diamond Sutra*: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
 
 Why should we not be disappointed with this world, if there seems to be nothing to help us? To answer this question, Katagiri Roshi examines the aspect of Buddhist teaching that is *no perception of self and no perception of object*. Going further, he explains why we shouldn’t attach to either a perception of an object or perception of no-object. This leads to an explanation of *provisional being*, and also *empathy*, which is universal consciousness. This is how we can relate warmly to self and object. Does the morning sun have a mind? The answer may surprise you. Also: What to do if some king insists on chopping you to bits.
+
+--- 
 
 ##### [*Diamond Sutra*: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 
 What is a buddha, and what does a buddha experience? Katagiri Roshi describes three kinds of enlightenment: *kaku* (awareness), *satori*, and *shō* (realization or verification). He explains three aspects of the utmost, right, perfect enlightenment from the *Diamond Sutra*: the marklessness of all things, the marklessness of their emptiness, and the marklessness of their suchness. Also: Why we exist, how to experience spiritual security, and why we shouldn’t get *too* caught up in Buddhist psychology.
 
+--- 
+
 ##### [*Diamond Sutra*: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 
 Why is the perfection of generosity the most important quality in Mahayana Buddhism? What is true generosity, and true love? Katagiri Roshi explains how generosity relates to emptiness, or vastness, by sharing a poem from the *Duino Elegies* by Rainer Maria Rilke. Embracing the words of the poem, he says that human destiny is not something that forces us to be always “face to face,” trying to “get” something from each-other, but that we can also know a different way to live, to sit side by side in peace and harmony. Illustrating the problems we create when we are “face to face,” he tells a story about adult children living with their parents in Japan, and a story about his own experience attending Hiroshima Day in Omaha, Nebraska.
+
+--- 
 
 ##### [*Diamond Sutra*: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni has experienced, no dharma which the Buddha Shakyamuni has preached, then how does the Buddha experience and preach the dharma? Katagiri Roshi addresses this question in relation to the practice of giving. He begins by discussing seven ways we can be giving, even if we don’t have the ability to give a material gift or preach the dharma. To explain how the ungraspable can be taught, he talks about the three divisions of the Buddha body: *nirmanakaya*, *sambhogakaya*, and *dharmakaya*. This helps explain the role of virtue and merit, and also knowledge, in Buddhism. (Those looking for an explanation of Bodhidharma’s famous statement of “no merit” would do well to refer to this talk, in conjunction with the next two.) There is more about the Rilke poem, and why we have to experience a “big shock” to realize the dharma. Also: is enlightenment forgetfulness?
 
+--- 
+
 ##### [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths, Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
 Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
+
+--- 
 
 ##### [*Blue Cliff Record* Case 1: The Highest Meaning of the Holy Truths, Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
@@ -68,69 +96,103 @@ Why is there “no merit”? Katagiri Roshi covers one of the most famous storie
 
 ### 1980
 
+--- 
+
 ##### [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1)
 
 Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting one hundred percent” – not ninety, not ninety-nine, only one hundred or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? Also: dragging yourself in muddy water like a sewer rat chased by a cat. 
+
+--- 
 
 ##### [*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 2](1980-01-20-Blue-Cliff-Record-Case-2-Talk-2)
 
 Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regarding the Ultimate Path. The truth is always with us; yet in order to be one with the truth, we have to manifest ourselves as people who are not tossed away by picking and choosing thoughts and ideas. A problem is, if we try to *avoid* picking and choosing, we create *more* picking and choosing. Through study, we have to deeply understand the structure of our understanding, and then we can find the way of avoiding picking and choosing. There are three ways to understand something: perception, consciousness, and wisdom. (Those three could perhaps also be labelled as emotion, intellect, and deep understanding.) The third way is the Ultimate Path; however, this third way *integrates* the first two ways, it does not dismiss them. Finally, Katagiri Roshi says, what we do is very simple: practice, which is called *shikantaza*. But this simplicity is not simple as we usually understand it: this simplicity is to do something with no choice, on the edge of life and death.
 
+--- 
+
 ##### [Save All Sentient Beings](1980-03-15-Save-All-Sentient-Beings)
 
 Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentient beings” and “all dharmas,” clarifying what *all* means. It may not mean what we usually think. In Buddhism, *all* means something which is closely connected with our individual life. Ultimately, we have to dive into the ocean of karma, which is *samskaras*.
+
+--- 
 
 ##### [*Blue Cliff Record* Case 3: Master Ma Is Unwell, Talk 1](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1)
 
 What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is fleeting, ephemeral. What is the opportunity of this human body and mind? How can we communicate human life to each other, in order to enter a peaceful world? Even though body and mind are going on in the rhythm of the universe, we are always poking our head into a hole, like a cat. Do we need to stay in the hole, turning it into a den? Katagiri Roshi discusses what is *right*, in the sense of *Right Thought* and *Right View* in Buddha’s Noble Eightfold Path. He also discusses how we should relate to modern civilization, and there is a story about his brother learning to swim in the Navy.
 
+--- 
+
 ##### [*Blue Cliff Record* Case 3: Master Ma Is Unwell, Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
+
+--- 
 
 ##### [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle, Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei Shan. Te Shan is a former academic master of the *Diamond Sutra*, now an earnest seeker of the Way, just trying to work through his arrogance issues and perhaps have some dumplings. Kuei Shan is the abbot the monastery, founder of one of the schools of Zen, who won’t accept any “dregs” in the bottom of the bottle of enlightenment. Their encounter “under the blue sky, in the bright sunlight” still leaves us pointing out this and that.
 
+--- 
+
 ##### [*Blue Cliff Record* Case 4: Te Shan Carrying His Bundle, Talk 2](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2)
 
 Katagiri Roshi examines Engo Zen Master’s notes on the meeting of Te Shan and Kuei Shan, and the dynamics between *process itself* and *doings as a result*. The wild fox spirit and the board-carrying fellow live right next door to each other. “Wrong” and “sure enough.” Check!
+
+--- 
 
 ##### [Karma: Two Aspects](1980-06-30-Karma-Two-Aspects)
 
 Katagiri Roshi introduces a series of talks on karma. What is karma? Why is it important to study karma? Is karma only for Buddhist people? Is Buddhism itself only an aspect of Eastern culture? Can thinking about karma drive you crazy? Also: How to reconcile *aiming for the long range* with *no goal in zazen*.
 
+--- 
+
 ##### [Karma: Twelve-Link Causation](1980-07-01-Karma-Twelve-Link-Causation)
 
 Katagiri Roshi completely explains the Twelve-Linked Chain of Causation... presumably, but the audio is lost. However, there is substantial review of the topic in the talks following this one.
+
+--- 
 
 ##### [Karma: Where Karma Originates](1980-07-02-Karma-Where-Karma-Originates)
 
 Katagiri Roshi explains how *karma* is the source of our lives. He reviews the Twelve-Linked Chain of Causation, noting that karma is *samskara* (link two) and *bhava* (link ten). So karma originates from the first link: *avidyā* (*ignorance*). This means that avidyā is really *vitality* – it is how we get into the human world of the present moment. Our karma cannot be understood intellectually; the way to understand karma is to return to the source, which is to do *zazen* (sitting meditation). Katagiri Roshi describes four stages of zazen and five related mental factors. In particular, the descriptions of *prīti* and *sukha* may be helpful in understanding what is meant when we see the words *joy* and *happiness* in English translations of Buddhist texts. In the fourth stage of zazen, we are exactly one in the realm of source, which is karma. Then we can see what karma is.
 
+--- 
+
 ##### [Karma: Unmanifested Karma](1980-07-03-Karma-Unmanifested)
 
 Katagiri Roshi explains *unmanifested karma* and why we need to understand it. *Unmanifested karma* is the reason why we have to take responsibility for our individual behavior, because it is like an impression left behind by our actions, as opposed to *manifested karma*, which appears in one moment and disappears in the next. In terms of the Twelve-Linked Chain of Causation, unmanifested karma is *samskaras*. Despite its role in morality, unmanifested karma itself is completely neutral in nature. It is not “original sin.” If you get a taste of this karma, then you can turn over a new leaf, because karma is nothing but energy: it is the wellspring of creative vitality.
+
+--- 
 
 ##### [Karma: Taking Care of Karma](1980-07-04-Karma-Taking-Care-of-Karma)
 
 Katagiri Roshi further outlines *dhyāna* (meditation) as the way to study karma, which is the same as studying ourselves. He describes zazen in the *triple world* of *desire*, *form*, and *formlessness*, and further explains some key concepts in Buddhist psychology. Even if you reach the state of *formless samadhi*, still *perception* remains, because body and mind still exist. This is why Dōgen Zenji says, “Nevertheless, flowers fall with attachment, while weeds grow with hatred.” This body and mind are given to us as karma; we need to take care of them with compassion. And through karma, we can share our lives with others. The Suzuki Method for music education is given as an example of how to share our lives with others, particularly with regard to *vedanā* (*feeling*).
 
+--- 
+
 ##### [Karma: Karmic Retribution in Present Life](1980-07-10-Karmic-Retribution-in-Present-Life)
 
 Katagiri Roshi discusses karma in terms of Dōgen’s teaching, including three main points: *continuation of karma*, *karma as energy or emptiness*, and *Buddha’s karma*. He explains why Dōgen Zenji focuses on practice over study or even realization. *Karma* does not mean just cause and effect or *action*, but includes *unmanifested karma*, the impression left behind by our actions. *Karmic retribution* is illustrated by a story about a talking bear and a shockingly antisocial woodcutter. The line “learn the backward step that turns your light inwardly to illuminate your self” from *Fukanzazengi* relates to *eko* – giving away the merit from our actions – which is the fundamental attitude toward studying the Buddha Way. We must understand that our life right here and now is connected with the past and the future: that connection is through unmanifested karma.
+
+--- 
 
 ##### [Karma: Karma as Energy/Emptiness](1980-07-11-Karma-As-Energy-Emptiness)
 
 Karma is not a psychological entity: karma is consciousness, but also karma is really the human body, closely related. So if we want to know karma, we have to know the human body; and if we want to know the human body, we have to know consciousness. According to Twelvefold Causation, the base of our existence as karma is ignorance; but this ignorance is really vitality, allowing us to enter the gate of the human world. We should appreciate this. But we can’t just appreciate it without making any effort, because we carry many kinds of karma, stored at the bottom of human body and mind. This karma comes up only when time is right and conditions are arranged, so it is important that we arrange good conditions. We can do so because karma is a great source of energy, which we call *emptiness*. That means we can think in terms of possibility, and “dream the impossible dream” of helping all beings. Also: how to work with emotions in zazen.
 
+--- 
+
 ##### [Karma: Conclusion](1980-07-12-Karma-Conclusion)
 
 Katagiri Roshi further addresses the seeming contradiction that karma is both our property or inheritance and also is emptiness, freedom. This returns us to the reality of *Buddha’s karma*. We can reflect on ourselves and our actions without being stuck in the “ghost” of karma. Time and occasion and conditions are completely free, so day by day we can move toward the future, in order deepen our lives and help all beings. That is *Right Effort*. Also: Grace is not something that comes from heaven.
 
+--- 
+
 ##### [*Diamond Sutra*: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 
 How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajnaparamita Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
+
+--- 
 
 ##### [*Diamond Sutra*: Final Lecture](1980-07-23-Diamond-Sutra-Final-Lecture)
 
