@@ -43,7 +43,7 @@ So, but this discourse on Mahayana faith begins with truth. So, we step inside t
 
 So, there are several of the terms which we have learned. One is the *truth*. In this discourse, *truth* is called *the mind in terms of the truth*. So, general speaking, that is *truth*. So, let's [look at] the truth, that is number one. 
 
-Second, I don't know how to translate it, this is *the ultimate nature of mind is pure and clean*. This is the second term. Second, *the ultimate nature of mind is pure*. This is one word. Particularly Prajnaparamita, the main teaching of Prajnaparamita always emphasizes this point. The ultimate nature of our human mind is pure and clean. 
+Second, I don't know how to translate it, this is *the ultimate nature of mind is pure and clean*. This is the second term. Second, *the ultimate nature of mind is pure*. This is one word. Particularly Prajñāpāramitā, the main teaching of Prajñāpāramitā always emphasizes this point. The ultimate nature of our human mind is pure and clean. 
 
 Third, *tathagatagarbha*. 
 

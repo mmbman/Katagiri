@@ -138,7 +138,7 @@ So that is *check*; we have to check. That is the real nature of death itself, r
 
 How can you check? Your zazen is zazen. Zazen is just zazen; when you have to do zazen, that’s enough. And then that zazen is not something you can do always leaving a trace of consciousness, thinking, judgement. You have to do zazen without leaving any trace. That is *shikan* zazen, right in the middle of zazen. At that time, you can really have perfect confidence within zazen. That is really *check*, it’s real *check*. Real *check* is real practice.
 
-You can explain [this] philosophically, psychologically. [Nagarjuna] always points out that stuff, the philosophical. But [Zen] doesn’t explain it philosophically; just directly he says it. 
+You can explain [this] philosophically, psychologically. [Nāgārjuna] always points out that stuff, the philosophical. But [Zen] doesn’t explain it philosophically; just directly he says it. 
 
 In the story, Setchō adds the comment to Te Shan’s behavior, he says “Completely exposed.” And then for this, the statement Engo Zen Master makes is, “Wrong. Sure enough. Check.” That is “completely exposed.” So, death is completely exposed, life is completely exposed. The tree, zazen: completely exposed. What is it? Is it good? Yes. But it’s not good. It is something you have to check. *Check* is, day by day, we have to practice. Through the practice we have to deepen it, and get a taste of what is the real process of nature, what is the real death, what is the real meaning of life. We have to get a taste of it through practice, on a daily basis. Otherwise, [there is] no way to get a taste. That is Setchō Zen Master’s comment, “Completely exposed.” 
 

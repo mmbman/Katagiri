@@ -13,7 +13,7 @@ title: "Prajna Paramita and Emptiness"
 
 #### 0:00
 
-In the Prajnaparamita Sutra of the 8000 Gatha. In other words, 8000 Gatha Prajnaparamita Sutra. Translated by Dr. Conze. Chapter 18, title is "Emptiness". There is an interesting discussion between the Buddha’s disciple and also Buddha. 
+In the Prajñāpāramitā Sutra of the 8000 Gatha. In other words, 8000 Gatha Prajñāpāramitā Sutra. Translated by Dr. Conze. Chapter 18, title is "Emptiness". There is an interesting discussion between the Buddha’s disciple and also Buddha. 
 
 Subuti asked the Buddha, "How can one say that he begets the greater merit, since the Lord has described all accumulations as the result of false discrimination?" This is a question. How can one say that he begets the great merit since the Lord has described all accumulations as the merit of false discrimination? 
 
@@ -27,23 +27,23 @@ Let me read once more again.
 
 The Lord said, in that case all the accumulation of merit on the part of a bodhisattva who causes an imperfect wisdom must be described as just empty, worthless, insignificant and unsubstantial. To the extent that the bodhisattva goes on contemplating all dharmas in this manner, to that extent he becomes one who does not lack imperfect wisdom. And to the extent that he does not lack imperfect wisdom, to that extent he begets an immeasurable and incalculable heap of merit. 
 
-I think in the *Prajnaparamita* we tend to usually think, we say, “Avalokiteshvara when he practices deeply the Prajnaparamita,” something like that. The me see... 
+I think in the *Prajñāpāramitā* we tend to usually think, we say, “Avalokiteshvara when he practices deeply the Prajñāpāramitā,” something like that. The me see... 
 
-Avalokiteshvara bodhisattva when practicing deeply Prajnaparamita perceives that all five skandhas are empty and was saved from all suffering and distress. 
+Avalokiteshvara bodhisattva when practicing deeply Prajñāpāramitā perceives that all five skandhas are empty and was saved from all suffering and distress. 
 
 And toward the end we say, *gate gate pargate parasamgate bodhisvaha*. 
 
-So in the Prajnaparamita two important points here. One is, Avalokiteshvara bodhisattva practices deeply Prajnaparamita. This is one point. The second, in this Heart Sutra, the last one, *gate gate pargate parasamgate bodhisvaha*: “gone, gone, gone beyond, gone altogether beyond.” According to the translation by Conze, it says “gone, gone, gone beyond, gone altogether beyond, oh what an awakening! All hail! This completes the heart of perfect wisdom.” This is a translation of gate gate: gone, gone, gone beyond, gone altogether beyond, oh! What an awakening. All hail! This completes the heart of perfect wisdom.”
+So in the Prajñāpāramitā two important points here. One is, Avalokiteshvara bodhisattva practices deeply Prajñāpāramitā. This is one point. The second, in this Heart Sutra, the last one, *gate gate pargate parasamgate bodhisvaha*: “gone, gone, gone beyond, gone altogether beyond.” According to the translation by Conze, it says “gone, gone, gone beyond, gone altogether beyond, oh what an awakening! All hail! This completes the heart of perfect wisdom.” This is a translation of gate gate: gone, gone, gone beyond, gone altogether beyond, oh! What an awakening. All hail! This completes the heart of perfect wisdom.”
 
- So two important points, okay? Bodhisattva has to practice Prajnaparamita. According to Conze's translation, he says “Avalokiteshvara bodhisattva as a symbol of compassion, or contents of Buddha's teaching, that is compassion. Avalokiteshvara was moving in the deep course of Prajnaparamita. He translated like this. That is one point. That is a very important point. Then you can experience something. 
+ So two important points, okay? Bodhisattva has to practice Prajñāpāramitā. According to Conze's translation, he says “Avalokiteshvara bodhisattva as a symbol of compassion, or contents of Buddha's teaching, that is compassion. Avalokiteshvara was moving in the deep course of Prajñāpāramitā. He translated like this. That is one point. That is a very important point. Then you can experience something. 
  
-If the participating in deep course of the Prajnaparamita is described as empty. Okay? Empty, insignificant and unsubstantial, something like that. So emptiness is secondary. Anyway. First important point is you have to participate in the deep course of Prajnaparamita. And then, if you do this, secondly you can describe this practice as emptiness. In other words you can describe, you can taste emptiness. 
+If the participating in deep course of the Prajñāpāramitā is described as empty. Okay? Empty, insignificant and unsubstantial, something like that. So emptiness is secondary. Anyway. First important point is you have to participate in the deep course of Prajñāpāramitā. And then, if you do this, secondly you can describe this practice as emptiness. In other words you can describe, you can taste emptiness. 
 
-Emptiness is a very delicate teaching. Emptiness: you cannot practice emptiness, you don't know what emptiness is, because always emptiness. So you don't know how to practice emptiness. So I think most important point in the Prajnaparamita Sutra, I think you have to participate, you are moving in the deep course of Prajnaparamita. Then, it is described as emptiness. Insignificant, worthless and unsubstantial. Like this. 
+Emptiness is a very delicate teaching. Emptiness: you cannot practice emptiness, you don't know what emptiness is, because always emptiness. So you don't know how to practice emptiness. So I think most important point in the Prajñāpāramitā Sutra, I think you have to participate, you are moving in the deep course of Prajñāpāramitā. Then, it is described as emptiness. Insignificant, worthless and unsubstantial. Like this. 
 
-And then the second point is, you never separate from Prajnaparamita. You cannot lack, you cannot lack in perfect wisdom. So always you are with, you are with Prajnaparamita, always. This is the second point. 
+And then the second point is, you never separate from Prajñāpāramitā. You cannot lack, you cannot lack in perfect wisdom. So always you are with, you are with Prajñāpāramitā, always. This is the second point. 
 
-So, first of all, Prajnaparamita, you have to move in the deep course of Prajnaparamita. That is perfect wisdom, we say. Well, deep, very deep, deep understanding. And then naturally you can love, you can share compassion naturally. If you really understand deeply, constantly deeply. You have to deepen your understanding again and again, day by day, whatever it is: good understanding, bad understanding, don't stay with a certain understanding of your own. Constantly you have to deepen. That's why the last sentence, “gate gate paragate parsamgate” means “gone, gone, gone beyond, gone altogether beyond.” Not only you, for all sentient beings, you have to go beyond. 
+So, first of all, Prajñāpāramitā, you have to move in the deep course of Prajñāpāramitā. That is perfect wisdom, we say. Well, deep, very deep, deep understanding. And then naturally you can love, you can share compassion naturally. If you really understand deeply, constantly deeply. You have to deepen your understanding again and again, day by day, whatever it is: good understanding, bad understanding, don't stay with a certain understanding of your own. Constantly you have to deepen. That's why the last sentence, “gate gate paragate parsamgate” means “gone, gone, gone beyond, gone altogether beyond.” Not only you, for all sentient beings, you have to go beyond. 
 
 Why do you have to go beyond? If you understand something, then usually people are stuck in it. Or people always hold on their own understanding, believing this is right. Well, that is fine, but I think you shouldn't stay with a certain understanding. The point is to deepen constantly your understanding. For what? For you, and for all beings. That's why “gone altogether beyond,” you have to do. In order to live in peace and harmony in the human world, you have to do it. Beyond [whether] you like or you don't like. Anyway, this is our practice. That is Avalokiteshvara Bodhisattva. That is moving in the deep course of prajnaparamita. 
 
@@ -51,7 +51,7 @@ Then you love it, you love others. Naturally, you love it. *You love* means you 
 
 So, [the] important point is you have to constantly deepen, deepen every day, from day to day, your understanding, and then you can love. You can be one with the object. Naturally. Naturally you can share. It's vice versa. If you understand deeply, naturally you can love it. You can be compassionate to others. And [...] next, you can act, that means you can walk hand in hand with people. This is our actions, activities. 
 
-So, understanding, compassion, and actions. Three become one. Interrelated, interpenetrated, naturally. This is moving in the deep course of Prajnaparamita. 
+So, understanding, compassion, and actions. Three become one. Interrelated, interpenetrated, naturally. This is moving in the deep course of Prajñāpāramitā. 
 
 For instance, this is kind of a dancer, or any art. Think first of all of the dancers, the ones making the [birth] manifest itself in his or her performance. That is first. Second, the mature capacity manifests itself in his or her performance. That is the second. Third, ones making and performance improves, and achieves the consummation of the stabilized beauty. So, your dance becomes beautiful, beyond the word. 
 
@@ -75,17 +75,17 @@ So, if you practice karate, judo, aikido, whatever, your body must be just like 
 
 So, your practice must, just like a, your practice is going like a wind, ok? And then, audience are fascinated by the realization of this subtle vision and performance. And then the audience and dancers come together and something happens between them, just like an electric, you know, what to say, spark? Just like an electric spark. That is spiritual communion, you say. *[He chuckles.]* Spiritual communion between dancer and audience, composers, past, present, future, all come together and working together. And then you are completely charmed by music, dance. Speechlessly. Nothing. 
 
-That is called participating. Ok? Moving in the deep course of Prajnaparamita. 
+That is called participating. Ok? Moving in the deep course of Prajñāpāramitā. 
 
 In order to understand the world, human beings, you have to practice like this, constantly. If you don't understand first, why don't you share the love with the people, compassion with the people, anyway. Or, even though you cannot know how to share the compassion with the people, anyway let's walk hand in hand with the people, practically. Just do it, with whole sincere heart, with warm heart. Anyway, let's walk day by day with the people. And then, you can feel love, compassion. And then, you can understand the people. 
 
 Then very naturally there is some communion. So that is spiritual, in Buddhism, in Japanese, we call it *kanno doko*, means spiritual communion between a person and buddha, person and the whole universe. In the intellectual sense, you don't understand this one. But practically, everyone experiences this one. Otherwise, your life is never supported by the universe, you never survive. 
 
-Then if you take care of your life with sincere heart, naturally you can experience this one. Then, how can you describe it? I don't know. Then, moving in the deep course of Prajnaparamita is described as *empty*. That’s it. 
+Then if you take care of your life with sincere heart, naturally you can experience this one. Then, how can you describe it? I don't know. Then, moving in the deep course of Prajñāpāramitā is described as *empty*. That’s it. 
 
-But, if you describe *empty*, do you say *nothing*? No. You never separate from Prajnaparamita. Perfect wisdom means you are never separate from all living beings, the whole universe. Even though you don't know, even though you hate it, even though you try to run away, you never separate from Prajnaparamita, the whole world, with love, with compassion, constantly. You never forget, you never leave compassion. 
+But, if you describe *empty*, do you say *nothing*? No. You never separate from Prajñāpāramitā. Perfect wisdom means you are never separate from all living beings, the whole universe. Even though you don't know, even though you hate it, even though you try to run away, you never separate from Prajñāpāramitā, the whole world, with love, with compassion, constantly. You never forget, you never leave compassion. 
 
-So, that is this what this Prajnaparamita Sutra says. That's why it here it says that, “to the extent a Bodhisattva goes on contemplating all dharmas in this manner” – in this manner means participating in the deep course of perfect wisdom. Constantly make every possible effort to understand deeply into the world, day by day, instead of staying with a certain understanding of your own. Understanding, and move, go ahead. 
+So, that is this what this Prajñāpāramitā Sutra says. That's why it here it says that, “to the extent a Bodhisattva goes on contemplating all dharmas in this manner” – in this manner means participating in the deep course of perfect wisdom. Constantly make every possible effort to understand deeply into the world, day by day, instead of staying with a certain understanding of your own. Understanding, and move, go ahead. 
 
 The other day someone asked me, if you keep going does it mean to escape from something? But I don't think so. For instance, if you see the anger, anger appears and the whole world angers. Whole world is occupied by anger. So you never escape from anger, the world of anger. So, you have to be there. But, the point is, *to keep going* means, “gone, gone beyond, gone altogether beyond” means right in the middle of, you know, anger, you shouldn’t stop living. You have to maintain the same pace as you have had. Constantly living, okay? Constantly going ahead. 
 
@@ -107,13 +107,13 @@ But there must be same and one ground where performance, audience, past, present
 
 So, that's why emptiness is your experience, or emptiness is description of your practice. 
 
-So if you want to experience the emptiness, you have to practice, participate in the deep cause of Prajnaparamita. This is called Avalokiteshvara. *Avalok* means to observe and to be observed. To observe the world and to be observed by world, to meanings there. Avalokiteshvara, Avalok. So Avalokiteshvara means “bodhisattva who listens to the cry after closely observing the world.” And then Avalokiteshvara can constantly listen to that cry, the sound – many sounds, many cries there. 
+So if you want to experience the emptiness, you have to practice, participate in the deep cause of Prajñāpāramitā. This is called Avalokiteshvara. *Avalok* means to observe and to be observed. To observe the world and to be observed by world, to meanings there. Avalokiteshvara, Avalok. So Avalokiteshvara means “bodhisattva who listens to the cry after closely observing the world.” And then Avalokiteshvara can constantly listen to that cry, the sound – many sounds, many cries there. 
 
 And then, the world needs Avalokiteshvara. Avalokiteshvara needs the world. I need you, you need me. So, awakening is all beings are interconnected, interpenetrated. This is the truth. 
 
 So, don't see your object only by one way. In other words, don't stay with your own understanding. Because if you see the world, the world see you. So your understanding should be put aside for while, and then you should be a good listener to the world. If you want to be a good see-er, you have to be good listener to the world. And then, there is communication, communion between you and the whole world takes place. Otherwise, it's pretty difficult to practice together in peace and harmony. 
 
-This is the meaning of Prajnaparamita here. 
+This is the meaning of Prajñāpāramitā here. 
 
 So that's why I read this paragraph. “In that case, all the accumulation of the merit on the part of bodhisattva who causes imperfect wisdom must be described emptiness, just emptiness, worthless, insignificant, insubstantial. This is the basis of existence. It means you are free, completely free, liberated. 
 

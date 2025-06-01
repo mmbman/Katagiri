@@ -20,7 +20,7 @@ Katagiri Roshi explains “body and mind dropping off” from the standpoint of 
 
 **Katagiri Roshi:** [We] talked about [zazen](glossary#zazen) based on body and mind dropping off, which means that from the first dullness and distraction are struck aside, the moment we do zazen. This morning I would like to look at this from a pretty different angle, that is sort of from the psychological point of view. 
 
-You know pretty well that in [primitive Buddhism](glossary#primitive-buddhism) there are the categories of existence which are called the [five skandhas](glossary#skandha). Among the five skandhas, there is a very interesting concept which is called [*samskara*](glossary#samskara). In the [*Prajnaparamita Sutra*](glossary#prajnaparamita-sutra), it is translated as [*impulses*](glossary#impulses). According to [Doctor Conze](https://en.wikipedia.org/wiki/Edward_Conze) it is regarded as *together-maker*. That concept of samskara is a very interesting teaching. 
+You know pretty well that in [primitive Buddhism](glossary#primitive-buddhism) there are the categories of existence which are called the [five skandhas](glossary#skandha). Among the five skandhas, there is a very interesting concept which is called [*samskara*](glossary#samskara). In the [*Prajñāpāramitā Sutra*](glossary#prajnaparamita-sutra), it is translated as [*impulses*](glossary#impulses). According to [Doctor Conze](https://en.wikipedia.org/wiki/Edward_Conze) it is regarded as *together-maker*. That concept of samskara is a very interesting teaching. 
 
 [In] the development of [Buddhism](glossary#buddhism) this concept, *samskara*, [appears in] many [places]. For instance, we already learned this year in a talk given by [Reb Anderson](glossary#reb-anderson) that in [*Abhidharmakosha*](glossary#abhidharmakosha) there are five psychological categories of existence:
 
@@ -342,7 +342,7 @@ And then we say that is *body and mind exist*. But I don’t think so. But we ca
 
 **Katagiri Roshi:** If you want to talk about the mind, you have to talk about the mind as a dharma. Because [the mind] is a dharma which exists in the dualistic world, and also which exists in the truth as the original nature of the mind. At that time, no mind. In the context of the truth, there is no idea of the mind. 
 
-That’s why *Prajnaparamita* says “no mind”: “no eyes, no ears, [et cetera].” But how can we know no-mind? That’s why Dōgen Zenji says, in the [*Shōbōgenzō*] chapter [on the *Prajnaparamita Sutra*](topics#prajnaparamita) he said there is mind, there is eyes, nose, ears, et cetera. That means, *use* eye, ear, nose, mind, and body perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So – no eyes, no mind, no mouth.
+That’s why *Prajñāpāramitā* says “no mind”: “no eyes, no ears, [et cetera].” But how can we know no-mind? That’s why Dōgen Zenji says, in the [*Shōbōgenzō*] chapter [on the *Prajñāpāramitā Sutra*](topics#prajnaparamita) he said there is mind, there is eyes, nose, ears, et cetera. That means, *use* eye, ear, nose, mind, and body perfectly, accommodating to zazen as it is. At that time, the mind, nose and eyes become one with zazen. So – no eyes, no mind, no mouth.
 
 That is the meaning of no mind. *No mind* doesn’t mean [to] destroy. [It means] *using* your mind perfectly. How? Fitting into a single object: zazen. At that time, there is no mind. 
 

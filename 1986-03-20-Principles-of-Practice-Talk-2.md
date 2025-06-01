@@ -33,7 +33,7 @@ So let me [talk about] *bodhicitta* today.
 
 In *Gakudō-yōjinshū*, “Points to Watch in the Buddhist Training,” page 48 of the book *Zen Master Dōgen*, he said first of all:
 
-> The Bodhi-mind is known by many names; but they all refer to the One Mind of the Buddha. The Venerable Nagarjuna said, “The mind that sees into the flux of arising and decaying and recognizes the transient nature of the world is also known as the Bodhi-mind.” Why, then, is temporary dependence on this mind called the Bodhi-mind? When the transient nature of the world is recognized, the ordinary selfish mind does not arise; neither does the mind that seeks for fame and profit.
+> The Bodhi-mind is known by many names; but they all refer to the One Mind of the Buddha. The Venerable Nāgārjuna said, “The mind that sees into the flux of arising and decaying and recognizes the transient nature of the world is also known as the Bodhi-mind.” Why, then, is temporary dependence on this mind called the Bodhi-mind? When the transient nature of the world is recognized, the ordinary selfish mind does not arise; neither does the mind that seeks for fame and profit.
 >
 > (From *Zen Master Dōgen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
@@ -45,7 +45,7 @@ There are three points there: *arousing bodhi-mind*; the *insight of impermanenc
 
 There is a problem, that it is difficult for us to see [clearly the] relation between *bodhicitta* – arousing bodhi-mind – and the insight of impermanence. [In other words,] why we have to practice the insight of impermanence in order to awaken the bodhi-mind – it’s a little bit difficult for us to see that point. And also, [that] if you realize impermanence, naturally you can be free from egoism – this is also a little difficult to understand. So I want to [explain] as best as I can about this point. 
 
-*Bodhicitta* is the short word [for] the mind of *anuttara-samyak-sambodhi* in the *Prajnaparamita Sutra*. We say “the complete, perfect, supreme enlightenment”: that is a translation from *anuttara-samyak-sambodhi* in Sanskrit. *Anuttara-samyak-sambodhi* is perfect, complete, supreme enlightenment; that means a state of perfect enlightened being. Trees, birds, all sentient beings, all are in the state of perfect enlightened being. In other words, all are enlightened being. According to the Buddha Shakyamuni’s teaching, all are Buddha. 
+*Bodhicitta* is the short word [for] the mind of *anuttara-samyak-sambodhi* in the *Prajñāpāramitā Sutra*. We say “the complete, perfect, supreme enlightenment”: that is a translation from *anuttara-samyak-sambodhi* in Sanskrit. *Anuttara-samyak-sambodhi* is perfect, complete, supreme enlightenment; that means a state of perfect enlightened being. Trees, birds, all sentient beings, all are in the state of perfect enlightened being. In other words, all are enlightened being. According to the Buddha Shakyamuni’s teaching, all are Buddha. 
 
 So “arousing the bodhi-mind” means arousing or awakening to the enlightened being, awakening to the truth that all are in the state of enlightened being, or, awaken to the truth that all are Buddha. This is to arouse the bodhi-mind or to awaken to the bodhi-mind. 
 

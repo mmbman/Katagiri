@@ -36,7 +36,7 @@ Three sentences here. Let’s say [...] the first one, according to my terms, [r
 
 Then second is *B world*. Dōgen says, “When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.” *B world* is the spiritual world, simply speaking. 
 
-So there are two worlds we are always confronted with: *A world*, the mundane world, and *B world*, the spiritual world. In terms of the spiritual world, *B world*, the mundane world (*A world*) is something *impure*. So very naturally, in the spiritual world, [there is] no mundane world, so [there is] no birth, no death. According to Nagarjuna, this is called *emptiness*, we say. 
+So there are two worlds we are always confronted with: *A world*, the mundane world, and *B world*, the spiritual world. In terms of the spiritual world, *B world*, the mundane world (*A world*) is something *impure*. So very naturally, in the spiritual world, [there is] no mundane world, so [there is] no birth, no death. According to Nāgārjuna, this is called *emptiness*, we say. 
 
 Is that clear? *A world*, *B world*. Very naturally, everyone sees two worlds in their lives: the mundane world as *A*, and the spiritual world as *B*, which is pure.
 

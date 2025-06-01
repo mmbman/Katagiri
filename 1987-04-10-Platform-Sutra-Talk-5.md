@@ -119,7 +119,7 @@ So, use your own-nature of the truth...
 
 [...] So that means you have to take care of your object in your everyday life with compassion and with wisdom. Not only the human beings, but also inanimate beings. I always say, even a sheet of toilet paper. And your boots, your clothes, the water and the vegetables and the pan... whatever they are, we have to take care of them with compassion and wisdom. That is called “use your own nature of the truth.” Because phenomenon and the truth are one. That's why Dōgen Zenji [talks about] how to practice in the monastery. [He talks about this] in the text of the *Eihei Shingi*, “Regulation of the Monastery.”
 
-“Use your own true-suchness nature, and by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them.” [...] We chant the *Prajnaparamita* every day, and in the first paragraph, according to the translation of *The Heart Sutra* by Doctor Conze, he [says]:
+“Use your own true-suchness nature, and by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them.” [...] We chant the *Prajñāpāramitā* every day, and in the first paragraph, according to the translation of *The Heart Sutra* by Doctor Conze, he [says]:
 
 >Avalokitesvara, Holy Lord and Bodhisattva, was moving in the deep course of the Wisdom which has gone beyond. He looked down from on high, He beheld but five heaps, and he saw that in their own-being they were empty.
 >

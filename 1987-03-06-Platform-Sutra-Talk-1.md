@@ -74,7 +74,7 @@ So Dōgen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism i
 
 So by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always, because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
 
-But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajnaparamita* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
+But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajñāpāramitā* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
 
 #### 11:00
 

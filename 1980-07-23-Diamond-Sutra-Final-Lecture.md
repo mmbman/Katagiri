@@ -29,7 +29,7 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 
 This is a very famous verse in Buddhism. It means the world which is conditioned, in other words all conditioned beings, are just like stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, or cloud. 
 
-Asanga, one of the famous Buddhist scholars in ancient times, had a commentary to this verse. He says: 
+Asaṅga, one of the famous Buddhist scholars in ancient times, had a commentary to this verse. He says: 
 
 > The Tathagata’s nirvana is neither the same as the conditioned world in causation, nor different from it. Partly because even after entering nirvana, Buddhas appear as Nirmanakaya Buddha in the world to preach, and partly because the characteristics of all conditioned beings are considered from the nine points of view, with their right knowledge. 
 >
@@ -49,7 +49,7 @@ In other words, if you do something wrong, the result is wrong – this is the l
 
 So even though your motivation is good, [sometimes] the result is not good. Have you experienced this? The motivation is good: “I want to help.” According to the motivation, you want to help somebody, but the result is completely reversed: you hurt somebody. And also [sometimes] people don’t accept your help, your motivation, so people really get angry with you. So even though the motivation is good as a cause, the result is not good. From this point, the basic nature of human life is completely free from the law of causation. But on the other hand, you cannot completely ignore the law of causation. That’s why reality is very contradictory. 
 
-Asanga says, “The Tathagata’s nirvana is neither the same as conditioned world in causation, *nor different from it*.” So, the peaceful world is not exactly the same as the dualistic world, but not different from it. Asanga says, “Partly because even after entering nirvana” – for instance, even though you enter the peaceful life, even though you can live your life in peace and harmony with people day after day, still you have your own physical body and mind, which are suffering from human life. 
+Asaṅga says, “The Tathagata’s nirvana is neither the same as conditioned world in causation, *nor different from it*.” So, the peaceful world is not exactly the same as the dualistic world, but not different from it. Asaṅga says, “Partly because even after entering nirvana” – for instance, even though you enter the peaceful life, even though you can live your life in peace and harmony with people day after day, still you have your own physical body and mind, which are suffering from human life. 
 
 So even after entering nirvana, “Buddhas appear as Nirmanakaya Buddha.” *Nirmanakaya Buddha* means the human body. Buddha was born in this world with a human body; this is Buddha Shakyamuni. [...] The Buddha has to teach the Buddha’s teaching constantly. In order to teach, he has to have his own human body, human mind.
 
@@ -61,9 +61,9 @@ Why is it that “the Tathagata’s nirvana is neither the same as the condition
 
 The **nine points of view:** those are “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” Those are nine. 
 
-Asanga says “partly because the characteristic of all conditioned beings are considered from the nine points of view” because we live in the conditioned world, we cannot escape from this. If you cannot escape from the world, you have to understand the world, what it is, because you have to *be* there. If you don’t understand, if you ignore understanding the place we’re living in, that is really a cause of human trouble. So the place and time where human beings are present has to be understood as best as we can. That is awareness. That’s why “the characteristics of all conditioned beings are considered from the nine points of view.”
+Asaṅga says “partly because the characteristic of all conditioned beings are considered from the nine points of view” because we live in the conditioned world, we cannot escape from this. If you cannot escape from the world, you have to understand the world, what it is, because you have to *be* there. If you don’t understand, if you ignore understanding the place we’re living in, that is really a cause of human trouble. So the place and time where human beings are present has to be understood as best as we can. That is awareness. That’s why “the characteristics of all conditioned beings are considered from the nine points of view.”
 
-Asanga says the first three – *stars*, *a fault of vision*, *a lamp* – examine the characteristics of the conditioned world in terms of cognition. Buddhism is not the philosophy of ontology, not the study of existence, but the study of *knowing* – in the relationship between subject and object. How we should understand object and subject, and then, how to practice, according to right understanding of subject and object. That is Buddhism. It’s not the philosophy of ontology. Ontology is that you always have to see something, and analyze and synthesize philosophically, scientifically – researching a being which is [intact], interrupted by no one. This is science, this is philosophy. But Buddhism is not exactly ontology, the study of existence, but the study of knowing, understanding subject and object, and through the right understanding of subject and object we have to figure out the way to practice there. That is Buddhism. That’s why the first three – stars, a fault of vision, a lamp – examine the characteristic of the conditioned world in terms of cognition. 
+Asaṅga says the first three – *stars*, *a fault of vision*, *a lamp* – examine the characteristics of the conditioned world in terms of cognition. Buddhism is not the philosophy of ontology, not the study of existence, but the study of *knowing* – in the relationship between subject and object. How we should understand object and subject, and then, how to practice, according to right understanding of subject and object. That is Buddhism. It’s not the philosophy of ontology. Ontology is that you always have to see something, and analyze and synthesize philosophically, scientifically – researching a being which is [intact], interrupted by no one. This is science, this is philosophy. But Buddhism is not exactly ontology, the study of existence, but the study of knowing, understanding subject and object, and through the right understanding of subject and object we have to figure out the way to practice there. That is Buddhism. That’s why the first three – stars, a fault of vision, a lamp – examine the characteristic of the conditioned world in terms of cognition. 
 
 The next three – *a mock show*, *dew drops*, *a bubble* – [are] in terms of humanistic experience. According to humanistic experience, not only Buddhists but everybody, whoever they are, whatever they believe or whatever they don’t believe – as long as they live in this world as a human being, everyone without exception can experience the characteristic of the human world as a mock show, dew drops, and a bubble. 
 
@@ -71,7 +71,7 @@ The last three – *a dream*, *a lightning flash*, *or a cloud* – [are] in ter
 
 #### 18:21
 
-And finally, Asanga says: 
+And finally, Asaṅga says: 
 
 > Thereby Buddha, being present in the conditioned world which changes in causation, gains the power of liberation without being defiled by.
 
@@ -91,7 +91,7 @@ So there are two contradictory aspects. You should be straightforward toward you
 
 To be brave is not arrogance, okay? You must be very humble and modest. Respecting the law of causation, accepting the life you have done, taking responsibility for your doings – and nevertheless, never be stuck there. Be brave toward the future, in order to reach a beautiful ideal image of human life.
 
-That is Asanga’s comment: “The Buddha gains the power of liberation without being defiled by the world.”
+That is Asaṅga’s comment: “The Buddha gains the power of liberation without being defiled by the world.”
 
 #### 24:00
 
@@ -219,11 +219,11 @@ Because by ignorance we can see the world, but the world is already something di
 
 That’s why the human world is just like a mock show, a magic show: because we are completely deceived by this form. We take the picture of the form with the “camera” of our six consciousnesses, and then we believe this is the world that we have to depend on. But next moment, it disappears. 
 
-> Things, as Vasubandhu says, are not a trustworthy support. It is assumed that the world of conditioned things is manufactured by ignorance, and Nagarjuna, in his great commentary, shows that ignorance and the products of the magician’s art have the following attributes in common: They are neither inside a person, nor outside, nor both inside or outside; ...
+> Things, as Vasubandhu says, are not a trustworthy support. It is assumed that the world of conditioned things is manufactured by ignorance, and Nāgārjuna, in his great commentary, shows that ignorance and the products of the magician’s art have the following attributes in common: They are neither inside a person, nor outside, nor both inside or outside; ...
 
 Do you know magicians? *[He chuckles.]* The magician always has a certain trick. But that trick is just a trick. The trick doesn’t matter; a trick is a trick. You believe the magician’s magic is inside of the ping pong ball, [like in] kids’ magic shows. The ball is cut in half. So you show this [...] and one by one you can create another ping pong ball here, again and again, like this. [...] It’s a trick. *[Laughter.]* But the magic art is not in the ping pong ball, okay? You believe the magic art is inside the ping pong ball; I don’t think so, that is just a trick. The real magic art is not inside of the ping pong ball, nor outside. [That means] you or the magician in communication, already here it comes up – and then you believe. Do you understand? 
 
-So that’s why Nagarjuna says, “[neither] inside or outside.”
+So that’s why Nāgārjuna says, “[neither] inside or outside.”
 
 > ... they can therefor not be localized with reference to persons; there is nothing real that has been either produced or destroyed; no real event, with an essence of its own, has taken place. And yet, although ignorance is not real, it is the conditions for all kinds of activity. Similarly, the musical instruments conjured up by magic are empty, deceptive, without reality, without objective basis, and yet one can hear their music and can see them. 
 
@@ -251,7 +251,7 @@ That is also very characteristic of human intellect, the dualistic world.
 
 #### 1:04:28
 
-> 7\. Only the enlightened are awakened to reality as it is; compared with their vision of true reality, our normal experience is that of a **dream**, unreal and not be taken seriously. Nagarjuna, in his great commentary, gives the following explanation of the simile of the dream: “(a) There is no reality in a dream, and yet, while one dreams, one believes in the reality of the things one sees in the dream. After one has woken up one recognizes the falseness of the dream and laughs at oneself. Just so a man who is plunged into the dreamy state which results from his fettered existence, has a belief in things which do not exist. But when he has found the Path, then, at the moment of enlightenment, he understands that there is no reality in them and he laughs at himself. (b) A dreamer, by the force of his dream, sees a thing where there is nothing. Just so a man, by the force of the dreamy state which results from ignorance, believes in the existence of all sorts of things which do not exist, such as I and mine, male and female, etc. (c) In a dream one rejoices although there is nothing enjoyable, one is angry although there is nothing to annoy, one is frightened although there is nothing to frighten. So do the beings with regard to the things of the world.” Therefor, like the things seen in a dream, the dharmas, although they do not exist, are nevertheless seen and heard and one is aware of them.
+> 7\. Only the enlightened are awakened to reality as it is; compared with their vision of true reality, our normal experience is that of a **dream**, unreal and not be taken seriously. Nāgārjuna, in his great commentary, gives the following explanation of the simile of the dream: “(a) There is no reality in a dream, and yet, while one dreams, one believes in the reality of the things one sees in the dream. After one has woken up one recognizes the falseness of the dream and laughs at oneself. Just so a man who is plunged into the dreamy state which results from his fettered existence, has a belief in things which do not exist. But when he has found the Path, then, at the moment of enlightenment, he understands that there is no reality in them and he laughs at himself. (b) A dreamer, by the force of his dream, sees a thing where there is nothing. Just so a man, by the force of the dreamy state which results from ignorance, believes in the existence of all sorts of things which do not exist, such as I and mine, male and female, etc. (c) In a dream one rejoices although there is nothing enjoyable, one is angry although there is nothing to annoy, one is frightened although there is nothing to frighten. So do the beings with regard to the things of the world.” Therefor, like the things seen in a dream, the dharmas, although they do not exist, are nevertheless seen and heard and one is aware of them.
 
 Let’s read all of them. Number eight:
 

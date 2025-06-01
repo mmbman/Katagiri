@@ -29,7 +29,7 @@ So the Buddhists gradually realized the misunderstanding of the central teaching
 
 The second point: I think in Chinese Buddhism, Buddhism was transmitted into China from India not systematically. Whatever kind of scriptures they found, they tried to bring to China and started to translate into Chinese. So they didn't know the systematical Buddhist teaching. So their Buddhist thoughts were very mixed up. They didn't know. The more Buddhist scriptures were handed down to China, the more they realized it was necessary for them to systematize Buddhist teaching. So that is the period of the time, the 3rd century and 4th century, they tried to understand Buddhist teaching philosophically and systematically. 
 
-Mainly the Buddhist teaching had been seen [...] based on the *Prajnaparamita* teaching. There are mainly five systems of scriptures. First one is families of the *Prajnaparamita* sutras. This teaching was very important for them, because it is a central teaching based on emptiness. And also next the *Avatamsaka Sutra*, because the *Avatamsaka Sutra* emphasizes the intrinsic teaching of the truth; intrinsic truth. Very essential teaching of Buddhism, which guides people to touch directly intrinsic nature of the truth. [...] And next is the *Saddharma Pundarika* sutra, which stresses the unity of the existence as oneness. And also *Nirvana Sutra*, which mentions the eternal life of a buddha. So those Buddhist teachings systematically were understood by Chinese Buddhists in those days. (*Transcriber’s Note:* It is later clarified that he meant four, not five.)
+Mainly the Buddhist teaching had been seen [...] based on the *Prajñāpāramitā* teaching. There are mainly five systems of scriptures. First one is families of the *Prajñāpāramitā* sutras. This teaching was very important for them, because it is a central teaching based on emptiness. And also next the *Avatamsaka Sutra*, because the *Avatamsaka Sutra* emphasizes the intrinsic teaching of the truth; intrinsic truth. Very essential teaching of Buddhism, which guides people to touch directly intrinsic nature of the truth. [...] And next is the *Saddharma Pundarika* sutra, which stresses the unity of the existence as oneness. And also *Nirvana Sutra*, which mentions the eternal life of a buddha. So those Buddhist teachings systematically were understood by Chinese Buddhists in those days. (*Transcriber’s Note:* It is later clarified that he meant four, not five.)
 
 And then Zhiyi, the founder of the Tendai – in Japanese we say Chigi, “Chi-Gi” – who lived from 538 to 597, systematized the Buddhist teachings in a different way, based on the *Saddhama Pundarika* sutra. So this is Tendai teaching. 
 
@@ -53,7 +53,7 @@ Real essence is, nothing to say. But if you say *emptiness*, essential nature of
 
 Okay. Let's say the history of Chigi. I think you can read the introduction of this book, [and] you can see the history of Tendai, and also you will understand a little bit of the history of Chigi, but I would like to say a little bit, briefly. 
 
-Chigi was born in Kayo in Hunan Province. [...] He became a monk at the age of 18, in 556 A.D. And he studied *Threefold Saddharma Pundarika Sutra*. I think [there is an] English version of the *Threefold Lotus Sutra*. That is the three major scriptures in Tendai. One is the *Sutra of Innumerable Meanings*, you can see. And also second is the *Sutra of the Lotus Flower of the Wonderful Law*. And third, the *Sutra of Meditation on the Bodhisattva Universal Virtue*. I think you will find those three scriptures in that book. So he studied the *Threefold Lotus Sutra*, and at the age of 23, in 561 (CE), he stayed at Mount Taiso in Hunan Province. He studied the *Lotus Sutra* and learned the method to attain enlightenment under the guidance of Eshi, who lived from 515 to 577. Eshi is a teacher, Eshi's teacher was Emon, who was one of Nagarjuna's disciples. But [...] in terms of quality of teaching, I think Nagarjuna was the founder of the Tendai teaching, and second is Emon. Nagarjuna is the founder, and Emon, and Eshi. And then, Chigi. So Eshi is [Chigi’s] teacher. 
+Chigi was born in Kayo in Hunan Province. [...] He became a monk at the age of 18, in 556 A.D. And he studied *Threefold Saddharma Pundarika Sutra*. I think [there is an] English version of the *Threefold Lotus Sutra*. That is the three major scriptures in Tendai. One is the *Sutra of Innumerable Meanings*, you can see. And also second is the *Sutra of the Lotus Flower of the Wonderful Law*. And third, the *Sutra of Meditation on the Bodhisattva Universal Virtue*. I think you will find those three scriptures in that book. So he studied the *Threefold Lotus Sutra*, and at the age of 23, in 561 (CE), he stayed at Mount Taiso in Hunan Province. He studied the *Lotus Sutra* and learned the method to attain enlightenment under the guidance of Eshi, who lived from 515 to 577. Eshi is a teacher, Eshi's teacher was Emon, who was one of Nāgārjuna's disciples. But [...] in terms of quality of teaching, I think Nāgārjuna was the founder of the Tendai teaching, and second is Emon. Nāgārjuna is the founder, and Emon, and Eshi. And then, Chigi. So Eshi is [Chigi’s] teacher. 
 
 But he (Eshi) emphasizes “three observations in one mind”. *Three observations* means, one is the *all-knowing wisdom*. And [second is] the *way-seed wisdom*. And third is *all-knowing and the way-seed wisdom*. [This corresponds] to *emptiness* and *provisional existence* and also *middle way*. 
 
@@ -107,7 +107,7 @@ So Threefold Tendai Teaching, that is *Hokke Genki*, Profound Meaning of ...
 
 #### 43:10
 
-I told you, the family tree of the Tendai school, first is the founder Nagarjuna, and Emon, and Eshi, and next is Chigi. Emon's history didn't exist, so we don't know who he was, but Emon was one of Nagarjuna's disciples. And Eshi lived from 515 to 577, who established his own particular teaching, the beginning of Tendai teaching. Zhiyi's teacher. And [following] Zhiyi, [...], and [E-I], and [Gen-Ro], and then [Tan-Nen]. 
+I told you, the family tree of the Tendai school, first is the founder Nāgārjuna, and Emon, and Eshi, and next is Chigi. Emon's history didn't exist, so we don't know who he was, but Emon was one of Nāgārjuna's disciples. And Eshi lived from 515 to 577, who established his own particular teaching, the beginning of Tendai teaching. Zhiyi's teacher. And [following] Zhiyi, [...], and [E-I], and [Gen-Ro], and then [Tan-Nen]. 
 
 Between [Zhiyi] and [Tan-Nen], Tendai teaching didn't flourish [very] well. In other words, Tendai teaching was stagnant, kind of stagnant water. After [Zhiyi] founded the Tendai school in China, Tendai teaching was beginning to decline. 
 
@@ -133,7 +133,7 @@ That is a brief teaching, brief explanation of Zhiyi's history. Do you have ques
 
 **Katagiri Roshi:** No, Bodhidharma belongs to the Zen lineage. 
 
-Nagarjuna usually was respected as a founder of Tendai lineage, Tendai family tree, and also Avatamsaka family lineage, and also Pure Land school lineage. So Nagarjuna was a great guy, anyway! *[Laughing.]* Because he built up the central teaching of Buddhism. His history was very interesting. Have you ever read it? His history was really interesting, his life. Well anyway, he was really respected by many Buddhist schools. So even the Zen lineage: Nagarjuna Bodhisattva, you know?
+Nāgārjuna usually was respected as a founder of Tendai lineage, Tendai family tree, and also Avatamsaka family lineage, and also Pure Land school lineage. So Nāgārjuna was a great guy, anyway! *[Laughing.]* Because he built up the central teaching of Buddhism. His history was very interesting. Have you ever read it? His history was really interesting, his life. Well anyway, he was really respected by many Buddhist schools. So even the Zen lineage: Nāgārjuna Bodhisattva, you know?
 
 #### 54:59
 
@@ -145,9 +145,9 @@ Nagarjuna usually was respected as a founder of Tendai lineage, Tendai family tr
 
 **Katagiri Roshi:** Bodhidharma went to China 6th century or so? [...] And also Chigi died in 579. Maybe; I don't know. I don't know whether they met each other in China. But same age. 
 
-**Same person:** And there were three teachers between Nagarjuna and Chigi? 
+**Same person:** And there were three teachers between Nāgārjuna and Chigi? 
 
-**Katagiri Roshi:** Yes. Nagarjuna, Emon, and Eshi, and Chigi. So Chigi is historically founder of Tendai school in China. In Japan, Saichō we call [the founder]. [*Chisha Daishi*].
+**Katagiri Roshi:** Yes. Nāgārjuna, Emon, and Eshi, and Chigi. So Chigi is historically founder of Tendai school in China. In Japan, Saichō we call [the founder]. [*Chisha Daishi*].
 
 I think you can find a book. Do you know the title of that book? *Saichō*.
 
@@ -155,11 +155,11 @@ I think you can find a book. Do you know the title of that book? *Saichō*.
 
 **Katagiri Roshi:** You will find a book, *Saicho*, who was a founder of Tendai in Japan. 
 
-**Question:** Something seems fishy, historically, because in our lineage there’s 14 people between Nagarjuna and Bodhidharma, but in the Tendai lineage there’s only four. *[He laughs.]* Either Zen people lived short, or they lived very long... *[Katagiri Roshi laughs.]* It’s not historical.
+**Question:** Something seems fishy, historically, because in our lineage there’s 14 people between Nāgārjuna and Bodhidharma, but in the Tendai lineage there’s only four. *[He laughs.]* Either Zen people lived short, or they lived very long... *[Katagiri Roshi laughs.]* It’s not historical.
 
-**Question:** Didn’t Nagarjuna live 500 years?
+**Question:** Didn’t Nāgārjuna live 500 years?
 
-**Katagiri Roshi:** No, historically, we believe Nagarjuna lived [...] 150 to 250. So 100 years old. *[Unintelligible.]*
+**Katagiri Roshi:** No, historically, we believe Nāgārjuna lived [...] 150 to 250. So 100 years old. *[Unintelligible.]*
 
 #### 58:10
 
@@ -197,11 +197,11 @@ And next, “Expanded” means general Buddhist scripture. But as a typical scri
 
 But next, “Variable” means according to the individual personality. I think [...] some of the listeners understand the Buddhist scriptures, some of the listeners don't understand. You know? So Buddhist scriptures are accepted by individuals who are listeners. So that is classification of Buddhist scriptures which is called “Variable”. 
 
-So the [fourth line] is *Prajnaparamita*. Which emphasizes the central teaching of Buddhist philosophy which is called emptiness. So it is pretty difficult to understand, so some of them understand, some of them don't understand. So that's why *Prajnaparamita Sutra* is put on the fourth rank. 
+So the [fourth line] is *Prajñāpāramitā*. Which emphasizes the central teaching of Buddhist philosophy which is called emptiness. So it is pretty difficult to understand, so some of them understand, some of them don't understand. So that's why *Prajñāpāramitā Sutra* is put on the fourth rank. 
 
 And also, next, is *Lotus and Nirvana*. *Lotus Sutra* is emphasis on the unity of phenomena and truth. So the *Lotus Sutra* is very important for the Tendai teachings. 
 
-The *Lotus Sutra* is a kind of Buddhist scripture which tries to save people who missed the chance to listen to the *Avatamsaka Sutra*, *Agamas*, and general Buddhist teachings, and also *Prajnaparamita*. There are many individuals who missed the chance to listen to Buddhist scriptures. So later, at the fifth rank, the Buddha tried to present the *Saddharma Pundarika Sutra*, which he tried to give it to the people who missed the chance to meet Buddhist scriptures. Kind of a “gleaner.” So Buddhist scripture, *Lotus Sutra* is a kind of a gleaner. 
+The *Lotus Sutra* is a kind of Buddhist scripture which tries to save people who missed the chance to listen to the *Avatamsaka Sutra*, *Agamas*, and general Buddhist teachings, and also *Prajñāpāramitā*. There are many individuals who missed the chance to listen to Buddhist scriptures. So later, at the fifth rank, the Buddha tried to present the *Saddharma Pundarika Sutra*, which he tried to give it to the people who missed the chance to meet Buddhist scriptures. Kind of a “gleaner.” So Buddhist scripture, *Lotus Sutra* is a kind of a gleaner. 
 
 **Someone:** [Greener?] More fresh? 
 

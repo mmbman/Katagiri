@@ -74,7 +74,7 @@ A *seamless monument* is a very... what would you say... common term in Buddhism
 
 If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there is a [huge] lantern by a small pond, where people let go of fish and turtles, whatever. That is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. So by this pond you have a big lantern. You know the lanterns in the temple? Not like this [little type of] lantern; you can see them in pictures. (*Transcriber’s Note*: A stone lantern, the size of a monument.) 
 
-[In Zen] this is called a *seamless lantern*. That means that pond is called *hosho-ike*, which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of them. [So it’s] *formless*. In [*Prajnaparamita \[Sutra\]*](glossary#prajnaparamita), we say *formless*, no form: no eyes, no ears, [et cetera]. 
+[In Zen] this is called a *seamless lantern*. That means that pond is called *hosho-ike*, which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of them. [So it’s] *formless*. In [*Prajñāpāramitā \[Sutra\]*](glossary#prajnaparamita), we say *formless*, no form: no eyes, no ears, [et cetera]. 
 
 So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. 
 

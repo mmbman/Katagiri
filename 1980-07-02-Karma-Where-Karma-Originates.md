@@ -124,7 +124,7 @@ And karma is *karmabandhu*. *Karmabandhu* means a *friend of action*. Karma is r
  
 And also karma is *karmapratiśaraṇa*. *Karmapratiśaraṇa* means that which one’s life depends on; a place which one’s life depends on.
 
-(*Transcriber’s Note:* Most of the above is mentioned in *Abhidharmasamuccaya: The Compendium of the Higher Teaching* by Asanga.)
+(*Transcriber’s Note:* Most of the above is mentioned in *Abhidharmasamuccaya: The Compendium of the Higher Teaching* by Asaṅga.)
 
 #### 28:10
  

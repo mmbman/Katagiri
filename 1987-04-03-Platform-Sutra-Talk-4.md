@@ -85,7 +85,7 @@ And, “this is not the total manifestation of being.” Because that statement 
 
 #### 25:28
 
-The second-grade child [is one] who follows the Shared Doctrines. The Shared Doctrines means, according to Tendai, I think the *agamas* and *Vimalakirti Sutra*, *Prajnaparamita Sutra*, et cetera. It’s very common doctrines, open to everyone: the shared doctrines. So that is like second grade children. Dōgen Zenji says, “Even though a time may manifest when it is seen as *arrays of treasures*, this is not the true ultimate.”
+The second-grade child [is one] who follows the Shared Doctrines. The Shared Doctrines means, according to Tendai, I think the *agamas* and *Vimalakirti Sutra*, *Prajñāpāramitā Sutra*, et cetera. It’s very common doctrines, open to everyone: the shared doctrines. So that is like second grade children. Dōgen Zenji says, “Even though a time may manifest when it is seen as *arrays of treasures*, this is not the true ultimate.”
 
 I think those who follow the Shared Doctrines, or second grade children, take a view of the world as treasures.  They believe the saha world is treasure. Because they see – what can I say – plants and trees, walls and fences, earthquakes and fires, and starvation, whatever – we see all those things [or] events as a piece of advice of how to live peacefully. Because we don’t like earthquakes, or fires, or starvation – but we can learn a lot from earthquakes and starvation. And misunderstandings and mistakes, you know, everyday life. We don’t like mistakes, but we cannot escape mistakes, and we cannot escape fires and earthquakes. So very naturally human beings create a culture of how to live in peace and harmony right in the middle of [an] earthquake. So [an] earthquake is not always bad. So they believe that we see earthquake or fire as [pieces of advice of] how to live peacefully. In a sense, we see plants and trees as treasures. 
 
@@ -167,7 +167,7 @@ And then, you can experience *something* to love, so-called wonderful experience
 
 So the question is, you should be *liberated*, okay? Because *liberated* means practice is always practice. Through the practice, naturally you can experience result, but the result is not [a] unique place [that] you should depend on. So the result is a result, but you have to be *liberated* from the result. So experience the result, be liberated from the result. And then next, experience the result, and then be liberated. 
 
-So what’s the main point of practice? The main point of practice is like the sutra mentions, achieving continuity of going beyond. Like the *Prajnaparamita* [*Sutra*]: gone. “*Gate gate, paragate, parasamgate, bodhi svaha.*” So achieving continuity of going beyond *is* [the true,] unique place you can depend on. It is what? It is just practice, every day. 
+So what’s the main point of practice? The main point of practice is like the sutra mentions, achieving continuity of going beyond. Like the *Prajñāpāramitā* [*Sutra*]: gone. “*Gate gate, paragate, parasamgate, bodhi svaha.*” So achieving continuity of going beyond *is* [the true,] unique place you can depend on. It is what? It is just practice, every day. 
 
 So, there are two points you have to pay attention to about Buddhist practice, okay? 
 

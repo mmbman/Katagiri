@@ -168,7 +168,7 @@ So that’s why Buddha says, “Suffering begets selflessness.” Egolessness.
 
 Impermanence begets suffering, and suffering begets egolessness, naturally. That’s why Dōgen Zenji says, if you want to have bodhi-mind, you have to observe very closely or contemplate impermanence: how transient the world is, how fragile human life is. Because yesterday I mentioned, human beings always forget returning to the source of *samsara*, and are always stirring up the world created after second thought. So this is real suffering, constantly. 
 
-That’s why Buddha gives sympathy to all human beings like this. Because human beings completely forget. That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of the *Lotus Sutra*, the teaching of *Prajnaparamita*, the teaching of the *Vimalakirti Sutra*: let’s go back. 
+That’s why Buddha gives sympathy to all human beings like this. Because human beings completely forget. That’s why Buddha’s teaching constantly [reminds you to return] to the source of the samsaric world: the source of reflection, source of discriminating mind. Anyway, let’s return. This is the teaching of the *Lotus Sutra*, the teaching of *Prajñāpāramitā*, the teaching of the *Vimalakirti Sutra*: let’s go back. 
  
 And then if you go back to that source, you don’t know what it is, but there is really a kind of astonishment, enormous astonishment. 
 

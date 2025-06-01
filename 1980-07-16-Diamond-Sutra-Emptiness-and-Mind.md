@@ -7,7 +7,7 @@ title: "Diamond Sutra, Talk 44: Emptiness and Mind"
 
 ### Summary
 
-How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajnaparamita Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
+How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajñāpāramitā Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
 
 ### Transcript
 
@@ -22,7 +22,7 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 
 Chapter 32 is:
 
-> And finally, Subhuti, if a Bodhisattva, a great being had filled world-systems immeasurable and incalculable with the seven precious things, and gave them as a gift to the Tathagatas, the Arhats, the fully Enlightened Ones, – and if, on the other hand, a son or daughter of good family had taken from this Prajnaparamita, this discourse on Dharma, but one stanza of four lines, and were to bear it in mind, demonstrate, recite, and study it, and illuminate it in full detail for others, on the strength of that this latter would beget a greater heap of merit, immeasurable and incalculable. And how would he illuminate it? So as not to reveal. Therefore is it said, “he would illuminate.”
+> And finally, Subhuti, if a Bodhisattva, a great being had filled world-systems immeasurable and incalculable with the seven precious things, and gave them as a gift to the Tathagatas, the Arhats, the fully Enlightened Ones, – and if, on the other hand, a son or daughter of good family had taken from this Prajñāpāramitā, this discourse on Dharma, but one stanza of four lines, and were to bear it in mind, demonstrate, recite, and study it, and illuminate it in full detail for others, on the strength of that this latter would beget a greater heap of merit, immeasurable and incalculable. And how would he illuminate it? So as not to reveal. Therefore is it said, “he would illuminate.”
 > 
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 
@@ -38,7 +38,7 @@ I studied Buddhism at Komazawa University in Tokyo. I really suffered from my li
 
 So even though you understand some aspect of Buddhism with your mind, it doesn’t hit one’s heart, one’s life. No connection. If you want to “demonstrate, understand, study and illuminate” even one stanza of the Buddha’s teaching, you have to illuminate it by your own words, not borrowing the words from others. 
 
-In order to explain emptiness, the scholar always said, “Look at page such-and-such of the Madhyamakas, Nagarjuna says such-and-such.” But it didn’t make sense for me. What is emptiness? Emptiness is always a book! *[Laughter.]* Don’t you think so? Emptiness is not the idea of emptiness which occurs in the Buddhist sutras, it is really human life itself. But the teacher didn’t teach in that way.
+In order to explain emptiness, the scholar always said, “Look at page such-and-such of the Madhyamakas, Nāgārjuna says such-and-such.” But it didn’t make sense for me. What is emptiness? Emptiness is always a book! *[Laughter.]* Don’t you think so? Emptiness is not the idea of emptiness which occurs in the Buddhist sutras, it is really human life itself. But the teacher didn’t teach in that way.
 
 So at any cost [...] we have to illuminate it by means of our own words. Those words [must be] coming from our life itself; so thoughts, ideas, philosophy, psychology, all things, are something coming from our life. [It is] not to mold life into thoughts or ideas and philosophy; that would really be reversed. If you do that, your life is really confused.
 
@@ -60,7 +60,7 @@ So from now on, human beings cannot create war, the computer makes war. [...] I 
 
 #### 16:58
 
-That’s why Nagarjuna says that such an understanding of the world is empty. But if you think “the world is empty,” [then] whatever I explain according to Nagarjuna, still you feel pensive and pessimistic, because the world is empty. So very naturally you feel hopeless in human life. That’s why in the *Prajnaparamita Sutra*, next [it says], “Emptiness is form.” 
+That’s why Nāgārjuna says that such an understanding of the world is empty. But if you think “the world is empty,” [then] whatever I explain according to Nāgārjuna, still you feel pensive and pessimistic, because the world is empty. So very naturally you feel hopeless in human life. That’s why in the *Prajñāpāramitā Sutra*, next [it says], “Emptiness is form.” 
 
 *Emptiness is form* means [it’s not a cause for] pensiveness. Even though I say the table and Katagiri is really empty, or mind is really evasive, or vague, or vast, whatever I say – should I always stay in a feeling of pensiveness because of such an understanding? No way. Because still the table is here, my mind is here, Katagiri is here. The world is here. War is here. Computer is here. So you cannot always stay in a certain feeling of pensiveness or nihilism or pessimism or whatever it is. If you feel pensive or nihilistic, *next* we have to break this [wall]. That is what is called *emptiness is form*. 
 

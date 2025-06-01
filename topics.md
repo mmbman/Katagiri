@@ -46,7 +46,7 @@ Sections:
 
 - [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 7 (9:14)](1979-06-15-Fukanzazengi-Talk-7#914)
 
-### Prajnaparamita
+### Prajñāpāramitā
 
 - [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6 (1:16:36)](1979-06-14-Fukanzazengi-Talk-6#11636)
 
@@ -134,7 +134,7 @@ Japanese: Kaiin-zanmai
 - [*Diamond Sutra*, Talk 10: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
 - [*Diamond Sutra*, Talk 11: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
-### Prajnaparamita Sutra
+### Prajñāpāramitā Sutra
 
 - [*Diamond Sutra*, Talk 1: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 - [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)

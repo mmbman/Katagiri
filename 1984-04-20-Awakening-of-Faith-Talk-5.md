@@ -157,7 +157,7 @@ But usually we become very crazy about terms, okay? *[He chuckles.]* Any kind of
 
 But Buddhism always mentions, go beyond the words. If you don't believe me, read the *Diamond Sutra*: “Bodhisattvas are not bodhisattvas, that's why we call bodhisattva.” Do you understand this one? Always. That means you should know the *spirit* behind the term *bodhisattva*, alright? That's why we say so. 
 
-Then “no nose, no mind, no body” means you should know the spirit behind the term “eyes, ears.” What's going on there around your nose? What's the spirit behind the nose? *Spirit* means *vastness of existence*. That's why *Prajnaparamita* says “no nose, no eyes, no ears, no mind, no bodies,” anyway. “No confusion, no disappearance, no appearance,” et cetera. Completely no birth, no disappearance. 
+Then “no nose, no mind, no body” means you should know the spirit behind the term “eyes, ears.” What's going on there around your nose? What's the spirit behind the nose? *Spirit* means *vastness of existence*. That's why *Prajñāpāramitā* says “no nose, no eyes, no ears, no mind, no bodies,” anyway. “No confusion, no disappearance, no appearance,” et cetera. Completely no birth, no disappearance. 
 
 So you are born in this world, that is called *born*, *birth*. But you should know the spirit of the birth. From where it comes. 
 

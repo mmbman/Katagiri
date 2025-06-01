@@ -87,7 +87,7 @@ That is, in terms of practice, *shō* is explained as *jijiyu samadhi*: self bec
 
 That is perfect freedom. Perfect freedom. Perfect freedom which is free from the concept of freedom. 
 
-That’s why in the *Diamond Sutra* it always says, “Bodhisattvas are not bodhisattvas, therefore they are called bodhisattvas.” So if the bodhisattvas want to be real bodhisattvas, they have to be free from the concept of bodhisattvas. And then they can really live in peace and harmony, vividly, helping each other. That is a bodhisattva [as the] *Diamond Sutra* mentions, and *Prajnaparamita* mentions like this. So Dōgen’s understanding is not his *own* understanding, it’s based on the general Buddhist teaching there. 
+That’s why in the *Diamond Sutra* it always says, “Bodhisattvas are not bodhisattvas, therefore they are called bodhisattvas.” So if the bodhisattvas want to be real bodhisattvas, they have to be free from the concept of bodhisattvas. And then they can really live in peace and harmony, vividly, helping each other. That is a bodhisattva [as the] *Diamond Sutra* mentions, and *Prajñāpāramitā* mentions like this. So Dōgen’s understanding is not his *own* understanding, it’s based on the general Buddhist teaching there. 
 
 I think many people don’t understand [that] practice and realization are one. But this is not [just] Dōgen’s understanding, this is a Buddhist understanding. So I think you should keep in mind your practice like this, exactly. And from now on, you have to research your practice like this – not separate from realization. Otherwise, you never get perfect peace in your life. 
 
@@ -165,7 +165,7 @@ So I don’t mean *satori* and awakening are not important. They are very import
 
 **Katagiri Roshi:** Well, it’s necessary, but I don’t think you should try to hold [them] always, try to get a hold. No. But you shouldn’t ignore the *satori* and awakening. The point is you have to focus on that point, *shō*, where we are. Because we live there. So [focus on] where we are, and then we should take care of our life. 
 
-But usually, we always try to live in the realm of awakening or *satori*, and *then* we try to take care of human life. That’s why [we are] more confused there. But we should focus on the very basic foundation, there. And then, you can deal with *satori*, awakening, and many things. That’s [what] Dōgen Zenji tries to present always. But this is not Dōgen’s teaching, this is a general Buddhist teaching. [It’s] why Nagarjuna mentions 18 emptinesses, you know? *[He laughs.]* Why he has to say 18 emptinesses, 25 emptinesses, constantly. It’s ridiculous! *[He laughs.]* But he has to say [it]. 
+But usually, we always try to live in the realm of awakening or *satori*, and *then* we try to take care of human life. That’s why [we are] more confused there. But we should focus on the very basic foundation, there. And then, you can deal with *satori*, awakening, and many things. That’s [what] Dōgen Zenji tries to present always. But this is not Dōgen’s teaching, this is a general Buddhist teaching. [It’s] why Nāgārjuna mentions 18 emptinesses, you know? *[He laughs.]* Why he has to say 18 emptinesses, 25 emptinesses, constantly. It’s ridiculous! *[He laughs.]* But he has to say [it]. 
 
 **Someone:** Excuse me, Roshi. Could you clarify what the difference is when you’re say this is a Buddhist view versus this is Dōgen’s view? 
 

@@ -41,7 +41,7 @@ So, two kinds of the truth in words, one is *truly empty*. But that *empty* does
 
 So two kinds of truth we have to know. Otherwise, there is no chance to know what the truth is. 
 
-So in the *Madhyamaka*, [in] Chapter 24 and Number 8, 9, 10, Nagarjuna [says] the teaching by the buddhas of the dharma has recourse two truths. Two truths: “the word in scorned truth and the truth which is the highest sense. Those who do not know the distribution of the two kinds of the truth do not know the profound point and the teaching of the buddhas. The highest sense of the truth is not taught apart from practical behavior. And without having understood the highest sense, one cannot understand nirvana.” 
+So in the *Madhyamaka*, [in] Chapter 24 and Number 8, 9, 10, Nāgārjuna [says] the teaching by the buddhas of the dharma has recourse two truths. Two truths: “the word in scorned truth and the truth which is the highest sense. Those who do not know the distribution of the two kinds of the truth do not know the profound point and the teaching of the buddhas. The highest sense of the truth is not taught apart from practical behavior. And without having understood the highest sense, one cannot understand nirvana.” 
 
 So without understanding these two kinds. The highest sense of the truth, that is the truth completely independent from the words. That is the highest sense of the truth. The other truth is the truth manifested in the human world. That is, what would you say, a secular aspect of the truth. The secular aspect of the truth. The other one is the ultimate aspect of the truth. 
 
@@ -213,11 +213,11 @@ So next, let’s number two, “Truly Nonempty.”
 
 Non-empty, it mentions before anyway, it is implication of excellent, boundless quality which the truth itself possesses. The truth is of real entity and has boundless nature of its virtuous quality. This is meaning of non-empty. 
 
-So non-empty means not deny, not destroy the truth itself, essence of the truth, but we should deny the deluded mind, in this book. But in the Buddhist teaching of *Prajnaparamita*, it doesn’t say so. *[He chuckles.]* Okay? In *Prajnaparamita*, we say, “Form is emptiness. Emptiness is form.” That means object itself is emptiness. Not deluded, [not] image of your understanding is empty. No. Form itself is empty. Your object itself is empty. Subject itself is empty. That’s why next, emptiness is form. This sentence comes into existence. 
+So non-empty means not deny, not destroy the truth itself, essence of the truth, but we should deny the deluded mind, in this book. But in the Buddhist teaching of *Prajñāpāramitā*, it doesn’t say so. *[He chuckles.]* Okay? In *Prajñāpāramitā*, we say, “Form is emptiness. Emptiness is form.” That means object itself is emptiness. Not deluded, [not] image of your understanding is empty. No. Form itself is empty. Your object itself is empty. Subject itself is empty. That’s why next, emptiness is form. This sentence comes into existence. 
 
 If empty implies to negate a deluded mind, you cannot say empty is form. But if form is empty, simultaneously empty is form, that means completely empty form, object itself is empty. So a little different. 
 
-But in Prajnaparamita Sutra, it doesn’t mention why the object and subject itself is empty, how emptiness is related with object itself. Well, what part of the object is emptiness? It doesn’t [say]. Just Prajnaparamita brings up, that sentence, that teaching, that is just emptiness. So it’s very difficult to understand it. 
+But in Prajñāpāramitā Sutra, it doesn’t mention why the object and subject itself is empty, how emptiness is related with object itself. Well, what part of the object is emptiness? It doesn’t [say]. Just Prajñāpāramitā brings up, that sentence, that teaching, that is just emptiness. So it’s very difficult to understand it. 
 
 But in this book, [it’s a little different]. Because we want to know, what part of the object is emptiness? Is [...] the whole thing empty. How about subject? How about subject who is looking at the object? It is also emptiness? This book, that is the Buddhist psychology, is always analyzing, synthesizing like this. So a little bit different. So very naturally it becomes logical, very rational. 
 
@@ -251,7 +251,7 @@ So the truth itself has the boundless virtuous quality of purity or clearness. T
 
 So *dharma* is completely something maintaining itself, constantly. So before the world was born in this world, or before the Buddha, even regardless of whether the Buddha was born in this world, it’s going. Or a nuclear weapon destroys the whole world, but still, there is something. This is called the truth. 
 
-So it is very difficult to understand in words, that’s why we say *emptiness* [by Nagarjuna]. But emptiness is not real emptiness, that’s why quality of the emptiness or contents of emptiness is called *interdependent co-origination*. This is the structure of emptiness, how emptiness operates in the human world. That is in teaching and in the *Madhyamaka*. 
+So it is very difficult to understand in words, that’s why we say *emptiness* [by Nāgārjuna]. But emptiness is not real emptiness, that’s why quality of the emptiness or contents of emptiness is called *interdependent co-origination*. This is the structure of emptiness, how emptiness operates in the human world. That is in teaching and in the *Madhyamaka*. 
 
 *[The timekeeper indicates that there are ten more minutes.]*
 

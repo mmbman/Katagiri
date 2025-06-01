@@ -276,7 +276,7 @@ Do you have for something to say to his question? Is that okay?
 
 Not separated, you know; [delusion] of floor and purity of the floor are the same. But [...] they are not the same, they are different. But they are not different. That is called oneness. That's why if you study Buddhism, [we always say], “one is all, all is one” – what do [we] mean? And “form is emptiness, emptiness is form.” They are not separate, but if you say it in words, there is a separation.
 
-So I don't know how to say it. But constantly we have to say it. So Nagarjuna always [says], “Everything is emptiness.” Yes. But emptiness is emptiness. And then next, *emptiness of emptiness* is emptiness. Constantly, we have to say [so]. So forever you have to argue; forever you have to say, “Where is the salvation?” “Where is the salvation” means where is peace?
+So I don't know how to say it. But constantly we have to say it. So Nāgārjuna always [says], “Everything is emptiness.” Yes. But emptiness is emptiness. And then next, *emptiness of emptiness* is emptiness. Constantly, we have to say [so]. So forever you have to argue; forever you have to say, “Where is the salvation?” “Where is the salvation” means where is peace?
 
 Can you see the limitation of human knowledge?
 

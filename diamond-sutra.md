@@ -44,7 +44,7 @@ If, as the *Diamond Sutra* says, there is no dharma which the Buddha Shakyamuni 
 ##### [*Diamond Sutra*, Talk 44: Emptiness and Mind](1980-07-16-Diamond-Sutra-Emptiness-and-Mind)
 ###### July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajnaparamita Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
+How do we teach Buddhism? Molding life into ideas or philosophy is backwards; the words must come from our own life, or they won’t connect with people. Our understanding of the world based on causation is empty, but the world itself is not; that is why the *Prajñāpāramitā Sutra* says “emptiness is form.” We should digest the teachings thoroughly in our life, and then the words to explain will come naturally. Happiness and peace cannot be found by rushing to the destination. 
 
 ---
 

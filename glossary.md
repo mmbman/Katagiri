@@ -91,17 +91,17 @@ External link: [Wikipedia: Vaibhāṣika](https://en.wikipedia.org/wiki/Vaibhā�
 
 External link: [Wikipedia: Arhat](https://en.wikipedia.org/wiki/Arhat)
 
-## Aryadeva
+## Āryadeva
 
-Āryadeva (fl. 3rd century CE), was a disciple of Nagarjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th [patriarch](glossary#ancestor) in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
+Āryadeva (fl. 3rd century CE), was a disciple of Nāgārjuna and author of several important Mahayana [Madhyamaka](glossary#madhyamaka) Buddhist texts. He is also known as Kanadeva, recognized as the 15th [patriarch](glossary#ancestor) in [Chan Buddhism](glossary#chan-buddhism), and as "[Bodhisattva](#bodhisattva) Deva" in Sri Lanka.
 
-External link: [Wikipedia: Aryadeva](https://en.wikipedia.org/wiki/Aryadeva))
+External link: [Wikipedia: Āryadeva](https://en.wikipedia.org/wiki/Āryadeva))
 
-## Asanga
+## Asaṅga
 
 Asaṅga (fl. 4th century C.E.) was "one of the most important spiritual figures" of [Mahayana Buddhism](glossary#mahayana) and the "founder of the Yogachara school". Traditionally, he and his half-brother Vasubandhu are regarded as the major classical Indian [Sanskrit](glossary#sanskrit) exponents of Mahayana [Abhidharma](glossary#abhidharma), Vijñanavada (awareness only) thought and Mahayana teachings on the [bodhisattva](glossary#bodhisattva) path.
 
-External link: [Wikipedia: Asanga](https://en.wikipedia.org/wiki/Asanga)
+External link: [Wikipedia: Asaṅga](https://en.wikipedia.org/wiki/Asaṅga)
 
 ## Auddhatya
 
@@ -625,11 +625,11 @@ Probably Soen Nakagawa.
 External link: [Wikipedia: Soen Nakagawa](https://en.wikipedia.org/wiki/Soen_Nakagawa)
 
 ---
-## Nagarjuna
+## Nāgārjuna
 
 Nāgārjuna
 
-External link: [Wikipedia: Nagarjuna](https://en.wikipedia.org/wiki/Nagarjuna)
+External link: [Wikipedia: Nāgārjuna](https://en.wikipedia.org/wiki/Nāgārjuna)
 
 ---
 ## Nichiren
@@ -689,19 +689,19 @@ External links:
 
 - [Wikipedia: Prajñā (Buddhism](https://en.wikipedia.org/wiki/Prajñā_(Buddhism))
 
-## Prajnaparamita
+## Prajñāpāramitā
 
 "Wisdom beyond wisdom", or The Perfection of Wisdom.
 
-Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the [Sanskrit](glossary#sanskrit) words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (śūnyatā) or 'lack of Svabhava' (essence) and the works of Nagarjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
+Prajñāpāramitā means "the Perfection of (Transcendent) Wisdom" in Mahāyāna Buddhism. Prajñāpāramitā refers to this perfected way of seeing the nature of reality, as well as to a particular body of sutras and to the personification of the concept in the Bodhisattva known as the "Great Mother" (Tibetan: Yum Chenmo). The word Prajñāpāramitā combines the [Sanskrit](glossary#sanskrit) words prajñā "wisdom" with pāramitā "perfection". Prajñāpāramitā is a central concept in Mahāyāna Buddhism and is generally associated with the doctrine of emptiness (śūnyatā) or 'lack of Svabhava' (essence) and the works of Nāgārjuna. Its practice and understanding are taken to be indispensable elements of the Bodhisattva path.
 
 According to [Edward Conze](glossary#edward-conze), the Prajñāpāramitā Sutras are "a collection of about forty texts ... composed somewhere on the Indian subcontinent between approximately 100 BC and AD 600."[1] Some Prajnāpāramitā sūtras are thought to be among the earliest Mahāyāna sūtras.[2][3]
 
-External link: [Wikipedia: Prajnaparamita](https://en.wikipedia.org/wiki/Prajnaparamita)
+External link: [Wikipedia: Prajñāpāramitā](https://en.wikipedia.org/wiki/Prajñāpāramitā)
 
-## Prajnaparamita Sutra
+## Prajñāpāramitā Sutra
 
-See [Prajnaparamita](glossary#prajnaparamita) 
+See [Prajñāpāramitā](glossary#prajnaparamita) 
 
 ## Prāpti
 

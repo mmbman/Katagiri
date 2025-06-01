@@ -228,7 +228,7 @@ That’s why the teacher says, “I am not the teacher for you. I want to send y
 
 **Same person:** You mean like adults analyze it?
 
-**Katagiri Roshi:** Analyze, yes. So I say, “hey let’s see Prajnaparamita Sutra, this way” and then everyone looks this way *[laughter]* – rushing into. And then, “Oh, no, no, no.. look *that* way.” *[Laughter.]* Zero. But a kid exactly looks like this. Don’t you think so? Just like the trees, birds. That’s why we say kids are beautiful, you know? 
+**Katagiri Roshi:** Analyze, yes. So I say, “hey let’s see Prajñāpāramitā Sutra, this way” and then everyone looks this way *[laughter]* – rushing into. And then, “Oh, no, no, no.. look *that* way.” *[Laughter.]* Zero. But a kid exactly looks like this. Don’t you think so? Just like the trees, birds. That’s why we say kids are beautiful, you know? 
 
 
 
