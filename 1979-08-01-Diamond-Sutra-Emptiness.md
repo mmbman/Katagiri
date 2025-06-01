@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Emptiness"
+title: "Diamond Sutra, Talk 9: Emptiness"
 ---
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 

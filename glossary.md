@@ -42,7 +42,7 @@ External links:
 
 "Aesthetic contemplation" may refer to Schopenhauer’s aesthetic theory. If so, this is an interesting connection to Western philosophy. "In aesthetic contemplation, we stop thinking about the world and the objects in it as means to our ends, that is, as objects of our will. We also see attention and perception take center stage."
 
-- [*Diamond Sutra*: Provisional Being (43:50)](1979-07-25-Diamond-Sutra-Provisional-Being#4350)
+- [*Diamond Sutra*, Talk 8: Provisional Being (43:50)](1979-07-25-Diamond-Sutra-Provisional-Being#4350)
 
 External links:
 
@@ -481,7 +481,7 @@ Japanese: Isan Reiyū
 Chinese: Guishan Lingyou (Kuei-shan Lingyu) 溈山靈祐  
 771-853 CE
 
-- [*Diamond Sutra*: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
+- [*Diamond Sutra*, Talk 1: Introduction (24:10)](1979-05-09-Diamond-Sutra-Introduction#2410) 
 - [*Blue Cliff Record* Case 4 – Talk 1](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1)
 
 External links:
@@ -720,7 +720,7 @@ I'm tracking references to "Primitive Buddhism" to try to get a better sense of 
 
 - [Fukanzazengi – Talk 1 (28:39)](1979-06-09-Fukanzazengi-Talk-1#2839)
 - [Fukanzazengi – Talk 6 (0:00-9:02)](1979-06-14-Fukanzazengi-Talk-6#000)
-- [*Diamond Sutra*: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
+- [*Diamond Sutra*, Talk 10: Giving and Non-Covetousness (4:20)](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness#420)
 
 External link: [Wikipedia: Pre-sectarian Buddhism](https://en.wikipedia.org/wiki/Pre-sectarian_Buddhism)
 

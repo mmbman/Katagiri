@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Provisional Being"
+title: "Diamond Sutra, Talk 8: Provisional Being"
 ---
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 

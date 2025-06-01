@@ -114,7 +114,7 @@ Japanese: Kaiin-zanmai
 - [Fukanzazengi – Talk 5](1979-06-13-Fukanzazengi-Talk-5)
 - [Fukanzazengi – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 - [Fukanzazengi – Talk 7](1979-06-15-Fukanzazengi-Talk-7)
-- [*Diamond Sutra*: Provisional Being (20:52)](1979-07-25-Diamond-Sutra-Provisional-Being#2052) – “think not-thinking”
+- [*Diamond Sutra*, Talk 8: Provisional Being (20:52)](1979-07-25-Diamond-Sutra-Provisional-Being#2052) – “think not-thinking”
 - [*Blue Cliff Record* Case 2 – Talk 1 (02:00)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#0200)
 - [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 1 (1:01)](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1#101)
 
@@ -128,22 +128,22 @@ Japanese: Kaiin-zanmai
 
 ### Diamond Sutra
 
-- [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
-- [*Diamond Sutra*: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
-- [*Diamond Sutra*: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
-- [*Diamond Sutra*: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
-- [*Diamond Sutra*: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+- [*Diamond Sutra*, Talk 1: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+- [*Diamond Sutra*, Talk 8: Provisional Being](1979-07-25-Diamond-Sutra-Provisional-Being)
+- [*Diamond Sutra*, Talk 9: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+- [*Diamond Sutra*, Talk 10: Giving and Non-Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness)
+- [*Diamond Sutra*, Talk 11: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 ### Prajnaparamita Sutra
 
-- [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction)
+- [*Diamond Sutra*, Talk 1: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 - [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
-- [*Diamond Sutra*: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
+- [*Diamond Sutra*, Talk 9: Emptiness (36:32)](1979-08-01-Diamond-Sutra-Emptiness#3632)
 - [Turning the Three Poisons into Wheels (12:00)](1986-06-28-Turning-the-Three-Poisons-into-Wheels#1200)
 
 ### Vimalakirti Sutra
 
-- [*Diamond Sutra*: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
+- [*Diamond Sutra*, Talk 1: Introduction](1979-05-09-Diamond-Sutra-Introduction) (brief reference in introduction)
 - [*Blue Cliff Record* Case 3: Master Ma Is Unwell, Talk 2](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2)
 
 ### Mahāyāna Mahāparinirvāṇa Sūtra (Nirvana Sutra)
@@ -162,7 +162,7 @@ Japanese: Kaiin-zanmai
 
 ### Abhidharma
 
-- [*Diamond Sutra*: Emptiness (29:51)](1979-08-01-Diamond-Sutra-Emptiness#2951)
+- [*Diamond Sutra*, Talk 9: Emptiness (29:51)](1979-08-01-Diamond-Sutra-Emptiness#2951)
 
 
 ### Abhidharmakosha

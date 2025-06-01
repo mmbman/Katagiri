@@ -30,11 +30,11 @@ This translation did not exist when Katagiri gave his talks, but now it is an es
 ## Buddhist Wisdom: The Diamond Sutra and the Heart Sutra
 By [Edward Conze](glossary#edward-conze)
 
-- [*Diamond Sutra*: Introduction (17:40)](1979-05-09-Diamond-Sutra-Introduction#1740)
+- [*Diamond Sutra*, Talk 1: Introduction (17:40)](1979-05-09-Diamond-Sutra-Introduction#1740)
 - [*Diamond Sutra*: Provisional-Being](1979-07-25-Diamond-Sutra-Provisional-Being)
-- [*Diamond Sutra*: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
+- [*Diamond Sutra*, Talk 9: Emptiness](1979-08-01-Diamond-Sutra-Emptiness)
 - [*Diamond Sutra*: Giving and Non Covetousness](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness.md)
-- [*Diamond Sutra*: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
+- [*Diamond Sutra*, Talk 11: Dharma / Not Dharma / Dharma](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma)
 
 <a name="central-conception"></a>
 ## The Central Conception of Buddhism and the Meaning of the Word Dharma

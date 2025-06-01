@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Introduction"
+title: "Diamond Sutra, Talk 1: Introduction"
 ---
 ## May 9, 1979 Dharma Talk by Dainin Katagiri Roshi
 

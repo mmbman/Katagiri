@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Dharma / Not Dharma / Dharma"
+title: "Diamond Sutra, Talk 11: Dharma / Not Dharma / Dharma"
 ---
 ## August 15, 1979 Dharma Talk by Dainin Katagiri Roshi
 

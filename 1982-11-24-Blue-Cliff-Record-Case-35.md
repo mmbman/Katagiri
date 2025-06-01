@@ -180,7 +180,7 @@ This is representing the beautiful scenery of Mount Wutai. The scenery is comple
 
 That is the scenery of Mount Wutai. That means completely accept the mountain’s life, the scenery’s life. Completely and totally accept your presence and others’ presence. That is a little bit different from acceptance of the mountain’s or others’ life and your life in terms of common sense. 
 
-I told you several years ago, in Zen there are three ways of thinking and understanding. In the first stage, mountains are mountains. Second stage, mountains are not mountains. The third stage, mountains are mountains. (See [*Diamond Sutra*: Introduction](https://katagiritranscripts.net/1979-05-09-Diamond-Sutra-Introduction), etc.)
+I told you several years ago, in Zen there are three ways of thinking and understanding. In the first stage, mountains are mountains. Second stage, mountains are not mountains. The third stage, mountains are mountains. (See [*Diamond Sutra*, Talk 1: Introduction](https://katagiritranscripts.net/1979-05-09-Diamond-Sutra-Introduction), etc.)
 
 *(Archive Issue: The conclusion of this talk seems to be missing.)*
 

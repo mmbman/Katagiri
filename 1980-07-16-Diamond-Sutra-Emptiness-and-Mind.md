@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Emptiness and Mind"
+title: "Diamond Sutra, Talk 44: Emptiness and Mind"
 ---
 ## July 16, 1980 Dharma Talk by Dainin Katagiri Roshi
 

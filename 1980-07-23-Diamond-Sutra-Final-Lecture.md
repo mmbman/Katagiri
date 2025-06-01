@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Final Lecture"
+title: "Diamond Sutra, Talk 45: Final Lecture"
 ---
 ## July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 

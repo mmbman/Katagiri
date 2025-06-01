@@ -1,5 +1,5 @@
 ---
-title: "Diamond Sutra: Giving and Non-Covetousness"
+title: "Diamond Sutra, Talk 10: Giving and Non-Covetousness"
 ---
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
