@@ -68,8 +68,6 @@ Like this. *[He chuckles.]*
 
 In the latest *Udambara*, Professor Abe (Masao Abe) explains about the three stages: mountain is mountain; but mountain is not mountain; finally, mountain is mountain. This is really the tendency of the Indian way of thinking: everything [is] conceptual. That is why they use lots of beautiful terms, lots of huge numbers, completely beyond human speculation. 
 
-#### 22:51
-
 But when Buddhism is transmitted into China, it becomes a little bit practical, in order to explain *Prajñāpāramitā* not conceptually but very practically. 
 
 For instance, you know Zen Buddhists always use a koan. This koan is really based on the Buddhist philosophy mentioned by *Prajñāpāramitā Sutra*: “Mountain is mountain, mountain is not mountain, but mountain is mountain.” Very practically they explain [it using the example of] Zen monks, like this, for instance:
