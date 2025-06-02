@@ -7,6 +7,10 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
  [**Introduction**](introduction)
 
+[**Talk List**](list)
+
+[**Talk Summaries**](summaries)
+
 **Talk Series:**
 
 - [*Awakening of Faith*](awakening-of-faith)
@@ -24,10 +28,6 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [Tiantai Buddhism](tiantai-buddhism)
 - [Zen Forms and Ceremonies](zen-forms)
 - [Miscellaneous Talks](miscellaneous)
-
-[**Talk List**](list)
-
-[**Talk Summaries**](summaries)
 
 **Resources:**
 
