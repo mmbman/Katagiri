@@ -6,9 +6,11 @@ This is a list of talks that have been transcribed on this site, with brief summ
 
 Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [1984](#1984) [1985](#1985) [1986](#1986) [1987](#1987) [1988](#1988) [1989](#1989)
 
----
+<br/>
 
 ### 1979
+
+<br/> 
 
 ##### [*Diamond Sutra*, Talk 1: Introduction](1979-05-09-Diamond-Sutra-Introduction)
 
@@ -92,7 +94,7 @@ Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Reco
 
 Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Sōtō denominations.
 
----
+<br/>
 
 ### 1980
 
@@ -198,7 +200,7 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 
 Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining the famous verse at the end, which tells us to view the conditioned world “as stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, a cloud.” The nine perspectives in the verse reveal different aspects of our experience. Overall, it means that we should respect the law of causation, our past life and its consequences, without being stuck in it. While still being humble, we can move bravely toward the future, toward a beautiful ideal image of human life.
 
----
+<br/>
 
 ### 1981
 
@@ -260,7 +262,7 @@ If there is nothing that can be pinned down in the vast expanse of the universe,
 
 Is the Iron Ox dead or alive? Katagiri Roshi discusses the sudden and the gradual in Zen. We need both, accepting Buddha Nature in the midst of the bustling marketplace. In order to hold, you have to let go. What is the Buddhist Law, and what is the Law of Kings, and why are they the same thing? The old pond: a frog jumps in. Plop!
 
----
+<br/>
 
 ### 1983 
 
@@ -372,7 +374,7 @@ Katagiri Roshi discusses the relationship between action, communication, and bou
 
 Katagiri Roshi explains that there are two aspects of Buddhist practice: *the way-seeking mind seeking for truth*, and *the way-seeking mind descending to the human world*. We must constantly practice both, like a rolling ball, or like a flag flapping in the eight worldly winds. Also, the meaning of *not killing*.
 
----
+<br/>
 
 ### 1984
 
@@ -424,7 +426,7 @@ Katagiri Roshi concludes his series of talks on Mindfulness. Zen Master Dōgen c
 
 Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter One, “Revelation of True Meaning,” begins with the section “One Mind and Its Two Aspects.”
 
----
+<br/>
 
 ### 1985
 
@@ -434,7 +436,7 @@ Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter 
 
 What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
 
----
+<br/>
 
 ### 1986
 
@@ -540,7 +542,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 
 Summary not yet available.
 
----
+<br/>
 
 ### 1987
 
@@ -670,7 +672,7 @@ Summary not yet available.
 
 Summary not yet available.
 
----
+<br/>
 
 ### 1988
 
@@ -686,7 +688,7 @@ Summary not yet available.
 s
 Katagiri Roshi discusses how and why we should devote ourselves to dharma. He says that in Japanese, devotion is *kie* or *kimyo*, which mean to return to something true or ultimate, which is universal life. Devotion must be practiced in terms of two points: one is that you have to walk alone, realizing the simplest expression of existence, and the other is that you must be compassionate, open to everything. He relates this to Shakyamuni Buddha’s statement that “you should rely on the self; you should rely on the dharma,” and to passages from *Muni Sutta*, *Khaggavisana Sutta*, and *Mettā Sutta*. And he discusses how to deal with problems in the community while standing in the dharma. 
   
----
+<br/>
 
 ### 1989
 
