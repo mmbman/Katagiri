@@ -16,8 +16,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the fundamental point that it teaches: “*A* is *A*, but *A* is not *A*, this means *A* is really *A*.” He explains the meaning of negation in Buddhism, how it relates to interconnection, and why emptiness means that we have to practice. He also talks about where the sutras originated, and the Indian preference for using huge numbers and concepts to teach about emptiness. In addition, he addresses the question, “If we are sitting in order to help ourselves, should we stop sitting?”
 
-<br/> 
-
+   
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1](1979-06-09-Fukanzazengi-Talk-1)
 
 Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendation for how to practice zazen (seated meditation), by examining the meaning of the line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners often hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha-nature*. 
