@@ -82,17 +82,17 @@ The [fifth] point is regulation of the mind; that is very important in *shikanta
 
 I told you yesterday, if you do zazen, first you have to do zazen while making arrangement of circumstances, the sensory world, and your *body* and *breath*. *[He taps on the blackboard for emphasis on body and breath.]* And then that’s where life leads you to connect very powerfully to the *center* of life that is *total personality*. That’s why if you do this, very naturally you can experience something. 
 
-But at that time, the point is, you have to do zazen with *mind*! That mind is characterized by *attachment*: attachment to one-sided, extreme ideas. 
+But at that time, the point is, you have to do zazen with *mind*. That mind is characterized by *attachment*: attachment to one-sided, extreme ideas. 
 
 If you experience something good, mind immediately attaches to it. If you don’t experience anything, mind really wants to attach to a certain highness of spirit, which you will not yet experience. So you’re really greedy; that is also attachment. If you experience something wrong, you really want to escape from it; that is also attachment. So, mind is characterized by strong attachment. 
 
-That’s why yesterday I said, there is a most important thing, which is called *regulation of mind*. You have to do zazen with body and also mind. That mind must be egolessness. *[He pronounces ego-less-ness phonetically and writes it on the board.]* That egolessness is something you can manifest [...] through throwing away yourself into zazen, or giving away yourself to doing zazen, offering *you* to zazen. That is called *samadhi*. *[He writes it on the board.]* By the help of samadhi, you can really practice egolessness. 
+That’s why yesterday I said there is a most important thing, which is called *regulation of mind*. You have to do zazen with body and also mind. That mind must be *egolessness*. *[He pronounces ego-less-ness phonetically and writes it on the board.]* That egolessness is something you can manifest [...] through throwing away yourself into zazen, or giving away yourself to doing zazen, offering *you* to zazen. That is called *samadhi*. *[He writes it on the board.]* By the help of samadhi, you can really practice egolessness. 
 
 So, *samadhi* is what? Samadhi is completely [flow]; regulation of the body, regulation of breath. Anyway, through offering your body and mind to the body and to the breath. And then, at that time, you can experience samadhi. By the experience of samadhi, you can practice egolessness. That is regulation of the mind. 
 
 That [...] is called *no [design] on having a reward*. *[He writes that on the board.]*
 
-So if you concentrate on *body* and *breath*, that is samadhi. By the help of samadhi, there is the practice of *egolessness*. But that is not enough. So egolessness [is] something which we have to *actualize*, every day, moment after moment. When you see the breath: long breath, you should take your long breath; short breath, you should take care of short breath. Practice the continuation of samadhi; at that time, there is the practice of egolessness. 
+So if you concentrate on *body* and *breath*, that is samadhi. By the help of samadhi, there is the practice of *egolessness*. But that is not enough. Egolessness [is] something which we have to *actualize*, every day, moment after moment. When you see the breath: long breath, you should take your long breath; short breath, you should take care of short breath. Practice the continuation of samadhi; at that time, there is the practice of egolessness. 
 
 That egolessness is what is called “having no design of having reward.” [That’s why,] finally, something is left. That something is just activity. Just activity. 
 
@@ -138,7 +138,7 @@ For instance, we are in America. We don’t know what’s happening in Japan. Bu
 
 That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? Well, for instance: *Paris*? I have never been in Paris. *[He laughs.]* But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
 
-So cut off all things. “Cut off” means [in there place,] put them aside. You cannot destroy them. 
+So cut off all things. “Cut off” means [in their place,] put them aside. You cannot destroy them. 
 
 #### 30:30
 
@@ -152,9 +152,7 @@ So cut off all things. “Cut off” means [in there place,] put them aside. You
 
 **Same person:** I see.
 
-**Katagiri Roshi:** So, you know them pretty well.
-
-Well, if you don’t understand number one, number two, number three, four, five: number one is circumstances, environment; number two is the sensory world; number three is body; number four is breath, internal organs; number five is brain and nerves. Do you understand? 
+**Katagiri Roshi:** So, you know them pretty well. Well, if you don’t understand number one, number two, number three, four, five: number one is circumstances, environment; number two is the sensory world; number three is body; number four is breath, internal organs; number five is brain and nerves. Do you understand? 
 
 **Same person:** Oh yes.
 
@@ -168,21 +166,21 @@ So that’s why the regulation of the mind is very important.
 
 #### 34:20
 
-**Question:** Roshi? When we talk about and we chant that the natural condition of mind is to be free from clinging, sometimes I wonder, I’m not clear about: if it’s our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it’s almost impossible to attain it. Why is this called the natural condition?
+**Question:** Roshi? When we talk about and we chant that the natural condition of mind is to be free from clinging, sometimes I wonder, I’m not clear about... if it’s our natural condition to have this freedom from clinging, why is it so difficult for a human being to see it or to attain it? It seems like it requires so much continual regulation and it’s almost impossible to attain it. Why is this called the natural condition?
 
 **Katagiri Roshi:** Well, in a sense it’s not difficult; in a sense it’s a very simple practice. You think it is difficult because your consciousness is limited by your education and your environment, and you try to see your experience. At that time it’s really difficult to know or to experience [the] natural [condition], or the basis of ego consciousness, et cetera. But usually, I told you, *total personality*: through this person, through this *you*, we can see the total personality. 
 
 In a sense, according to the common sense – you know, consciousness, our sense, our mind – I can “smell” you. Or, I can smell myself. That is a “stink” in a bad sense, but in a good sense, it’s pretty good. So the total personality shows you the judgement, good or bad. But that good or bad is something you understand through consciousness. 
 
-On the other hand, that total personality comes from where? Beginningless past, and endless future. So finally that’s total personality; Katagiri is Katagiri. So why don’t I take care of Katagiri with compassionate attention, completely beyond judgement, good or bad, right and wrong. So we must be right in the middle of total personality, everyday life. Total personality is the core of life, so we must always be there.
+On the other hand, that total personality comes from where? Beginningless past, and endless future. So finally that’s total personality. Katagiri is Katagiri. So why don’t I take care of Katagiri with compassionate attention, completely beyond judgement, good or bad, right and wrong? We must be right in the middle of total personality, everyday life. Total personality is the core of life, so we must always be there.
 
 So from *this* point [of view], it’s pretty easy. No difficulty. 
 
-That’s why Dōgen Zenji says that Buddhist faith – if you believe total personality, or buddha-nature, whatever there is – within total personality or within the original nature of existence, there is no suffering, no confusion, no agitation, et cetera. Completely perfect. 
+That’s why Dōgen Zenji says that Buddhist faith – if you believe total personality, or buddha-nature [...] – within total personality or within the original nature of existence, there is no suffering, no confusion, no agitation, et cetera. Completely perfect. 
 
 So it’s pretty easy, in a sense. But in a sense, according to the six consciousnesses, it’s pretty hard. Because through the six consciousnesses we can understand our life according to the huge pile of experiences which we have accumulated. *[He laughs.]* That’s why it’s pretty hard. 
 
-So regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But – here is the proper posture. Why don’t you do it? So basically, it’s very easy: just do it. Just, proper posture. But it’s not easy, because you already have your own posture, and also you already have your [own] sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
+So regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? So basically, it’s very easy: just do it. Just, proper posture. But it’s not easy, because you already have your own posture, and also you already have your [own] sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
 
 **Same person:** In terms of the senses, it seems like zazen is *not* natural. It seems like [...] when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. 
 
