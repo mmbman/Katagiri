@@ -38,17 +38,19 @@ Also number six is, I told you yesterday, the *whole personality* or *total pers
 
 That total personality has a double face. One face is [the] karma you have carried from the past. And the other face is [that] that total personality is completely beyond human criticism; that is really buddha-nature. You cannot know what karma is, because karma comes from the beginningless past, and is going to the endless future. So that’s why in *Fukanzazengi*, Dōgen Zenji says, “The origin of the way is perfect and all-pervading.”
 
-And then also, if you do zazen, the original face of existence appears, manifests itself. That is, as Dōgen says in *Fukanzazengi*, [perfect and all-pervading] – the origin of the way, the origin of existence, is perfect and all-pervading. That is buddha-nature. If you do zazen, immediately [it] appears. That is what is called the original nature of existence manifesting itself. 
-
-#### 6:19
+And then also, if you do zazen, the original face of existence appears, manifests itself. That is, as Dōgen says in *Fukanzazengi*, [perfect and all-pervading]: the origin of the way, the origin of existence, is perfect and all-pervading. That is *buddha-nature*. If you do zazen, immediately [it] appears. That is what is called the original nature of existence manifesting itself. So Dōgen says in *Fukanzazengi*.
 
 So that is really the total picture of our personal living, everyday life. 
 
+#### 6:28
+
 That’s why for circumstances, all we have to do is, first, we have to throw away all involvements, and also cease all affairs. At that time, we cut off; [sit]. Completely we are free from circumstances. 
 
-But it doesn’t mean that we destroy circumstances; circumstances are existent, but they don’t bother us. So circumstances just exist. 
+But it doesn’t mean that we destroy circumstances. Circumstances are existent, but they don’t bother us. So circumstances just exist. 
 
-[The] point is, usually we are completely tossed away by circumstances. That’s why Dōgen says that in zazen, we have to first be free from circumstances. That’s why we have to throw away, cease all affairs and all involvements. This is the first thing we have to do. 
+[The] point is, usually we are completely tossed away by circumstances. That’s why Dōgen [says that] in zazen, we have to first be free from circumstances. That’s why we have to throw away, cease all affairs and all involvements. This is the first thing we have to do. 
+
+#### 7:29
 
 And then second, he mentions that we have to make arrangement of the sensory world. So, let’s [choose] the room: not dark, not bright. That is the sensory world. 
 
