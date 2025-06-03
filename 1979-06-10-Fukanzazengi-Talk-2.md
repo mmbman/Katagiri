@@ -50,27 +50,33 @@ But it doesn’t mean that we destroy circumstances; circumstances are existent,
 
 [The] point is, usually we are completely tossed away by circumstances. That’s why Dōgen says that in zazen, we have to first be free from circumstances. That’s why we have to throw away, cease all affairs and all involvements. This is the first thing we have to do. 
 
-And then, second, he mentions that we have to make arrangement of the sensory world. So, let’s [choose] the room: not dark, not bright. That is the sensory world. 
+And then second, he mentions that we have to make arrangement of the sensory world. So, let’s [choose] the room: not dark, not bright. That is the sensory world. 
 
-And also there is regulation of the body: so we have to have full lotus or half lotus position, and hands in the position of the *mudra*. And also, finally, we have to sit in the proper way, *immobile*. 
+#### 7:53
+
+And also there is the regulation of the body: so we have to have full lotus or half lotus position, and hands in the position of the *mudra*. And also, finally, we have to sit in the proper way, *immobile*. 
 
 Even though you sit quietly, your body is always shaking and moving, because there is a certain gap between zazen and you. That is what is called *suki* (隙) in Japanese, [...] a crack, or a [pivot]; a crack between the two objects. Immediately you can see mental or psychological agitation, so mental or psychological agitation immediately becomes the physical wave. That’s why if you sit quietly, you don’t see [it], but actually you always move. 
 
-So, sit in the proper way, *immobile*. And *immobile* means just sit physically, and also mentally, psychologically, you must be completely one with sitting. 
+So, sit in the proper way, *immobile*. And *immobile* means *just sit* physically, and also mentally, psychologically, you must be completely one with sitting. 
 
-Because if you have a mental, psychological gap, slip, or crack between two objects, you and zazen, it means that when attention slackens, certain signs of laxity appear. That is called *suki*, or crack [...]. And then immediately, your body is moving. So that means it’s not *real* zazen. The continuity is broken up; at that time, you can create *suki*. That is mental or psychological agitation. 
+Because if you have a mental, psychological gap, slip, or crack between two objects, you and zazen, it means that when attention slackens, certain signs of laxity appear. That is called *suki*, or crack [...]; and then immediately, your body is moving. So that means it’s not *real* zazen. The continuity is broken up; at that time, you can create *suki*. That is mental or psychological agitation. 
 
 That’s why we have to do zazen with what? Not with the mind first, but with the body. Legs, hands, and the whole body. But [the body] is very closely related related with mind, number five. That’s why if there is [a] mental, psychological crack, the body shows something.
 
-So if you do zazen, immediately that is really closely connected with number six, [total personality.] Because if you become one with zazen physically, there is no sign of oneness between zazen and you. Very naturally, there is no sign of concentration. That means you are connected with number six: manifestation of total personality. You can manifest very naturally. 
+So if you do zazen, immediately that is really closely connected with number six, [total personality.] Because if you become one with zazen physically, there is no [design] of oneness between zazen and you. Very naturally, there is no [design] of concentration. That means you are connected with number six: manifestation of *total personality*. You can manifest very naturally. 
 
 That’s why we do zazen physically first.
 
 #### 12:36
 
-And then fourth, if you do zazen concentrating with [the] breath, that regulation of the breath leads the internal organs to work smoothly, very naturally. The amount of oxygen spent is less than usual, and also carbonic acid gas is produced less than usual. Well, sort of like this, if you control the breath. “If you control” means if you pay careful attention to your breath, very naturally your breath is going to slow down a little bit. When you inhale, the inhale is a little faster, and the exhale is a little slower and longer. 
+And then fourth, if you do zazen concentrating with [the] breath, that regulation of the breath leads the internal organs to work smoothly, very naturally. So the amount of oxygen spent is less than usual, and also carbonic acid gas is produced less than usual. Well, sort of like this, if you control the breath. 
 
-Because when you exhale it’s pretty easy to create a mental, psychological crack. Through the psychological crack, [you think] there is something missing. Because that mental crack means that when the [continuity] is broken up, attention slackens, and signs of laxity appear. That is called *suki*, or crack. So you completely concentrate on taking care of your breath, becoming one with breath, and then simultaneously, by the regulation of the breath, you are closely related with total personality. Very naturally, because physically *[unintelligible]* very well. 
+“If you control” means if you pay careful attention to your breath, very naturally your breath is going to slow down a little bit. When you inhale, the inhale is a little faster, and the exhale is a little slower and longer. 
+
+Because when you exhale it’s pretty easy to create a mental, psychological crack. Through the psychological crack, [you think] there is something missing, because that mental crack means that when the [continuity] is broken up, attention slackens, and certain signs of laxity appear. That is called *suki* or crack. 
+
+So you completely concentrate on taking care of your breath, becoming one with breath. And then simultaneously, by the regulation of the breath, you are closely related with *total personality*, very naturally, because physically [...] very well. 
 
 That’s why if you concentrate, which is called practicing *samadhi* (one-pointedness), through the regulation of the body and the regulation of the breath, you can very naturally experience calmness, tranquility. And then you experience enlightenment, the highest [spirit] of life. 
 
