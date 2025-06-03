@@ -196,7 +196,9 @@ So regulating the body – it’s not so easy, because you have your own posture
 
 It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. 
 
-There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. Physical pain is in the mind, [up here]. Even though it is natural.
+There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. 
+
+Physical pain is in the mind, [up here]. Even though it is natural.
 
 #### 40:42
 
