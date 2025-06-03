@@ -18,8 +18,8 @@ This is very much a work in progress. I will update this page as I transcribe ta
 
 > The Way is originally perfect and all-pervading. 
 
-- Katagiri Roshi translates this as, “The origin of the way is perfect and all-pervading.” See [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [56:36](1979-06-09-Fukanzazengi-Talk-1#5636), and also the start of [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2”](1979-06-10-Fukanzazengi-Talk-2).
-- "The Way" is *tao* or *dao* (道), or in Japanese transliteration, *dō*. Dōgen Zenji’s name  – *Dō*-*gen* (道元) – means “Way Origin.”
+- Katagiri Roshi translates this as, “The origin of the way is perfect and all-pervading.” See [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [56:36](1979-06-09-Fukanzazengi-Talk-1#5636), and also the start of [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2”](1979-06-10-Fukanzazengi-Talk-2) and at [34:20](1979-06-10-Fukanzazengi-Talk-2#3420).
+- "The Way" is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 - For an explanation of what “the Way” actually means in Buddhism, perhaps the best place to start is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), from the beginning, followed by the whole [“Principles of Practice”](principles-of-practice) series. Although, perhaps unsurprisingly, “the Way” is discussed in many of Katagiri Roshi’s other talks! In the future I may add more references here.
 
 > How could it be contingent on practice and realization? 

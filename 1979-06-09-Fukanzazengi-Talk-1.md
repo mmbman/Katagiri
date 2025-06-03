@@ -165,7 +165,7 @@ And next, the *gut system*. (The *internal organ system*.) For this, Dōgen Zenj
 
 (*Transcriber’s Note:* The next paragraph is very hard to make out.)
 
-Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It’s going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gasoline] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* slow down, [...] that is the way it is. Sometimes you have to accept it.
+Actually, your heart, your lungs, and hormone system, or your intestines, your stomach, are completely beyond your control. It’s going on. Even though your heart is beating, *[unintelligible]* slow down, and then you put the [gasoline] into it and try to get the energy – you cannot do it. So when you see the heart slowing down, *[unintelligible]* slow down, [that is the way it is]. Sometimes you have to accept it.
 
 But there is one thing which you can control, and that is the breath. And the breath really influences the whole system: all the systems of the hormones, and the lungs, and the heart, everything. That's why we try to concentrate on the breath, taking care of the breath. At that time, all your guts work very naturally. The circulation of your blood is pretty good, [your pulse] is pretty good, and your heart is beating normally, very naturally.
 
