@@ -18,7 +18,7 @@ Katagiri Roshi reviews the six-component system for understanding zazen that he 
 
 #### 0:00
 
-**Katagiri Roshi:** ... Whatever kind of questions you have about the subject I mentioned yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
+**Katagiri Roshi:** ... Whatever kind of questions you have about the subject I talked about yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
 
 Well, let’s think of what I said yesterday. If what I said yesterday is graphically shown – well, I will show it, okay?
 
@@ -50,15 +50,17 @@ But it doesn’t mean that we destroy circumstances; circumstances are existent,
 
 [The] point is, usually we are completely tossed away by circumstances. That’s why Dōgen says that in zazen, we have to first be free from circumstances. That’s why we have to throw away, cease all affairs and all involvements. This is the first thing we have to do. 
 
-And then, second, he mentions that we have to make arrangement of the sensory world. So, let’s [...] choose the room: not dark, not bright. That is the sensory world. 
+And then, second, he mentions that we have to make arrangement of the sensory world. So, let’s [choose] the room: not dark, not bright. That is the sensory world. 
 
-And also there is regulation of the body: so we have to have full lotus or half lotus position, and hands in the position of the *mudra*. And also, finally, we have to sit in the proper way, immobile. 
+And also there is regulation of the body: so we have to have full lotus or half lotus position, and hands in the position of the *mudra*. And also, finally, we have to sit in the proper way, *immobile*. 
 
-Even though you sit quietly, your body is always shaking and moving, because there is a certain gap between zazen and you. That is what is called *suki* (隙) in Japanese. [*Suki*] is a crack, or a [pivot]; a crack between the two objects. Immediately you can see mental or psychological agitation, so mental or psychological agitation immediately becomes the physical wave. That’s why if you sit quietly, you don’t see [it], but actually you always move. 
+Even though you sit quietly, your body is always shaking and moving, because there is a certain gap between zazen and you. That is what is called *suki* (隙) in Japanese, [...] a crack, or a [pivot]; a crack between the two objects. Immediately you can see mental or psychological agitation, so mental or psychological agitation immediately becomes the physical wave. That’s why if you sit quietly, you don’t see [it], but actually you always move. 
 
-So, sit in the proper way, *immobile*. And *immobile* means just sit physically, and also mentally, psychologically, you must be completely one with sitting. Because if you have a mental, psychological gap, slip, or crack between two objects, you and zazen, it means that, when attention slackens, certain signs of laxity appear. That is called *suki*, or crack [...]. And then immediately, your body is moving. 
+So, sit in the proper way, *immobile*. And *immobile* means just sit physically, and also mentally, psychologically, you must be completely one with sitting. 
 
-So that means it’s not *real* zazen; the continuity is broken up. At that time, you can create *suki*. That is mental or psychological agitation. That’s why we have to do zazen with what? Not with the mind first, but with the body: legs, hands, and the whole body. But [the body] is very closely related related with mind, number five. That’s why if there is [a] mental, psychological crack, the body shows something.
+Because if you have a mental, psychological gap, slip, or crack between two objects, you and zazen, it means that when attention slackens, certain signs of laxity appear. That is called *suki*, or crack [...]. And then immediately, your body is moving. So that means it’s not *real* zazen. The continuity is broken up; at that time, you can create *suki*. That is mental or psychological agitation. 
+
+That’s why we have to do zazen with what? Not with the mind first, but with the body. Legs, hands, and the whole body. But [the body] is very closely related related with mind, number five. That’s why if there is [a] mental, psychological crack, the body shows something.
 
 So if you do zazen, immediately that is really closely connected with number six, [total personality.] Because if you become one with zazen physically, there is no sign of oneness between zazen and you. Very naturally, there is no sign of concentration. That means you are connected with number six: manifestation of total personality. You can manifest very naturally. 
 
