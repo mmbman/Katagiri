@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1"
 
 ### Summary
 
-Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendation for practicing zazen (seated meditation), by examining the meaning of the line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding and practicing zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *belief* or *faith*, which is understood differently from how Westerners often hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha-nature*. 
+Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s universal recommendation for practicing zazen (seated meditation), by examining the meaning of the line, “For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” He introduces a six-component system for understanding zazen, and also the three core points of *samadhi*, *egolessness*, and *no design on becoming Buddha*. Another important point is *faith* or *belief*, which is understood somewhat differently from how Westerners often hear those words. By arranging circumstances and practicing these points, we can sit down in the core of our *total personality*, which is *buddha-nature*. 
 
 ### Transcript
 
@@ -33,7 +33,7 @@ Or, particularly when you get angry, or when you're confused, very naturally you
 
 In other words, if you do *gassho*, or sometimes, religiously speaking, you pray to God, you pray to the Bodhisattvas, you pray to Avalokiteshvara: “Please help me. Please help.” And at least while you are praying to God, or you are praying to the Buddha, or Bodhisattva Avalokiteshvara, Manjushri – or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
 
-But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others, so you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
+But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
 
 But when you do zazen, or when you pray to God, “Please help me” – even though you don't know how to deal with anger, you pray to God, “Please help me” – why do you pray to God? Does God help you? Does God take away your anger? I don't think so!
 
@@ -193,13 +193,19 @@ That means the practice of *egolessness*; selflessness.
 
 If your mind really attaches to good or bad or neutral, immediately here are thoughts, views, wishes. And thoughts, views, wishes create the dualistic world. Some go this way, some go that way; always going back and forth. And sometimes, [stopping]. [But] even though you can stop for a while, you cannot stop always, so you start to move to the right, to the left again. That is the dualistic world. 
 
-Finally, you don't know *what* to do; and you are really disappointed in your life. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. Or on the other hand, Dōgen Zenji says, there is *distraction*. Distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. 
+Finally, you don't know *what* to do; and you are really disappointed in your life. That is what is called *dullness*. Dullness is sort of completely sinking into the bottom of the ocean. 
+
+Or on the other hand, Dōgen Zenji says, there is *distraction*. Distraction is that your mind is scattering in all directions. Even though you sit down here, your mind is going to Japan, to India, to Europe, and [all over]. That is distraction. 
 
 So finally, you don't know what to do. Whatever kind of delusion, [either] dullness or distraction, both distract your activities, [your life]. Settling yourself in the self is very difficult. 
 
 So finally, we have to practice regulating the mind. That regulation of the mind is the practice of *egolessness*. 
 
-But how can you practice egolessness? Dōgen Zen Master says, “If you really simply forget your body and mind, you should throw away yourself into the house of Buddha.” That means, you should throw yourself away... to something. That *to something* is to your object. But this object is not merely an object, this is the house of the Buddha. 
+But how can you practice egolessness? 
+
+Dōgen Zen Master says (in *Shōji*, “Life and Death”): if you really simply forget your body and mind, you should throw away yourself into the house of Buddha.
+
+That means, you should throw yourself away... to something. That *to something* is to your object. But this object is not merely an object, this is the house of the Buddha. 
 
 So first of all, if you want to deal with this book [for example], you have to throw away yourself into this book. But this object is not the book; this book is Buddha. So to throw away yourself into this book means to throw away yourself into the house of Buddha. That means deal with the book, as well as dealing with your life, so you can deal with this book with *compassion*. It's really compassion. At that time, the book really teaches you something. 
 
@@ -207,7 +213,7 @@ So that is egolessness.
 
 And also, if you throw yourself away, your body and mind, into the house of the Buddha, at that time, Dōgen Zen Master says:
 
-> When functioning comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in any one's mind.
+> ... when functioning comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in anyone's mind.
 
 [That] means if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very naturally; simultaneous. 
 
@@ -235,7 +241,7 @@ So if you really want to accomplish one thing which you want to do, you have to 
 
 The young kids are listening to the radio and also studying and also trying to accomplish one thing – it seems to be good, but it's not the real accomplishment of doing one thing that you want to do. So if you really want to accomplish one thing with your wholeheartedness, it is very natural that you make arrangement of circumstances. This is a very natural attitude [toward] life. That's why Dōgen Zenji says, “Cease all involvement. Throw away all affairs.” Don't worry about a certain sound of the cars; anyway, throw away. 
 
-How can you throw away? *Simplify*. You should simplify your activity, [simplify the relationship with] yourself and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. [...] How can you simplify? Let's practice *samadhi*. *Samadhi* is one-pointedness. If you practice one-pointedness, there is *egolessness*. Let egolessness simplify your life. [Manifest simplicity,] simplify your life. Because [then] you can offer yourself into the object: zazen, or study, et cetera. 
+How can you throw away? *Simplify*. You should simplify your activity, [simplify the relationship between] yourself and object. See the relationship simplified between you and zazen, or study, or playing guitar, or whatever. [...] How can you simplify? Let's practice *samadhi*. *Samadhi* is one-pointedness. If you practice one-pointedness, there is *egolessness*. Let egolessness simplify your life. [Manifest simplicity,] simplify your life. Because [then] you can offer yourself into the object: zazen, or study, et cetera. 
 
 And then, completely simplified, unified, that is what is called *harmonious*. Or *regulating*; we use the term regulating. *Regulating* is not to destroy, not to move from one to another. Regulating means [that you know] many things around us. First, accept [them], and [then], how to *arrange* them; how to use the circumstances, the sensory system, movement system, and guts, and also the brain-nerve system, whatever it is. And then, let's sit down in the core of your total personality. That is buddha-nature. And then this total personality, which is called buddha, is completely perfect and all-pervading. Dōgen Zenji says, “The origin of the way is perfect and all-pervading.” 
 
@@ -245,7 +251,7 @@ And then, even though you don't understand, total personality is perfectly peace
 
 This is *belief*. Belief really helps your activities, your practice. Belief is really helpful.
 
-So I told you three important points, but there are four important points. First, *belief*. That is *faith*. Faith is total acceptance that your original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved. And, you grow, very naturally. This is the faith.
+So I told you three important points, but there are four important points. First, *belief*. That is *faith*. Faith is total acceptance that your original, total personality is perfectly peaceful, harmonious. That is a huge tree. When you are there, you are saved. And, you grow, very naturally. This is faith.
 
 And then, if you are under the huge tree, and saved, at that time that is called *salvation*. If salvation is experienced directly, that is *enlightenment*. 
 
@@ -259,7 +265,7 @@ So the important point is arrangement of our circumstances: how to use the weeds
 
 #### 1:05:26
 
-So, that is the conclusion of the main subject in [*Fukanzazengi*]. That's why Dōgen Zenji says that if you do zazen according to what he mentions, very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is really the zazen we always do. 
+So, that is the conclusion of the main subject in [*Fukanzazengi*]. That's why Dōgen Zenji says that if you do zazen according to what he [says], very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is really the zazen we always do. 
 
 If you believe that by the zazen “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony. Because if you believe *that*, zazen is always something far from you. And not only zazen – you accept yourself as sort of an unhappy person, so you yourself are also a person far from the real person; opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult [for you] to deal with zazen and whatever you do. So, that is not [the] practice for us.
 
