@@ -67,15 +67,19 @@ This is very much a work in progress. I will update this page as I transcribe ta
 - In [“Principles of Practice, Talk 5: Direct Transmission”](1986-03-23-Principles-of-Practice-Talk-5), the backward step is also considered as *reflection*, in relation to *ignorance*.
 - Another translation is “to learn that one withdraws one step and turns the light inward on oneself.” In [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life), Katagiri Roshi discusses the backward step of *ekō henshō* in relationship to the word *ekō* which means “dedicating the merit.” To be honest, I’m not quite sure what’s going on there yet. More to follow.
 
-> Body and mind of themselves will drop away, and your original face will manifest. 
+> Body and mind of themselves will drop away, ...
 
 - “Body and mind of themselves will drop away” is extensively discussed in the [*Fukanzazengi*](fukanzazengi) series. Particularly see the beginning of [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4): “In shikantaza, all delusions drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself.” And also: “Dōgen Zenji says, ‘Zazen is dropping off body and mind.’ Remember this. In your whole life, you should remember: ‘Zazen is dropping off body and mind.’ It means all delusions drop off.” 
 - “Body and mind dropping off” is discussed from the standpoint of Buddhist psychology in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6).
 - Another clear reference is in [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4): “So that is, if you put your body *right there*, then you can drop off your body and mind, drop off, you can be free from the root of discriminating mind. That means you can be exactly one with the very minute vibration of the mind. And then, no concept of the minute vibration of the mind.”
 - Or, see [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind). This is an important talk where dropping off body and mind is discussed in relation to *compassion*.
-- “Original face” is discussed in connection with *total personality* and *buddha-nature* at the beginning of [“*Fukanzazengi* – Talk 2”](1979-06-10-Fukanzazengi-Talk-2). See also [“*Fukanzazengi* – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [1:16:36](1979-06-14-Fukanzazengi-Talk-6#11636), and [“Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2”](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) after [1:00:05](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#10005). 
 - “Dropping off body and mind” is closely related to “from the first, dullness and distraction are struck aside.” See the notes for “dullness and distraction are struck aside” below, closer to the end.
 - A good search term in KR’s talks is “drop off.” There are many references to things that “drop off”: delusions, dullness and distraction, verbal explanations, all unwholesome things, all unwholesome human behaviors, thought and discursive thinking, ideas, the “concept of wondrous practice which you have realized” ... and so on.
+
+> ... and your original face will manifest. 
+
+- “Original face” is discussed in connection with *total personality* and *buddha-nature* at the beginning of [“*Fukanzazengi* – Talk 2”](1979-06-10-Fukanzazengi-Talk-2). See also [“*Fukanzazengi* – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [1:16:36](1979-06-14-Fukanzazengi-Talk-6#11636), and [“Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2”](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) after [1:00:05](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#10005). 
+- Just as “dropping off body and mind” is closely related to “from the first, dullness and distraction are struck aside,” “your original face will manifest” is closely tied to “the right dharma is manifesting itself.” This is implied in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1); where it’s discussed as “the original nature of the self is manifesting” and “manifesting the original nature of existence.”
 
 > If you want to realize such, get to work on such right now.
 
@@ -114,7 +118,11 @@ This is very much a work in progress. I will update this page as I transcribe ta
 
 - “Breathe gently through your nose” is discussed as “arrangement of the internal organ system”; see “eat and drink moderately,” above.
 
-> Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen.
+> Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. 
+
+- “Settle into steady, immovable sitting” might be translated as “sitting in zazen silently and immobile.” See [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (39:42)](1979-06-09-Fukanzazengi-Talk-1#3942).
+
+> Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen.
 
 - “Don’t think anything” is “think not-thinking”: see [“*Diamond Sutra*, Talk 8: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being”).
 - For *shujo shin* (“one-mind”) as *non-thinking*, see [“*The Awakening of Faith* – Talk 33”](1986-03-07-Awakening-of-Faith-Talk-33).
