@@ -18,7 +18,9 @@ Katagiri Roshi reviews the six-component system for understanding zazen that he 
 
 #### 0:00
 
-**Katagiri Roshi:** ... Whatever kind of questions you have about the subject I talked about yesterday, this morning I would like to discuss them. Do you remember? Did you have some questions while I was talking about that yesterday?
+**Katagiri Roshi:** ... Whatever kind of questions you have about the subject I talked about yesterday, this morning I would like to discuss them. 
+
+Do you remember? Did you have some questions while I was talking about that yesterday?
 
 Well, let’s think of what I said yesterday. If what I said yesterday is graphically shown – well, I will show it, okay?
 
@@ -78,7 +80,7 @@ And then fourth, if you do zazen concentrating with [the] breath, that regulatio
 
 Because when you exhale it’s pretty easy to create a mental, psychological crack. Through the psychological crack, [you think] there is something missing, because that mental crack means that when the [continuity] is broken up, attention slackens, and certain signs of laxity appear. That is called *suki* or crack. 
 
-So you completely concentrate on taking care of your breath, becoming one with breath. And then simultaneously, by the regulation of the breath, you are closely related with *total personality*, very naturally, because physically [...] very well. 
+So you completely concentrate on taking care of your breath, becoming one with breath. And then simultaneously, by the regulation of the breath, you are closely related with *total personality*, very naturally, because physically [this goes] very well. 
 
 That’s why if you concentrate, which is called practicing *samadhi* (one-pointedness), through the regulation of the body and the regulation of the breath, you can very naturally experience calmness, tranquility. And then you experience enlightenment, the highest [spirit] of life. 
 
@@ -110,11 +112,11 @@ So, this regulation of the mind doesn’t connect with this. Of course, it conne
 
 #### 22:51
 
-Usually, there is always some attachment. [People say,] “Zazen is for the sake having the experience of enlightenment.” Any kind of book says it in that way. “Do zazen so you can attain enlightenment.” Or, “Zazen makes you strong.” Or, “Zazen makes you happy.” Et cetera. [They] always say so. “By the regulation of the body and regulation of the breath, you can preserve physical and mental health.” That is [that] zazen is seen as a means. 
+Usually, there is always some attachment. [People say,] “Zazen is for the sake having the experience of enlightenment.” Any kind of book says it in that way: “Do zazen so you can attain enlightenment.” Or, “Zazen makes you strong.” Or, “Zazen makes you happy.” Et cetera. [They] always say so. “By the regulation of the body and regulation of the breath, you can preserve physical and mental health.” That is [that] zazen is seen as a means. 
 
 But in *shikantaza*, there is no sense which is called *for the sake of*. “If you do zazen, you will be healthy, mentally, psychologically, or physically” – nothing to say. All you have to do is practice samadhi, through the regulation of the body, through the regulation of the breath. And then at that time, there must be the practice of egolessness, based on no design on having any reward. So that’s why finally there is something left, which is called actual practice, activity. That’s all. 
 
-This is *shikantaza*. *Shikan* *taza*. *[He writes it on the board.]* That is really Buddha’s zazen – as a religion. Not philosophical, not psychological. That shikantaza is Buddha’s zazen, religious zazen. 
+This is *shikantaza*. *Shikan*-*taza*. *[He writes it on the board.]* That is really Buddha’s zazen – as a religion. Not philosophical, not psychological. That shikantaza is Buddha’s zazen, religious zazen. 
 
 *Taza* is just to hit right in the middle of the head of zazen. Completely beyond whether you can know or you can’t know, you have to hit it. That is just to practice. *Taza* is just *doing*. *Actually you have to do it*, right now, right here. 
 
@@ -124,9 +126,9 @@ That’s what I said yesterday. So, if you have questions about this, please, le
 
 *[There is a sound of seats being rearranged. Katagiri Roshi returns to his seat.]*
 
-So, that’s why yesterday I said, as Dōgen Zenji says, “Dharma is manifesting itself and from the first, dullness and distraction are struck aside.” How can you do it? If you practice like this, immediately dullness and distraction from the first are struck aside. They drop off, very naturally. 
+So, that’s why yesterday I said, as Dōgen Zenji says, “Dharma is manifesting itself and from the first, dullness and distraction are struck aside.” How can you do it? If you practice like this, immediately dullness and distraction from the first are struck aside. They drop off, very naturally. So very naturally, *total personality* appears. 
 
-So very naturally, *total personality* appears. But the problem is, you cannot perceive what it is. That’s a problem. Because mind is always wanting to poke its head into the hole, whatever you do. Like a cat! That is characteristic of mind: analyzing, synthesizing.
+But the problem is, you cannot perceive what it is. That’s a problem. Because mind is always wanting to poke its head into the hole, whatever you do. Like a cat! That is characteristic of mind: analyzing, synthesizing.
 
 Do you have any questions?
 
@@ -144,7 +146,7 @@ Although, there are lots of environments. Some environments are connected with y
 
 For instance, we are in America. We don’t know what’s happening in Japan. But Japan is an environment – connected indirectly. Consciously or unconsciously, everything is connected. 
 
-That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? Well, for instance: *Paris*? I have never been in Paris. *[He laughs.]* But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
+That’s why if you do zazen, immediately you think something which you have never thought. Don’t you think so? For instance: *Paris*? I have never been in Paris. *[He laughs.]* But when I sit zazen, immediately Paris appears in my head. Because I know [about it], maybe. So Paris is also one of the environments for me.
 
 So cut off all things. “Cut off” means [in their place,] put them aside. You cannot destroy them. 
 
@@ -164,7 +166,7 @@ So cut off all things. “Cut off” means [in their place,] put them aside. You
 
 **Same person:** Oh yes.
 
-**Katagiri Roshi:** Oh, it’s very easy. So that’s why, according to zazen we can make arrangement of those five, or at least four. And then immediately, you can get a chance to manifest total personality, because all circumstances are perfectly arranged. 
+**Katagiri Roshi:** Oh, it’s very easy. So that’s why according to zazen, we can make arrangement of those five, or at least four, and then immediately you can get a chance to manifest total personality, because all circumstances are perfectly arranged. 
 
 For instance, if you want to feel comfortable, you cannot get a comfortable feeling without making arrangement of the environment. Lots of environments: number one, number two, number three, number four. So anyway, first of all make arrangement. That is a point. Instead of escaping, or attaching, or destroying, et cetera. 
 
@@ -188,7 +190,9 @@ That’s why Dōgen Zenji says that Buddhist faith – if you believe total pers
 
 So it’s pretty easy, in a sense. But in a sense, according to the six consciousnesses, it’s pretty hard. Because through the six consciousnesses we can understand our life according to the huge pile of experiences which we have accumulated. *[He laughs.]* That’s why it’s pretty hard. 
 
-So regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? So basically, it’s very easy: just do it. Just, proper posture. But it’s not easy, because you already have your own posture, and also you already have your [own] sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
+So regulating the body – it’s not so easy, because you have your own posture. From where does that posture come? You have accumulated it from the past. But, here is the proper posture: why don’t you do it? So basically, it’s very easy: just do it. Just, proper posture. 
+
+But it’s not easy, because you already have your own posture, and also you already have your [own] sense. You don’t like pain, you don’t like being uncomfortable; that is our preconception. That’s why if we try to have proper posture, we don’t feel good. From this sense, it’s pretty hard. But it’s not pretty hard: proper posture is just proper posture.
 
 **Same person:** In terms of the senses, it seems like zazen is *not* natural. It seems like [...] when your legs are hurting badly, that’s your body naturally telling you that something is wrong. You know, the pain is a sign that there’s something wrong. And so from a sensory point of view, it doesn’t seem very natural. 
 
