@@ -122,7 +122,7 @@ This is very much a work in progress. I will update this page as I transcribe ta
 
 > Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. 
 
-- “Settle into steady, immovable sitting” might be translated as “sitting in zazen silently and immobile.” Here *immovable* or *immobile* has a meaning beyond simply staying still physically, because mind and body are closely connected. This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1).
+- “Settle into steady, immovable sitting” might be translated as “sitting in zazen silently and immobile.” Here *immovable* or *immobile* has a meaning beyond simply staying still physically, because mind and body are closely connected. This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 2”](1979-06-10-Fukanzazengi-Talk-2): “*Immobile* means just sit physically, and also mentally, psychologically, you must be completely one with sitting.”
 
 > Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen.
 
