@@ -190,7 +190,9 @@ It makes you confused sometimes, but this is very nice practice for you. *[Laugh
 
 But practically, it’s very simple, very simple, because you have to return home, and settle in peace and harmony. Where is home? *[Unintelligible.]* This is zazen. 
 
-But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. So if you seek something going out of yourself, out of your home, well it’s fine, but it makes you busy, that’s all, running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony, and then you say, “Oh, this is [alright].” This is our point. That’s all. The basic practice is very simple, very simple.
+But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. 
+
+So if you seek something going out of yourself, out of your home, well it’s fine, but it makes you busy, that’s all, running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony, and then you say, “Oh, this is [alright].” This is our point. That’s all. The basic practice is very simple, very simple.
 
 But it takes time, returning to home and settling in the self. Until you understand this, penetrating the skin, muscle, bone, and marrow, it takes time. Intellectually, we understand pretty well: “Oh yes, that’s all. I want to go back to my home.” Everyone understands this. But it takes time until it penetrates and becomes one with your skin, muscle, bone, and marrow. 
 
