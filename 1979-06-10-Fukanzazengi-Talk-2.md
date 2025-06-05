@@ -200,7 +200,7 @@ But it’s not easy, because you already have your own posture, and also you alr
 
 It’s not masochism, okay? *[The group laughs.]* Don’t misunderstand. 
 
-There is physical ache, physical pain... well, it’s pain. So, it’s not necessary to commit suicide. *[He laughs.]* “Physical pain is in the mind.” Even though it is natural.
+There is physical ache and physical pain... well, it’s pain. So, it’s not necessary to commit suicide, *[he laughs,]* [saying,] “Physical pain is in the mind.” Even though it is natural.
 
 #### 40:42
 
@@ -216,7 +216,7 @@ There is physical ache, physical pain... well, it’s pain. So, it’s not neces
 
 **Katagiri Roshi:** *Regulating* is not control. 
 
-Basically, we have to regulate what? Body and breath. These are something we have to do [at a] minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, and many things. But they are just a [bump]. But our mind attaches to it. If you see that: “Oh, that’s good,” “that’s bad.” But without mind, if you let it go, [it’s just a bump]; come back. If you see the sleep: “Oh, it’s sleep.” If you see it, just sleep. If you realize. Awareness is important, okay? And then, [adjust]. That’s why there is number three, regulation of the body: sitting in the proper way, and *immobile*. It means sitting with the body and also *mind*, which leads you to awaken totally [to] anything.
+Basically, we have to regulate what? Body and breath. These are something we have to do [at a] minimum in zazen. Number one, number two, regulating. At that time, many things happen: sleep or not sleep, dizziness, fantasies, and many things. But they are just a [bump]. But our mind attaches to it. If you see that: “Oh, that’s good,” “that’s bad.” But without mind, if you let it go, [it’s just a bump]. Come back. If you see the sleep: “Oh, it’s sleep.” If you see it, just sleep, if you realize. Awareness is important, okay? And then, [adjust]. That’s why there is number three, regulation of the body: sitting in the proper way, and *immobile*. It means sitting with the body and also *mind*, which leads you to awaken totally [to] anything.
 
 That’s why at that time, the mind is very sharp. Immediately you catch something which happens – sleep or not sleep, dizzy or some other condition. Between sleep and waking up, you can realize. If you see the sleep, just awake. All we have to do is regulate the body; that means, let’s sit down, right now, right here, [totally in your body]. The mind immediately attaches to it and gets it – good or bad, right or wrong. Awareness is just see, and correct, adjust. [That’s] just the total dynamic working. That is awakening, that is wisdom: see, and adjust. Regulate. 
 
@@ -254,7 +254,7 @@ Is that something wrong?
 
 **Katagiri Roshi:** [Use] enormous effort, but we cannot continue *enormous* effort. So, sometimes [use effort]; don’t attach to enormous effort constantly. Sometimes enormous effort makes you exhausted. At that time, forget it! Just *relax*, okay? *[The group laughs.]* Just relax! And [...] taking a breath, and short breath, and long breath. Letting [it] go. 
 
-And then, [for a while,] you take a breath very naturally, as naturally as you can. And then, your mind [is getting] calm. Maybe it takes an hour? Maybe two hours. Maybe a day. It’s okay. 
+And then, [for a while,] you take a breath very naturally, as naturally as you can. And then your mind [is getting] calm. Maybe it takes an hour? Maybe two hours. Maybe a day. It’s okay. 
 
 And then if your mind is very relaxed, let’s return.
 
