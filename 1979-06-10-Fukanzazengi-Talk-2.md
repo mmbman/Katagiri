@@ -290,7 +290,7 @@ So, still there is effort. “Forget enormous effort” doesn’t mean completel
 
 **Katagiri Roshi:** Yes, it’s necessary, because that is the regulation of the body, regulation of the breath. Through the concentration, through *samadhi*, you can attain enlightenment. 
 
-But according to Rinzai, maybe that is the main purpose of zazen. Through zazen you have to attain enlightenment, that’s why the teachers [say to] push yourself hard. That means, you are buddha but you are not buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the dualistic world. And also zazen is seen in the dualistic world. 
+But according to Rinzai, maybe that is the main purpose of zazen. Through zazen you have to attain enlightenment, that’s why the teachers [say to] push yourself hard. That means, you are buddha but you are not buddha *now*, so why don’t you attain enlightenment? So, the subject is already seen in the dualistic world, and also zazen is seen in the dualistic world. 
 
 Of course, it is okay. But the final stage is [that] zazen and subject and object shouldn’t be seen in the dualistic world. We have to take care of subject and object according to *total personality*. We have to settle ourselves in total personality there, from the beginning to end. 
 
@@ -298,7 +298,7 @@ That means, finally, we have to do zazen with no design on having any reward. Th
 
 #### 54:47
 
-**Same person:** I was reading an account of Tibetan Buddhism, and the author was talking about Zen, and they were talking about the *purity* of Zen. You know, it sounds like you’re talking about Zen in a very pure sense of just entering nondualism. And they were saying that for very rare people, they can go into that very pure practice and get into it, but for say the typical American, who’s completely caught in dualism, they can’t just step into that kind of purity, they have to work on it step by step, and Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that’s what you’re saying, that me as an individual striving for enlightenment is already dualistic, and so you’re being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn’t that awfully hard?
+**Same person:** I was reading an account of Tibetan Buddhism, and the author was talking about Zen and they were talking about the *purity* of Zen. You know, it sounds like you’re talking about Zen in a very pure sense of just entering nondualism. And they were saying that for very rare people, they can go into that very pure practice and get into it, but for say the typical American, who’s completely caught in dualism, they can’t just step into that kind of purity, they have to work on it step by step, and Tibetan Buddhism gives you the various steps to work on, so you can get to that pure point. It sounds like that’s what you’re saying, that me as an individual striving for enlightenment is already dualistic, and so you’re being very pure about it. But maybe me as a person caught in the middle of duality, how can I get into that kind of purity? Isn’t that awfully hard?
 
 **Katagiri Roshi:** Well, that is not only Americans, but also Japanese, or whoever you are. But if you attain enlightenment in dualism, that enlightenment is nothing but dualistic enlightenment; that’s all. Don’t you think so? 
 
@@ -308,7 +308,7 @@ That means dualistic enlightenment is sort of [the] “dregs.” It’s pretty h
 
 **Katagiri Roshi:** No, I don’t think so. It seems to be good, wonderful, [in that little] things are encouraging people. But finally, if you attain enlightenment in the dualistic world, it’s nothing but enlightenment in the dualistic world. 
 
-For instance, I will show you calligraphy written by a first grade child who is an expert of calligraphy. So you should look at this and learn calligraphy. And then, this child tells you that you are great: master of calligraphy. Can you imagine? That is enlightenment. Don’t you think so? Do you understand?
+For instance, I will show you calligraphy written by a first grade child who is an expert of calligraphy. So you should look at this and learn calligraphy. And then, this child tells you that you are great: Master of Calligraphy. Can you imagine? That is enlightenment. Don’t you think so? Do you understand?
 
 **Same person:** No.
 
@@ -316,11 +316,13 @@ For instance, I will show you calligraphy written by a first grade child who is 
 
 **Katagiri Roshi:** A first grade child, who is a master of calligraphy. But a first grade child is a first grade child; they’re not a perfect master of calligraphy. So, in the realm of first grade children, he is a master, an expert. But he is still, well, a childish calligrapher. 
 
-[You say,] “This is interesting!” So [they] give you this example; you should practice with this, day after day, you should write [calligraphy]. Finally, this professional person says to you, “You have reached the highest level of calligraphy.” What is that? Do you understand? 
+[You say,] “This is interesting!” So [they] give you this example: you should practice with this. Day after day, you should write [calligraphy]. Finally, this professional person says to you, “You have reached the highest level of calligraphy.” 
+
+What is that? Do you understand? 
 
 **Same person:** No, I still don’t get your point.
 
-**Katagiri Roshi:** So that is the highest level of calligraphy you can reach – that is what? It’s perfect?
+**Katagiri Roshi:** So that is the highest level of calligraphy you can reach... that is what? It’s perfect?
 
 **Same person:** I don’t see it. 
 
@@ -338,9 +340,9 @@ For instance, I will show you calligraphy written by a first grade child who is 
 
 So it is different from, well, the great masters of calligraphy, the second grade and third grade. 
 
-And then, I believe that is interesting calligraphy, I like it. So, I want to practice it, again and again. And then finally, the kid says, “Katagiri, your calligraphy is good, so I will give you a certificate. You are Master of Calligraphy.” But look at this: this is nothing but the calligraphy written by a first grade child. The same, don’t you think? Do you understand?
+And then, I believe that is interesting calligraphy, I like it. So, I want to practice it, again and again. And then finally, the kid says, “Katagiri, your calligraphy is good, so I will give you a certificate. You are Master of Calligraphy.” But look at this: this is nothing but the calligraphy written by a first grade child. The same, don’t you think?
 
-**Another person:** And you’re comparing that story [to a] Zen teacher or teacher of meditation.
+**Another person:** And you’re comparing that story [to a] Zen teacher or teacher of meditation?
 
 **Katagiri Roshi:** Yes, that’s right. Sure, it’s a wonderful, wonderful calligraphy, but you don’t understand. But it’s universal, everyone understands “this is good” – [or] even if you don’t understand it is good, some great authority of calligraphy says, “This is the best in the world.” And then even if you don’t like it, look at this and write it, again and again. 
 
@@ -452,7 +454,7 @@ And also, after doing that, there is still something we have to do: that is *no 
 
 Because, the mind is still very sticky. When you concentrate, [when] you practice samadhi with body and mind, it seems to be very clear and simple. But still, mind is very sticky; attaching to [thinking].
 
-For instance, if I say “no design of having reward”: [then, I think,] “I did it.” *[He laughs.]* Immediately we say, “I got it! I am doing zazen in that way.” 
+For instance, if I say “no design of having reward”: [then I say,] “I did it!” *[He laughs.]* Immediately we say, “I got it! I am doing zazen in that way.” 
 
 For instance, here is a story. A monk who attained enlightenment tells the teacher, “I have [come] here without carrying anything at all. What shall I throw away? Because I [am carrying nothing].” 
 
