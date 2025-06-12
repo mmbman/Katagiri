@@ -10,9 +10,9 @@ Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Reco
 
 The text annotated here is the [Sōtōshū translation of *Fukanzazengi* (external link)](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many English-speaking Zen centers. Alternative translations by Katagiri Roshi are provided where they are available. 
 
-(No single English translation of *Fukanzazengi* should be taken as authoritative. For a comparison of six English translations of *Fukanzazengi*, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf). Or if that’s not enough, see the [twenty translations organized by Fábio Rodrigues](https://artecontemplativa.com/wp-content/uploads/2021/05/Fukan-Zazengi-Eihei-Dogen-20-translations-Fabio-Rodrigues.pdf). Or finally, check out [the translation at Confluence Zen Center](https://www.confluencezen.org/fukanzazengi/).)
+English translations of *Fukanzazengi* vary widely, and no single translation should be taken as authoritative. For a comparison of six English translations of *Fukanzazengi*, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf). If six isn’t enough, see the [twenty translations organized by Fábio Rodrigues](https://artecontemplativa.com/wp-content/uploads/2021/05/Fukan-Zazengi-Eihei-Dogen-20-translations-Fabio-Rodrigues.pdf). Beyond that, compare [the translation at Confluence Zen Center](https://www.confluencezen.org/fukanzazengi/).
 
-This is very much a work in progress. I will update this page as I transcribe talks and find additional references.
+This document is very much a work in progress. I will update this page as I transcribe talks and find additional references.
 
 ---
 
