@@ -20,21 +20,21 @@ Katagiri Roshi examines the meaning of the line “from the first, dullness and 
 
 **Katagiri Roshi:** [I want to] say something a little bit more about the subject I talked about yesterday. The subject was, “You must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.” I would like to explain a little more about the same subject from a different angle today, because this is a very important characteristic of the zazen we do, which is called *shikantaza*.
 
-Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become buddha. This was the first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn’t understand the meaning, but I was moved very much by this point: if you sit down, if you do zazen, shikantaza, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[He chuckles, and there is some quiet laughter.]* I was lucky, anyway. If I had had a big head, I couldn’t have accepted it. But I accepted it, totally. I was a lucky guy.
+Briefly speaking, I told you yesterday and the day before yesterday: if you do zazen even for a moment, you become Buddha. This was the first impression for me when I was at Eiheiji monastery, listening to a lecture given by Hashimoto Roshi. I didn’t understand the meaning, but I was moved very much by this point: if you sit down, if you do zazen, *shikantaza*, even for a moment, you become Buddha. I accepted it, totally – no question. I think now, I was lucky. *[He chuckles, and there is some quiet laughter.]* I was lucky, anyway. If I had had a big head, I couldn’t have accepted it. But I accepted it, totally. I was a lucky guy.
 
 #### 2:33
 
-Particularly [with regard] to *dullness* and *distraction*: dullness and distraction here are meant to exemplify all kinds of delusions. But according to the *Abhidharmakosha*, dullness and distraction are just [two] of the delusions. You can find them [on the list of dharmas] in the *Abhidharmakosha*: thirty-seven and thirty-eight say *dullness* and *distraction*. 
+Particularly [with regard] to *dullness* and *distraction*. “Dullness and distraction” here are meant to exemplify all kinds of delusions. But according to the *Abhidharmakosha*, dullness and distraction are just [two] of the delusions. You can find them [in the list of dharmas] in the *Abhidharmakosha*: thirty-seven and thirty-eight say *dullness* and *distraction*. 
 
 *Dullness* in Sanskrit is *styāna*. The translation says, “torpor, stiffness, or obduracy, stolidity, indifference. [...] Or sluggishness, languor, sloth.” Many translations. 
 
-And the other one is *distraction*: they present it in Sanskrit as *auddhatya*. That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
+And the other one is *distraction*: represented in Sanskrit as *auddhatya*. That means restlessness or agitation; restlessness of mind, recklessness, or frivolity, et cetera.
 
 But in *Fukanzazengi*, the dullness and distraction mentioned by Dōgen are meant to exemplify all kinds of delusions. So, if you do shikantaza, not only dullness and distraction [but] all kinds of delusions drop off from the first. This is shikantaza.
 
 First let me say a little bit about the meaning of dullness and distraction. Broadly speaking, dullness and distraction are states where the mind acts reactively, like the swing of a pendulum. The body and mind lose their state of equilibrium in either distraction or dullness, just like a pendulum. 
 
-It is represented as *konsan* in Japanese. *Kon* is dullness. *San* is distraction.
+It is represented as *kon san* in Japanese. *Kon* is dullness. *San* is distraction.
 
 The structure of the Chinese letter *kon* consists of two parts: one is *bottom*, the second is the sun. The sun sinks or sets at the bottom: complete darkness. So *kon* or dullness means the state in which the mind becomes gloomy and doesn’t work, as if the sun sets and the surroundings become completely dark. That is the meaning of *kon*, dullness.
 
