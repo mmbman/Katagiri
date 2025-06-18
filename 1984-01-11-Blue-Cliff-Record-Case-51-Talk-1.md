@@ -25,19 +25,19 @@ title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 1"
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-Hsueh Feng was one of the famous Zen masters in China in the 8th century or so... no, 9th century. Belonging to the Seigen Gyōshi lineage, in other words, Tozan Zen Master’s lineage. And also another person here in [the koan], Yen T’ou was in the relation of the brother with Hsueh Feng. Both came under the guidance of Tozan Zen master, who lived from 780 to 865. Both Hsueh Feng and Yen T’ou practiced for a long time under the guidance of Tozan Zen master. And the two monks in this case practiced under the guidance of Hsueh Feng. 
+Hsueh Feng was one of the famous Zen masters in China in the 8th century or so... no, 9th century. Belonging to the Seigen Gyōshi lineage, in other words, Tozan Zen Master’s lineage. And also another person here in [the koan], Yen T’ou was in the relation of [dharma] brother with Hsueh Feng. Both came under the guidance of Tokusan Zen Master (Deshan Xuanjian), who lived from 780 to 865. So both Hsueh Feng and Yen T’ou practiced for a long time under the guidance of Tokusan Zen master. And the two monks in this case practiced under the guidance of Hsueh Feng. 
 
-I think if you read the commentary, look at page 347, just the middle, it says, the fourth paragraph from the top:
+I think if you read the commentary, look at page 347 just a little, it says, the fourth paragraph from the top:
 
 > Later, due to a purge, Yen T’ou became a ferryman by the shores of Lake O Chu. On each shore hung a board: when someone wanted to cross, he would knock on the board. T’ou would call out, “Which side are you crossing to?” Then he would wave his oar and come out from among the reeds.
 
-From this paragraph, I think at this day Buddhism was about to be destroyed by a government. So that’s why here it says “later, due to a purge.” So all Zen monks had to come out of the temple and hide somewhere. So the same applied to Hsueh Feng and also Yen T’ou. 
+From this paragraph, I think [in these days] Buddhism was about to be destroyed by a government. That’s why here it says, “Later, due to a purge.” So all the Zen monks had to come out of the temple and hide somewhere. The same applied to Hsueh Feng and also Yen T’ou. In the story Yen T’ou became a ferryman, carrying the people from this shore to the other shore. 
 
-In this story Yen T’ou became a ferryman, carrying the people from this shore to the other shore. In Chinese Buddhist history sometimes you can find a very interesting point, because Chinese history went always up and down very roughly. And nevertheless, the history of Buddhism was not exceptional, so Buddhism also always was going up and down. Sometimes Buddhism flourished very well, but sometimes Buddhism was almost destroyed. So whatever happens, a very interesting thing was that Zen monks always survived, somewhere. And then after the peaceful world was coming up, then Zen monks came back, and they started to practice and study Buddhism again. 
+In Chinese Buddhist history sometimes you can find a very interesting point, because Chinese history always went up and down very roughly. And nevertheless, the history of Buddhism was not exceptional, so Buddhism also always was going up and down. Sometimes Buddhism flourished very well, but sometimes Buddhism was almost destroyed. But whatever happened, a very interesting thing was that the Zen monks always survived, somewhere. And then after the peaceful world was coming up, then the monks came back, and they started to practice and study Buddhism again. 
 
 So this is one pretty interesting case. Here it says “later due to a purge”: even though Yen T’ou became a ferryman, still people were interested in this ferryman. Sometimes people went to see him and discuss, listen to his life. 
 
-So in this case, Hsueh Feng also was hidden in the heart of the mountains, which was a little difficult for the people to find him. Maybe he lived in the heart of the mountains at the little hut, that’s why it says:
+So in this case, Hsueh Feng also was hidden in the heart of the mountains, which was a little difficult for the people to find him. Maybe he lived in the heart of the mountains in a little hut. That’s why it says,
 
 > When Hsueh Feng was living in a hut, ...
 
@@ -49,29 +49,29 @@ So he didn’t have his temple. But nevertheless, monks were interested in seein
 
 > Seeing them coming, he pushed open the door of the hut with his hand, popped out, and said, “What is it?”
 
-Anyway, Hsueh Feng [...] opened the door and he came out first, initiatively, and said, “What is it?” 
+Hsueh Feng [...] opened the door and he came out first, initiatively, and said, “What is it?” 
 
 > A monk also said, “What is it?”
 
-Usually most people were knocked over in a heap by the famous Zen master’s initiative remarks. Most of the monks couldn’t say anything after his remarks. But in this case, these monks were pretty good, because he said also, “What is it?” Immediately after Hsueh Feng said it, so just like a parrot imitating his words, but immediately the two monks said like this. Usually Hsueh Feng was a pretty famous and very powerful person, so most people became [like] a frog in front of the snake; most of the people couldn’t say anything. But they said the same words. 
+Usually most people were knocked over in a heap by the famous Zen master’s initiative remarks; most monks couldn’t say anything after his remarks. But in this case, this monk is pretty good, because he said also, “What is it,” immediately after Hsueh Feng said it. So just like a parrot imitating his words, but immediately the two monks said [it] like this. Hsueh Feng was a pretty famous and very powerful person, so usually most people became [like] a frog in front of the snake; most of the people couldn’t say anything. But they said the same words. 
 
 So, after that, 
 
 > Feng lowered his head and went back inside the hut.
 
-So maybe this is pretty meaningful, [but for the monks,] they thought that Hsueh Feng probably accepted these two monks’ spiritual career through their message, so-called “What is it?” In other words, they believed that Hsueh Feng accepted their spiritual career and respect, without saying, so that’s why Hsueh Feng bowed and went back to his hut. That means the two monks really believed that they were pretty good, that’s why Hsueh Feng accepted them. 
+So maybe this is pretty meaningful. [But] they thought that Hsueh Feng probably accepted these two monks’ spiritual career through their message, so-called “What is it?” In other words, they believed that Hsueh Feng accepted their spiritual career and [respected them] without saying, so that’s why Hsueh Feng bowed and went back to his hut. That means the two monks really believed that they were pretty good, that’s why Hsueh Feng accepted them. 
 
-But still, that’s why they really couldn’t forget Hsueh Feng’s acceptance. So, someday they wanted to make sure whether Hsueh Feng’s acceptance was true or not by another Zen master. That’s why,
+But still, that’s why they really couldn’t forget Hsueh Feng’s acceptance. So, someday they wanted to make sure whether Hsueh Feng’s acceptance was true or not, by another Zen master. That’s why,
 
 > Later the monk came to Yen T’ou. T’ou asked, “Where are you coming from?” The monk said, “I’ve come from Ling Nan.” T’ou said, “Did you ever go to Hsueh Feng?” The monk said, “I went there.” T’ou said, “What did he have to say?” 
 
-If you went to see Hsueh Feng, what did you learn? If you learned something, what did he say? So, T’ou said, “What did he have to say?” 
+[In other words,] if you went to see Hsueh Feng, what did you learn? If you learned something, what did he say? 
 
-But the monk didn’t say anything about this question, but,
+So, T’ou said, “What did he have to say?” But the monk didn’t say anything about this question, but:
 
 > The monk recounted the preceding story. 
 
-They repeated the stories that they had at Hsueh Feng’s hut. 
+They repeated the stories that they had had at Hsueh Feng’s hut. 
 
 So, the monk recounted the preceding story, [and] 
 
@@ -81,33 +81,33 @@ It’s not all he wanted to know. T’ou wanted to know what Hsueh Feng said. So
 
 > The monk said, “He said nothing; ...” 
 
-Still these monks didn’t understand exactly. Even though they believed that Hsueh Feng might accept these two monks’ spiritual career, still there was something vague. That’s why they wanted to make sure of whether it was true or not. So, the monk said, “He said nothing; ...” 
+Still these monks didn’t understand exactly. Even though they believed that Hsueh Feng might accept these two monks’ spiritual career, still there was something vague, that’s why they wanted to make sure of whether it was true or not. So, the monk said, “He said nothing; ...” 
 
 > “... he lowered his head and went back inside the hut.”
 
-So, that means, anyway, the two monks really wanted to say something real they believed to Yen T’ou; that’s why they repeated the same situation. [But] T’ou understood pretty well why Hsueh Feng lowered his head and went back. Because, “What is it?” is not mainly question mark “What is it?” “What is it” in Buddhism is always pointing out real reality, real truth. Philosophically, we say *emptiness*. In other words, “What is it?” is an implication of the real word, which has no particular root, so-called emptiness. That is Hsueh Feng’s words, “What is it?” 
+So, that means, anyway, the two monks really wanted to say something real they believed to Yen T’ou; that’s why they repeated the same situation. [But] T’ou understood pretty well why Hsueh Feng lowered his head and went back. Because, “What is it?” is not merely question mark “what is it?” “What is it” in Buddhism is always pointing out real reality, real truth. Philosophically, we say *emptiness*. In other words, “what is it” is [the] implication of the real word, which has no particular root; so-called emptiness. That is Hsueh Feng’s words, “What is it?” 
 
-The two monks also said the same thing, but I don’t know how much they understood this one, because according to Yen T’ou statement in the next lines, the two monks seemed not to understand what it meant: 
+The two monks also said the same thing, but I don’t know how much they understood this, because according to Yen T’ou’s statement in the next lines, the two monks seemed not to understand what it meant: 
 
 > T’ou said, “Alas! It’s too bad I didn’t tell him the last word before; if I had told him, no one on earth could cope with old Hsueh.”
 
-“It’s too bad I didn’t tell him the last word before”: this is a really important point in this case. *The last word*: unfortunately Yen T’ou didn’t tell him the last word. That *last word* is completely beyond the word, before word and after word. *The last word* means, “What is it?” This is the last word. 
+“It’s too bad I didn’t tell him the last word before”: this is a really important point in this case. *The last word*; unfortunately Yen T’ou didn’t tell him the last word. That *last word* is completely beyond the word, [beyond] before word and after word. *The last word* means, “What is it?” This is the last word. 
 
 Even if you understand the truth, understanding of the truth is not the last word. Experience of the truth is not the last word. The last word is the truth itself. 
 
-For instance, no matter how long you say “fire” with your mouth, it is not the last word in order to understand what the fire is. Because, the word is word. So the last word of fire is “What is it?” “What is it.” The last word of fire is fire itself. Anyway, fire itself. 
+For instance, no matter how long you say “fire” with your mouth, it is not the last word in order to understand what the fire is. Because, the word is a word. So the last word of fire is “What is it?” “What is it.” The last word of fire is the fire itself.
 
 So, no matter how long you emphasize that you have a great career of experiencing the truth, or enlightenment, or ultimate truth – through zazen, through Buddhist practice, or through other religious experience and practice – it is not the last word. The last word is exactly “What is it?” “What is it?” 
 
-So that’s why Yen T’ou said here, “Alas, it’s too bad I didn’t tell him the last word before.” The last word is always there. Regardless of whether the world was born, or in the beginning of the word, or end of the word, or after or before the word, always there is the last word. 
+So that’s why Yen T’ou said here, “Alas, it’s too bad I didn’t tell him the last word before.” The last word is always there. Regardless of whether the world was born, or in the beginning of the world, or end of the world, or after or before the word, always there is the last word. 
 
 So, anyway, Yen T’ou says, “Alas! It’s too bad I didn’t tell him the last word before; if I had told him, no one on earth could cope with old Hsueh.” 
 
-Well, if you can tell the last word to somebody – that’s great. That’s great. In Sōtō Zen, it is called *dharma transmission*. Dharma transmission is really the last word we have to tell. 
+Well, if you can tell the last word to somebody – that’s great. That’s great. Well, in Sōtō Zen, it is called *dharma transmission*. Dharma transmission is really the last word. We have to tell [it]. 
 
-Well, plainly speaking, *the last word* for usual people is that it is the great sublimity of human life you have to transmit to next generations. It is not a teaching; it is not words. It is not something you have to give to somebody who doesn’t have it. Everyone has it. To *transmit* something is to take it out from individual, whom have this too, anyway, important thing. So, zazen gives you anything, but zazen helps you to realize the buddha-nature, zazen doesn’t give you the buddha-nature. Well, zazen gives anything to you. But zazen [...] helps you to realize what you have, how sublime your life is. That is the meaning of zazen. 
+Well, plainly speaking, *the last word* for usual people is the great sublimity of human life you have to transmit to the next generation. It is not teaching; it is not words. It is not something you have to give to somebody who doesn’t have it. Everyone has it. To *transmit* something is... to take it out from [the] individual, from who has this truth [or] important thing. So, zazen gives you anything. But zazen helps you to realize the buddha-nature, zazen doesn’t give you the buddha-nature. Well, zazen gives anything to you. But zazen [...] helps you to realize what you have, how sublime your life is. That is the meaning of zazen. 
 
-So, if you can realize how sublime your life is, that realization is supremely important. Nobody touches it. You alone know it. Clearly, very clearly. That is called, practically speaking, *spiritual security*. Usually [we’d use] “faith.” 
+So, if you can realize how sublime your life is, that realization is supremely important. Nobody touches it. You alone know it – clearly, very clearly. That is called, practically speaking, *spiritual security*. Well usually [we’d use] “faith.” 
 
 So, that’s why here it says, “If I had told him, no one on earth could cope with old Hsueh.” 
 
