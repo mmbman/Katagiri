@@ -313,29 +313,33 @@ Do you have any questions?
 
 **Questioner:** How wholehearted are we, is that what you’d say?
 
-**Katagiri Roshi:** [...] with your whole capability. Whatever you think, wholeheartedness is wholeheartedness. 
+**Katagiri Roshi:** [With all your might,] with your whole capability. Whatever you think, wholeheartedness is wholeheartedness. 
 
-Well we are always thinking... not thinking in pure sense, so-called *checking*. When you check something, always we think something else, more than checking. So, checking is not pure activity. 
+Well, we are always thinking... not *thinking* in a pure sense, so-called *checking*. When you check something, always we think something *else*, more than checking. So, checking is not pure activity. 
 
-For instance, when you are eating a meal, you don’t eat a meal in a pure sense. You always are thinking, or reading a magazine... *[he laughs]* or chatting with each other. So, when you eat the meal, just do your best, then eat the meal with wholeheartedness. Wholeheartedness means true heart. It means do something in a pure sense. That is undefiled practice.
+For instance, when you are eating a meal, you don’t eat a meal in a pure sense. You always are thinking, or reading a magazine, or... *[he laughs]* or chatting with each other. So, when you eat the meal, just do your best. Eat the meal with wholeheartedness. 
 
-Because the nature of consciousness is nothing but energy, anyway. So, when you deal with consciousness in a pure sense, consciousness becomes just great energy. In other words, you can return to the center of the consciousness. To deal with consciousness with wholeheartedness means you can return to the center of the consciousness. Okay? And then that is really energy, supporting you, helping you. 
+Wholeheartedness means true heart. It means do something in a pure sense. That is *undefiled practice*.
 
-For instance, when you do zazen, breathing. With your consciousness you check your breathing. Your consciousness should work in a pure sense with your breath. So, your breath is your consciousness. But when you return to the center of your consciousness, that is really energy helping your breath. So, breath very naturally supports your zazen, helps your zazen. 
+Because the nature of consciousness is nothing but energy, anyway. So, when you deal with consciousness in a pure sense, consciousness becomes just great energy. In other words, you can return to the center of the consciousness. To deal with consciousness with wholeheartedness means you can return to the center of the consciousness. Okay? And then that is really energy supporting you, helping you. 
+
+For instance, when you do zazen, breathing. With your consciousness you check your breathing. Well, your consciousness should work in a pure sense with your breath. So, your breath is your consciousness. But when you return to the center of your consciousness, that is really energy helping your breath. So, breath very naturally supports your zazen, helps your zazen. 
 
 **Question:** Would you answer the same way, Hojo-san, with self-preservation? 
 
 **Katagiri Roshi:** Hmm?
 
-**Questioner:** Would you say the same thing about self-preservation as well? [...] The thought about taking care of ourselves. That thought comes up a lot, [versus merging].
+**Questioner:** Would you say the same thing about self-preservation as well? [...] The thought about taking care of ourselves. That thought comes up a lot, versus merging.
 
-**Katagiri Roshi:** Yes, but not only the self preservation. Always if you realize self preservation, that is coming back to the center. Isn’t it? 
+**Katagiri Roshi:** Yes, but not only the self-preservation. If you realize self-preservation, that is coming back to the center. [Isn’t it]? 
 
 **Questioner:** Yeah.
 
-**Katagiri Roshi:** But on the other hand, you have to go out. So, no self preservation. At that time, self preservation is really helpful for you. 
+**Katagiri Roshi:** But on the other hand, you have to go out. So, no self-preservation. 
 
-But if you are always attached to self-preservation only, then it’s egoistic. Because always light and darkness, and just like forward and backwards. We have [to] return to the center, simultaneously we have energy to [go] up. So, two things simultaneously working. 
+At that time, self-preservation is really helpful for you. But if you always attach to self-preservation only, that is egoistic. 
+
+Because always light and darkness, and just like forward and backward steps. We have [to] return to the center, simultaneously we have energy to [go] up. So, two things simultaneously working. 
 
 #### 1:03:06
 
@@ -345,65 +349,67 @@ But if you are always attached to self-preservation only, then it’s egoistic. 
 
 **Questioner:** But, it seems to me there is different knowledge about the mountain itself. 
 
-**Katagiri Roshi:** Yes, so very naturally there is “grade and stages,” and all the mountain, a little mountain, quite different. 
+**Katagiri Roshi:** Yes, very naturally there is “grade and stages,” and an older mountain, a little mountain... quite different. 
 
-**Questioner:** But still, in that state, the oneness [...]
+**Questioner:** But still, it’s in that state that the oneness [...]
 
-**Katagiri Roshi:** Yes, whoever you are, whether you are expert or professional or not professional, when you climb the mountain [and] experience oneness, that oneness is oneness. Exactly the same. But still, there is a difference, because there are stages and grades, and the ages, and careers, and many things. 
+**Katagiri Roshi:** Yes, whoever you are, whether you are expert or professional or not professional, when you climb the mountain [and] experience oneness, that oneness is oneness, exactly the same. But still, there is a difference, because there are stages and grades, and the ages, and careers, and many things. 
 
-Even though a first grade child experiences enlightenment, that enlightenment is enlightenment. Don’t you think so? [...]
+Even though a first grade child experiences enlightenment, that enlightenment [is] enlightenment. Don’t you think so? 
  
-Himalayan mountain is also being, isn’t it? But [...] is always [...]. 
+[A poppy seed] is a being. A Himalayan mountain is also being, isn’t it? But poppy seed is [just] poppy seed. 
 
-So finally, what should I do? So, we have to just climb the mountain, with wholeheartedness. 
+So finally, what should we do? So, we have to just climb the mountain, with wholeheartedness. 
 
 #### 1:04:57
 
 **Question:** Hojo-san, what is the literal translation of *dōshō dōshi*?
 
-**Katagiri Roshi:** Literally *dō* of *dōshō* is “the same.” *Shō* of *dōshō* is birth, or life. So the same birth, or the same life. *Dō* of *dōshi* is “the same,” *shi* is “death.” The same life, the same death. 
+**Katagiri Roshi:** Literally *dō* of *dōshō* is “the same.” *Shō* of *dōshō* is birth, or life. So the same birth, or the same life. *Dō* of *dōshi* is “the same,” *shi* is “death.” The same death. The same life, the same death. 
 
 That is oneness, between the mountains and you. And zazen and you, *gassho* and you. 
 
-So, you can be in the same life of *gassho*, in the same death as your *gassho*. That is called oneness.
+So, you can be in the same life of *gassho*, and in the same death as your *gassho*. That is called oneness.
 
 #### 1:06:00
 
-**Question:** Hojo-san, if only “this is it,” or “what is it,” if only that exists continually and forever, then what’s this enlightenment? 
+**Question:** Hojo-san, if only “this is it,” or “what is it,” if only that exists continually and forever, then [what is] enlightenment? 
 
 **Katagiri Roshi:** Well, it is not something which exists forever [as] you think... 
 
 *[Tape change.]*
 
-... already something running through our head. So, it is always conceptualized. 
+... [that is] already something running through our head. So, it is always conceptualized. 
 
 So, *what is it* is actually nothing to hold on [to]. Nothing. 
 
-It’s pretty hard to say through words. So, all we can say is how to be there. How to be there, how to handle you, how to handle with us, there. We can only tell you a way to be present or to learn what it is. But, if you try to say it, at that time, it becomes a blur. That’s why, *what is it?* 
+It’s pretty hard to say through words. So, all we can say is how to be there. How to be there, how to handle you, how to handle with us, there. We can only tell you a way to be present or to learn what it is. But, if you try to say it, at that time, it becomes a blur. So that’s why, *what is it?* 
 
-But on the other hand, it is not a blur, because you can know a way how to be present. So through the way how to be present, we can know. We can know what we are, what it is. So at that time, *just this is it*. 
+But on the other hand, it is not a blur, because you can know a way how to be present. So through the way how to be present, we can know. We can know who we are, what it is. So at that time, *just this is it*. 
 
 **Questioner:** But, still we have a longing. 
 
-**Katagiri Roshi:** Yeah, longing is that we are always seeing something in terms of pros and cons, success and failure. 
+**Katagiri Roshi:** Yeah, longing is already that we are always seeing something in terms of pros and cons, success and failure. 
 
 **Questioner:** So, before longing is enlightenment? 
 
-**Katagiri Roshi:** Yeah, before longing, completely before longing or after longing, it’s truth, enlightenment. So-called *energy*. I use “energy” or “universal life.” 
+**Katagiri Roshi:** Yeah, before longing. Completely before longing or after longing, it’s truth, enlightenment. So-called *energy*. I use “energy” or “universal life.” 
 
-You know, we have already mind and *vijñāna*, consciousness. That is already thinking something, alright? And when you are born, you already have mind. “You have a mind” means you have already been born in this world with all sentient beings; in other words, with myriad conditions. And also, when you are born with myriad conditions, conditions become your object of consciousness. In order to make the consciousness operate or work or survive, consciousness acts on object. So, very naturally, there is separation there. 
+You know, we have already mind and *vijñāna*, consciousness. That is already thinking something. And when you are born, you already have mind. “You have a mind” means you have already been born in this world with all sentient beings; in other words, with myriad conditions. And also, when you are born with myriad conditions, conditions become your object of consciousness. In order to make the consciousness operate or work or survive, consciousness acts on object. So, very naturally, there is separation there. 
 
 But basically, in the source of the consciousness, consciousness works in a very simple way. A very simple way; just like the trees, birds, et cetera. Very simple. That’s why nature is beautiful. You know? 
 
-But our consciousness is a little bit slipping off. *[He laughs.]* “Slip off” means that we want to satisfy, we want to fill up satisfaction of our desire in many ways, under all circumstances, always. Not seeing our object [simply]. If you see something, then next moment there is a desire which compels you to fill up the satisfaction, in many ways. 
+But our consciousness is a little bit slipping off. *[He laughs.]* “Slip off” means that we want to satisfy, we want to “fill up” – satisfaction of our desire in many ways, under all circumstances, always. Not seeing our object [simply]. If you see something, then next moment there is a desire which compels you to fill up [with] the satisfaction, in many ways. 
 
-That is called life and death. And that is called [*seizan*] *kyōsō*, [which] means... what can I say? 
+That is called life and death. And that is called *seizon kyōsō* (生存競争), [which] means... what can I say? 
 
 **Someone:** “Competing for life?”
 
-**Katagiri Roshi:** Yeah, competing. Trying to make a living. I want to make a living, always. 
+**Katagiri Roshi:** Yeah, competing. Trying to make a life, make a living. I want to make a living, always. *[He laughs.]*
 
-So, in terms of making a life, that is really filling the satisfaction of your life. And at that time, death is completely omitted. Okay? Completely. Because I want to make a living. So [for] a certain period of time we are always looking at [it], but we don’t see the death. In other words, we don’t see the world after death – because we don’t *want* to see it. All that we want to see is the world which lasts for a certain period of time: from your birth [to your] death. Fifty years, sixty years... thirty years... During this period of time, we always have strong desires to fill up our satisfaction. In many ways, under all circumstances, consciously and unconsciously, it comes up: “to fill up your satisfaction” means you are not satisfied, then reality is denied. Do you understand? You don’t satisfy, that’s why you want to know. You are longing for... *[he laughs]*. In a pure sense, we are always longing. That means already your reality is denied, [negating the] present. Do you understand that? 
+So, in terms of making a life, that is really filling the satisfaction of your life. But at that time, death is completely omitted. Okay? *[He laughs.]* Because I want to make a living.
+
+So [for] a certain period of time we are always looking at [it], but we don’t see the death. In other words, we don’t see the world after death – because we don’t *want* to see it. All that we want to see is the world which lasts for a certain period of time: from your birth [to your] death. Fifty years, sixty years... thirty years... During this period of time, we always have strong desires to fill up our satisfaction. In *many* ways, under all circumstances, consciously and unconsciously, it comes up. “To fill up your satisfaction” means you are not satisfied. Then, reality is denied. Do you understand? You [aren’t satisfied], that’s why you want to know. You are “longing for”... *[he laughs]*. In a pure sense, we are always longing. That means already your reality is denied, [negating the] present. Do you understand that? 
 
 **Questioner:** So, to stop our longing...
 
@@ -413,11 +419,11 @@ So, in terms of making a life, that is really filling the satisfaction of your l
 
 **Katagiri Roshi:** You should know the structure of the longing. We always depend on the longing, because that is always giving some information to you: about the truth, about something. That’s why you always accept the longing in terms of it’s affirmative aspect. But you should know the negative aspect. *[He laughs.]* But we don’t see it. Don’t you think so? 
 
-If you have a desire to seek for the truth, you always feel good, because you can get always something. But that means, I don’t think so. 
+If you have a desire to seek for the truth, you always feel good, because you can always get something. But that means, I don’t think so. 
 
 **Questioner:** No, I know the negative part. 
 
-**Katagiri Roshi:** Sure! You have to know the negative aspect. Because you are not satisfied. That’s why you want to fill up satisfaction. That means you “slip out,” you “run out” from the present. That is called filling up the satisfaction. *[He chuckles.]* The consciousness is working in a simple way, just a simple way. But immediately you have a desire, trying to fill up your satisfaction, that negative of the present. That’s why you slip out from the present. That is called *samsara*, samsaric [world]. 
+**Katagiri Roshi:** Sure! You have to know the negative aspect. Because you are not satisfied. That’s why you want to fill up satisfaction. That means you “slip out,” you “run out” from the present. That is called “filling up the satisfaction.” *[He chuckles.]* The consciousness is working in a simple way, just a simple way. But immediately you have a desire, trying to fill up your satisfaction, that negative of the present. That’s why you slip out from the present. That is called *samsara*, the samsaric [world]. 
 
 **Questioner:** How long is it possible to stay present? 
 
@@ -429,35 +435,43 @@ If you have a desire to seek for the truth, you always feel good, because you ca
 
 **Someone:** But Hojo-san...
 
-**Katagiri Roshi:** So I say, that’s why finally, “don’t think it.” But if I say so, you say, “I don’t think in that way.” But it’s already slipping up, because you think it. 
+**Katagiri Roshi:** So that’s why finally I say, “Don’t think it.” But if I say so, you say, “I don’t think in that way.” But it’s already slipping up, because you think it. 
 
 **Questioner:** Not all the time...
 
-**Katagiri Roshi:** But as simple as you can, you should think it, [in a] simple way. Just think; simple way. Because thinking is also nothing but energy. Without thinking you cannot survive in this world. So thinking is very important. 
+**Katagiri Roshi:** As simple as you can, you should think it, [in a] simple way. Just think; simple way. Because thinking is also nothing but energy. Without thinking you cannot survive in this world. So thinking is very important. 
 
-But still the problem is there is something extra, beyond simple thinking. If you think, that’s enough. But if you think something, then we create something: our own world. Well, if you think this in a particular way, wonderful, that’s enough. But next moment, “What’s that?” “What’s that tape recorder?” “What company made this?” Next moment, “Oh, I would like to have it.” *[He laughs.]* Always going on and on, constantly. 
+But still the problem is there is something *extra*, beyond simple thinking. If you think, that’s enough. But if you think something, then we create something: our own world. That is, if you think of this tape recorder: “Oh, wonderful” – that’s enough. But next moment, “What’s that?” “What’s that tape recorder?” “What company made this?” Next moment, “Oh, I would like to have it.” *[He laughs.]* Always going on and on, constantly. 
 
 But the first motivation, when you see this tape recorder, is simple, very simple. Just like a mirror and tape recorder. Don’t you think so?
 
 **Questioner:** Yes.
 
-**Katagiri Roshi:** And then, just sit. Bodhisattvas attain enlightenment, act on, just like this. But usually we don’t. But [us not] doing it that way is not something bad. If you know it, that is a very good sign, because you realize how much you have slipped out of the present in order to fill up the satisfaction. Then very naturally you can come back to the center. So that is everyday life practice. That is a practice on an everyday basis. 
+**Katagiri Roshi:** And then, just sit. 
 
-But in the story, it’s simple. Just think simply, and we see another desire, slipping out of the present... why don’t you stop it? That story is simple. And just walk simply. But we cannot do it. Then, how can we do it? This is a practice on an everyday basis. 
+Bodhisattvas attain enlightenment, act on, just like this. But usually we don’t. 
+
+But [us not] doing it that way is not something bad. If you know that, that is a very good sign, because you realize how much you have slipped out of the present in order to fill up the satisfaction. Then very naturally you can come back to the center. So that is everyday life practice. That is our practice on an everyday basis. 
+
+But in the story, it’s simple. Just think simply, and we see another desire, slipping out of the present: why don’t you stop it? That story is simple. And just walk simply. But we cannot do it. And then, how can we do it? This is our practice on an everyday basis. 
 
 You cannot say “I cannot do it,” or “I can do it.” No. Every day you have to do it. 
 
 So, Dōgen Zenji says, that’s why you have to raise the hundred thousand million bodhi-mind[s]. *Bodhi-mind* means, anyway, come back to the center. Come back to the center; this is the direction you have to aim at. You have to come back.
 
-How much? How often? One myriad, a hundred myriad, thousand, billion times. Don’t you think so? Every day consists of four billion moments. You have to raise the bodhi-mind four billion times. That is our practice. 
+How much? How often? One myriad, a hundred myriad, thousand, billion times. Don’t you think so? Every day consists of four billion moments. Then you have to raise the bodhi-mind four billion times. That is our practice. 
 
 At that time, it is called, “just this is it.” Or, “what is it?” 
 
-When you come back like this, then you are called a bodhisattva. It’s really a bodhisattva. But whatever you think, human life, anyway, if you can aim at that destination, come back to the center, that destination, that is called *vow*. For the long run, you have to aim at that destination. 
+When you come back like this, then you are called a bodhisattva. It’s really a bodhisattva.
 
-The destination is not far from you; it’s here. That is called vow, we say vow. But this must last for a long time. Not [only] your lifetime; life after life. That’s why it is called “long-cherished.” You know? “Long-cherished aspiration,” which is called vow. 
+But whatever you think, human life, anyway, if you can aim at that destination, come back to the center, that destination, that is called *vow*. For the long run, you have to aim at that destination. 
 
-This is a very simple, quiet practice. So-called “practice the root of the life.” Virtuous quality.
+The destination is not far from you; it’s here. That is called vow; we say vow. 
+
+But this must last for a long time. Not [only] your lifetime; life after life. That’s why it is called “long-cherished.” You know? “Long-cherished aspiration,” which is called vow. 
+
+This is a very simple, quiet practice. So-called “plant the root of the life.” Virtuous quality.
 
 #### 1:18:55 end of recording. 
 
