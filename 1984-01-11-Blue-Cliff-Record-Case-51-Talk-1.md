@@ -53,15 +53,15 @@ Hsueh Feng [...] opened the door and he came out first, initiatively, and said, 
 
 > A monk also said, “What is it?”
 
-Usually most people were knocked over in a heap by the famous Zen master’s initiative remarks; most monks couldn’t say anything after his remarks. But in this case, this monk is pretty good, because he said also, “What is it,” immediately after Hsueh Feng said it. So just like a parrot imitating his words, but immediately the two monks said [it] like this. Hsueh Feng was a pretty famous and very powerful person, so usually most people became [like] a frog in front of the snake; most of the people couldn’t say anything. But they said the same words. 
+Usually most people were knocked over in a heap by the famous Zen master’s initiative remarks; most monks couldn’t say anything after his remarks. But in this case, this monk is pretty good, because he said also, “What is it,” immediately after Hsueh Feng said it. So just like a parrot imitating his words, but immediately the two monks said [it] like this. Hsueh Feng was a pretty famous and very powerful person, so usually most people became [like] a frog in front of a snake; most of the people couldn’t say anything. But they said the same words. 
 
 So, after that, 
 
 > Feng lowered his head and went back inside the hut.
 
-So maybe this is pretty meaningful. [But] they thought that Hsueh Feng probably accepted these two monks’ spiritual career through their message, so-called “What is it?” In other words, they believed that Hsueh Feng accepted their spiritual career and [respected them] without saying, so that’s why Hsueh Feng bowed and went back to his hut. That means the two monks really believed that they were pretty good, that’s why Hsueh Feng accepted them. 
+So maybe this is pretty meaningful. [But] they thought that Hsueh Feng probably accepted these two monks’ spiritual career through their message, so-called “What is it?” In other words, they believed that Hsueh Feng accepted their spiritual career and [respected them] without saying, so that’s why Hsueh Feng bowed and went back to his hut. That means the two monks really believed that they were pretty good, [and] that’s why Hsueh Feng accepted them. 
 
-But still, that’s why they really couldn’t forget Hsueh Feng’s acceptance. So, someday they wanted to make sure whether Hsueh Feng’s acceptance was true or not, by another Zen master. That’s why,
+But still, [...] they really couldn’t forget Hsueh Feng’s acceptance. So, someday they wanted to make sure whether Hsueh Feng’s acceptance was true or not, by another Zen master. That’s why,
 
 > Later the monk came to Yen T’ou. T’ou asked, “Where are you coming from?” The monk said, “I’ve come from Ling Nan.” T’ou said, “Did you ever go to Hsueh Feng?” The monk said, “I went there.” T’ou said, “What did he have to say?” 
 
@@ -85,13 +85,17 @@ Still these monks didn’t understand exactly. Even though they believed that Hs
 
 > “... he lowered his head and went back inside the hut.”
 
-So, that means, anyway, the two monks really wanted to say something real they believed to Yen T’ou; that’s why they repeated the same situation. [But] T’ou understood pretty well why Hsueh Feng lowered his head and went back. Because, “What is it?” is not merely question mark “what is it?” “What is it” in Buddhism is always pointing out real reality, real truth. Philosophically, we say *emptiness*. In other words, “what is it” is [the] implication of the real word, which has no particular root; so-called emptiness. That is Hsueh Feng’s words, “What is it?” 
+So, that means the two monks really wanted to say something real they believed to Yen T’ou; that’s why they repeated the same situation. [But] T’ou understood pretty well why Hsueh Feng lowered his head and went back. 
+
+Because, “What is it?” is not merely question mark “what is it?” “What is it” in Buddhism is always pointing out real reality, real truth. Philosophically, we say *emptiness*. In other words, “what is it” is [the] implication of the real word, which has no particular root; so-called emptiness. That is Hsueh Feng’s words, “What is it?” 
 
 The two monks also said the same thing, but I don’t know how much they understood this, because according to Yen T’ou’s statement in the next lines, the two monks seemed not to understand what it meant: 
 
 > T’ou said, “Alas! It’s too bad I didn’t tell him the last word before; if I had told him, no one on earth could cope with old Hsueh.”
 
-“It’s too bad I didn’t tell him the last word before”: this is a really important point in this case. *The last word*; unfortunately Yen T’ou didn’t tell him the last word. That *last word* is completely beyond the word, [beyond] before word and after word. *The last word* means, “What is it?” This is the last word. 
+“It’s too bad I didn’t tell him the last word before”: this is a really important point in this case. *The last word*; unfortunately Yen T’ou didn’t tell him the last word. 
+
+That *last word* is completely beyond the word, [beyond] before word and after word. *The last word* means, “What is it?” This is the last word. 
 
 Even if you understand the truth, understanding of the truth is not the last word. Experience of the truth is not the last word. The last word is the truth itself. 
 
@@ -105,21 +109,23 @@ So, anyway, Yen T’ou says, “Alas! It’s too bad I didn’t tell him the las
 
 Well, if you can tell the last word to somebody – that’s great. That’s great. Well, in Sōtō Zen, it is called *dharma transmission*. Dharma transmission is really the last word. We have to tell [it]. 
 
-Well, plainly speaking, *the last word* for usual people is the great sublimity of human life you have to transmit to the next generation. It is not teaching; it is not words. It is not something you have to give to somebody who doesn’t have it. Everyone has it. To *transmit* something is... to take it out from [the] individual, from who has this truth [or] important thing. So, zazen gives you anything. But zazen helps you to realize the buddha-nature, zazen doesn’t give you the buddha-nature. Well, zazen gives anything to you. But zazen [...] helps you to realize what you have, how sublime your life is. That is the meaning of zazen. 
+Plainly speaking, *the last word* for usual people is the great sublimity of human life you have to transmit to the next generation. It is not teaching; it is not words. It is not something you have to give to somebody who doesn’t have it. Everyone has it. To *transmit* something is... to take it out from [the] individual, [...] who has this truth [or] important thing. 
 
-So, if you can realize how sublime your life is, that realization is supremely important. Nobody touches it. You alone know it – clearly, very clearly. That is called, practically speaking, *spiritual security*. Well usually [we’d use] “faith.” 
+So, zazen gives you anything, but zazen helps you to realize the buddha-nature, zazen doesn’t give you the buddha-nature. Well, zazen gives anything to you. But zazen [...] helps you to realize what you have, how sublime your life is. That is the meaning of zazen. 
 
-So, that’s why here it says, “If I had told him, no one on earth could cope with old Hsueh.” 
+So, if you can realize how sublime your life is, that realization is supremely important. Nobody touches it. You alone know it – clearly, very clearly. That is called, practically speaking, *spiritual security*. Well, usually [we’d use] “faith.” 
+
+So that’s why here it says, “If I had told him, no one on earth could cope with old Hsueh.” 
 
 #### 22:08
 
 > At the end of the summer the monk again brought up the preceding story to ask for instruction. 
- 
-The two monks didn’t understand the meaning of “the last word.” That’s why they contemplated this koan for 90 days. 
+
+The two monks didn’t understand the meaning of “the last word”; that’s why they contemplated this koan for 90 days. 
 
 > T’ou said, “Why didn’t you ask earlier?” 
 
-Because the last word exists always. *[Unintelligible]* ... completely beyond you understand or you don’t understand. Anyway, you should face directly. In other words, you should *[unintelligible]* again and again. 
+Because the last word exists always. *[Unintelligible]* ... completely beyond [whether] you understand or you don’t understand [...] you should face directly. In other words, you should *[unintelligible]* again and again. 
 
 So, that’s why he said, “Why didn’t you ask earlier?” The monk answered very honestly:
 
@@ -131,17 +137,17 @@ So,
 
 > T’ou said, “Though Hsueh Feng is born of the same lineage as me, ...”
 
-Hsueh Feng and Yen T’ou were in the relation of dharma brothers. So that’s why he said, “The same lineage as me.” That means Yen T’ou and Hsueh Feng were born in this world not separately, [but] on the same and one level of the ground, so-called buddha-nature. 
+Hsueh Feng and Yen T’ou were in the relation of dharma brothers; that’s why he said “the same lineage as me.” That means Yen T’ou and Hsueh Feng were born in this world not separately, [but] on the same and one level of the ground, so-called buddha-nature. 
 
-When you climb the mountains, you mustn’t be separate from the mountains. While you are separated from the mountain, the mountain becomes a big burden for you. So you have to carry the mountain in your back. It makes you tired. But when you become one with the mountain, completely beyond hard work or easy work, while the mountain exists in front of you, anytime, anywhere you can climb the mountain, completely beyond the idea of risking your life, or hard work, or easy work. In other words, you must be born in the same world as the mountain. 
+When you climb the mountains, you mustn’t be separate from the mountains. While you are separated from the mountain, the mountain becomes a big burden for you. You have to carry the mountain on your back. It makes you tired. But when you become one with the mountain, [...] while the mountain exists in front of you, anytime, anywhere you can climb the mountain, completely beyond the idea of risking your life, or hard work, or easy work. In other words, you must be born in the same world as the mountain. 
 
 We say *dōshō dōshi*; that means you must be born simultaneously with the mountain. Mountain is born simultaneously with your birth. That means you must be one with the mountain’s life. 
 
-But on the other hand, you are you, mountain is mountain. 
+But on the other hand, you are you; mountain is mountain. 
 
-But exactly there is the mountain and you are one. That’s why you become a great mountaineer; no one touches you. No one knows why you have to climb the mountain, risking your life, at the expense of your life. There is no guarantee whether you can survive, whether you die. There is no guarantee. But completely beyond human speculation, you can climb the mountain, constantly. 
+But exactly there is [that] the mountain and you are one. That’s why you become a great mountaineer. No one touches you. No one knows why you have to climb the mountain, risking your life, at the expense of your life. There is no guarantee whether you can survive, whether you die. There is no guarantee. But completely beyond human speculation, you can climb the mountain, constantly. 
 
-But you know pretty well you are you, mountain is mountain, so in your whole life you have to learn what the mountain is, you have to learn who you are, constantly. Simultaneously you have to learn all living beings around the mountain, within the mountain, outside of the mountain. Within you, outside of you. 
+But you know pretty well you are you, mountain is mountain. So in your whole life you have to learn what the mountain is, you have to learn who you are, constantly. Simultaneously you have to learn all living beings around the mountain, within the mountain, outside of the mountain. Within you, outside of you. 
 
 So very naturally there is a great dynamic working between you and the mountains. They are two; they are not two. They are one, but they are not one. You can really feel dynamic working as one, beyond the idea of one or two. That is nothing but practice itself. You just climb the mountains. 
 
@@ -153,15 +159,15 @@ Because mountain is mountain, you are you. But mountains and you, and trees, bir
 
 > ... “If you want to know the last word, just this is it.”
 
-This is the last word: just this is it. 
+This is the last word: *just this is it*. 
 
-“Just this is it” means, when you do *gassho*, what is the last word of the *gassho*? The last word of the *gassho* is *just this is it*. So what is the last word of the fire? Just this *is* it. 
+“Just this is it” means, when you do *gassho*, what is the last word of the *gassho*? The last word of the *gassho* is *just this is it*. So what is the last word of fire? Just this *is* it. 
 
-What is the chanting of the sutra? What is the last word of the chanting? The last word of the chanting is completely beyond good chanter or bad chanter. The last word of chanting is completely beyond perceptions. *Just this is it* means just chanting. You must jump into the real process of the chanting. You must be alive right in the middle of chanting. They are two, but they are not two. They are one, but they are not one, if you think it. 
+What is the last word of the chanting of a sutra? The last word of the chanting is completely beyond good chanter or bad chanter. The last word of chanting is completely beyond perceptions. *Just this is it* means *just chanting*. You must jump into the real process of the chanting. You must be alive right in the middle of chanting. They are two, but they are not two. They are one, but they are not one, if you think it. 
 
 But when you are merged with process itself, well, that process of the practice you become merged with [is] completely beyond dichotomy. That means, just this is it. 
 
-Well, I cannot say who I [really] am – in talking, in zazen. I cannot say. It’s pretty hard to say about the last word of my zazen. The last word of my zazen is, anyway, *just this is it*. 
+Well, I cannot say who I [really] am, in talking, in zazen. I cannot say. It’s pretty hard to say [something] about the last word of my zazen. The last word of my zazen is, anyway, *just this is it*. 
 
 In other words, “look at this zazen” – maybe you can say [that]. But real zazen, the last word of zazen, is something maybe *more* than that, more than “just this is it.” That is *just this is it*. It means you have to *do* it. 
 
@@ -189,39 +195,37 @@ So that’s why [it says] “right in light there is darkness, but don’t confo
 
 That’s why next it says, “Light and dark are relative to one another, like forward and backward steps.” Just like the forward and backward steps you experience every day. But something more than back and forward steps. It’s working at super-speed.
 
-So, the same applies to affirmation and denial, and truth and phenomena. So, “as soon as there is affirmation and denial,” if you see even slightly a perception of the affirmation you attach to, “you lose your mind in confusion,” because immediately you see denial. 
+The same applies to affirmation and denial, and truth and phenomena. So “as soon as there is affirmation and denial,” if you see even slightly a perception of the affirmation you attach to, “you lose your mind in confusion,” because immediately you see denial. 
 
-If you say, “I am happy,” you can see immediately [it’s] shadow, unhappiness. That’s why very naturally you are confused – because you don’t understand what happiness is. So you lose your mind in confusion. 
+If you say, “I am happy,” you can see immediately [its] shadow, unhappiness. That’s why very naturally you are confused – because you don’t understand what happiness is. So you lose your mind in confusion. 
 
 #### 35:01
 
 > If you don’t fall into grades and stages, then there is no seeking.
 
-But nevertheless, you cannot ignore the definition of you as you, the definition of mountains as mountains. So, mountains are mountains, you are you. There are stages, and grade, and career, you can experience step by step. 
-
-“If you don’t fall into grades and stages, then there is no seeking” – there is no *development*, usually. There is no sense of progress. 
+But nevertheless, you cannot ignore the definition of you as you, the definition of mountains as mountains. So, mountains are mountains, you are you. There are stages, and grade, and career, you can experience step by step. “If you don’t fall into grades and stages, then there is no seeking” – there is no *development*, usually. There is no sense of progress. 
 
 As long as we exist in the dualistic world, we cannot ignore a sense of progress. Stages. Grades. Races. Many kinds of discrimination. [Relativities.] Not-peace, or peace. Liberty or non-liberty. 
 
 So, “if you don’t fall into grades and stages, then there is no seeking.” If you don’t accept this discrimination, you are also at a loss what to do. 
 
-So, the final beautiful ideal image of human life is living in the realm of no government, and no regulations, and no sectarianism, no races – exactly, you know? And then that is a really peaceful, wonderful Buddha’s world. 
+The final beautiful ideal image of human life is living in the realm of no government, and no regulations, and no sectarianism, no races – exactly, you know? And then that is a really peaceful, wonderful Buddha’s world. 
 
 But I don’t mean that you should ignore the world of regulations, and constitutions, and government, and moralities, and religious life, et cetera. I tell you very often: ethics and government and regulations must be accepted by all sentient beings, because without this we cannot live in order. 
 
-But a point is, we have to digest through and through the constitutions, ethics, and government, in your life, until its form or trace appears in your life – in other words ethics, regulations, constitutions are completely alive in your life. 
+But a point is, we have to digest through and through the constitutions, ethics, and government [...] until its form or trace appears in your life – in other words ethics, regulations, constitutions are completely alive in your life. 
 
-If you want to know the American constitution, you should know yourself. So, your life is the constitution. But your life is always working very smoothly, without being stuck in the idea of the constitution, because your whole life is the constitution. 
+If you want to know the American constitution, you should know yourself. So, your life is the constitution. But your life is always working very smoothly, without being stuck in the idea of the constitution. Because your whole life is the constitution. 
 
 So at that time, it is called *no government*, *no constitution*. And then, that is called *morality*, because people can live in peace and harmony, without government. How do they live? According to morality, they can live. 
 
-That’s why if you live, you should accept morality. But if you are stuck in morality, morality becomes a big burden for you. But on the other hand, you cannot ignore it. So the important point is that morality must be digested in your life perfectly, completely, through and through, until it doesn’t appear in your life. So morality *is* your life. At that time, morality is no trace of morality. “No trace of morality” is called *spiritual life*, so-called *religion*. So, if you have a spiritual life, no morality; it’s not necessary to have morality, because morality is included in spiritual life. 
+That’s why if you live, you should accept morality. But if you are stuck in morality, morality becomes a big burden for you. On the other hand, you cannot ignore it. So the important point is that morality must be digested in your life perfectly, completely, through and through, until it doesn’t appear in your life, so morality *is* your life. At that time, morality is no trace of morality. “No trace of morality” is called *spiritual life*, so-called *religion*. So, if you have a spiritual life, no morality; it’s not necessary to have morality, because morality is included in spiritual life. 
 
-And next, still you should accept spiritual life, but still spiritual life becomes a big burden. So, spiritual life must be digested through and through in your life, until it doesn’t appear [on the surface], without leaving any trace. And then, spiritual life doesn’t leave its own trace. At that time, it is called peace, harmony. 
+And next, still you should accept spiritual life, but still spiritual life becomes a big burden. So, spiritual life must be digested through and through in your life, until it doesn’t appear [on the surface] \[...] And then, spiritual life doesn’t leave its own trace. At that time, it is called peace, harmony. 
 
 So, when the spiritual life is completely digested in your life: perfect peace. That is called liberty, freedom. 
 
-[From this point,] freedom doesn’t ignore spiritual life, morality, ethics, government, etc. Because in this discrimination, you have to find the liberty. How? Digest the morality and the constitutions and ethics in your everyday life, through and through. 
+[From this point,] freedom doesn’t ignore spiritual life, morality, ethics, government, etc. Because in this discrimination you have to find the liberty. How? Digest the morality and the constitutions and ethics in your everyday life, through and through. 
 
 Because morality and you are always working, just like forward and backward steps. You cannot ignore [it]. Like a mountain and you. Until mountain’s life becomes one with you, you should digest the mountain’s life. And then, your life is the mountain. 
 
@@ -253,7 +257,11 @@ But we should accept this suffering, this... wobbling. We should accept the flas
 
 > If you are still involved with devices and objects, then all of this is haunting the fields and forests.
 
-In Japanese we say [*e sō fu boku*]. *E* means “depend on.” *Sō* means “grasses.” “Depends on the grasses.” [...] *Fu* means “to attach,” *boku* means “trees.” “Depend on the grasses, attaching to the trees.” That is a Buddhist technical term we say. According to the sense of karmic theory, people in India believed after human death, [the] soul is haunting somewhere – for at least 49 days, you are haunting. And then during those 49 days, there is nothing to depend on, that’s why those souls are depending on the grasses and the trees, by the side of the road, or the mountains, wherever you may go. Or sometimes dew drops; sometimes a speck of dust on the leaves or the grasses. That is called *e sō fu boku*; here it says “haunting the fields and forests.” It means a kind of ghost, haunting. “Haunting,” I don’t know... In other words, in the human world, there is always something. Even though you cannot see it, there is always something. 
+In Japanese we say [“*e sō fu boku*”]. *E* means “depend on.” *Sō* means “grasses.” “Depends on the grasses.” [...] *Fu* means “to attach,” *boku* means “trees.” “Depend on the grasses, attaching to the trees.” That is a Buddhist technical term we say. 
+
+According to the sense of karmic theory, people in India believed after human death [the] soul is haunting somewhere – for at least 49 days, you are haunting. And then during those 49 days, there is nothing to depend on, that’s why those souls are depending on the grasses and the trees, by the side of the road, or the mountains, wherever you may go. Or sometimes dew drops; sometimes a speck of dust on the leaves or the grasses. 
+
+That is called *e sō fu boku*; here it says “haunting the fields and forests.” It means a kind of ghost, haunting. “Haunting,” I don’t know... In other words, in the human world, there is always something. Even though you cannot see it, there is always something. 
 
 So, in a Zen monastery, I tell you very often, the toilet is a very important place for practice with silence. Very silent, and concentrating on purifying your body, becoming one with the whole world. Because when you go to the toilet, very naturally you become alone. No one interrupts you. Don’t you think so? 
 
@@ -263,7 +271,7 @@ So, the toilet is a very individual, peaceful world. *[He laughs.]*
 
 Well, that is a joke, anyway. *[Laughter.]*
 
-But anyway, the toilet is one important place for silent practice. Toilet, and zendo, and bath room... *bath room* is bathing. Because pretty easily you feel relaxed. If you feel relaxed, very naturally words coming up, and your behavior becomes a little bit rough. So, we naturally keep silent, and moving toward the center. 
+But anyway, the toilet is one important place for silent practice. Toilet, and zendo, and bath room... *bath room* is bathing. Because pretty easily you feel relaxed; if you feel relaxed, very naturally words are coming up, and your behavior becomes a little bit rough. So we naturally keep silent, and moving toward the center. 
 
 Moving toward the center is very important; so-called, what would you say... centripetal force? That’s pretty important. When you walk wherever... try it, okay? After this, when you go back: just walk on the street, and you try to come back to the center, and walk steadily. At that time, you feel a certain weight. That is the weight of the depth of your life. When you come back to the center, the whole picture of your life becomes pretty stable, because centripetal force makes a kind of weight of the depth of your personality. Simultaneously, centripetal force creates... a central force. *[He chuckles.]* So very naturally people are impressed by you. Don’t you think so? Yes, [it does].
 
