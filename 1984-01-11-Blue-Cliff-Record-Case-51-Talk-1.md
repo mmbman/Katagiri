@@ -119,9 +119,9 @@ The two monks didn’t understand the meaning of “the last word.” That’s w
 
 > T’ou said, “Why didn’t you ask earlier?” 
 
-Because the last word exists always. [...] Completely beyond you understand or you don’t understand. Anyway, you should face directly. In other words, you should [...] again and again. So, that’s why he said, “Why didn’t you ask earlier?” 
+Because the last word exists always. *[Unintelligible]* ... completely beyond you understand or you don’t understand. Anyway, you should face directly. In other words, you should *[unintelligible]* again and again. 
 
-The monk answered very honestly:
+So, that’s why he said, “Why didn’t you ask earlier?” The monk answered very honestly:
 
  > “I didn’t dare to be casual.” 
  
@@ -131,35 +131,39 @@ So,
 
 > T’ou said, “Though Hsueh Feng is born of the same lineage as me, ...”
 
-Hsueh Feng and Yen T’ou were in the relation of dharma brothers. So, that’s why he said, “The same lineage as me.” That means Yen T’ou and Hsueh Feng were born in this world... not separately, on the same and one level on the ground, so-called buddha-nature. 
+Hsueh Feng and Yen T’ou were in the relation of dharma brothers. So that’s why he said, “The same lineage as me.” That means Yen T’ou and Hsueh Feng were born in this world not separately, [but] on the same and one level of the ground, so-called buddha-nature. 
 
-When you climb the mountain, you mustn’t be separate from mountains. If you are so, while you are separated from the mountain, mountain becomes a big burden for you. So, you have to carry the mountain in your back, which makes you tired. When you become one with the mountain, completely beyond hard work or easy work, as long as [...] the mountain exists in front of you, anytime, anywhere you can climb the mountain, completely beyond the idea of risking your life, or hard work or easy work. In other words, you must be born in the same world as the mountain. 
+When you climb the mountains, you mustn’t be separate from the mountains. While you are separated from the mountain, the mountain becomes a big burden for you. So you have to carry the mountain in your back. It makes you tired. But when you become one with the mountain, completely beyond hard work or easy work, while the mountain exists in front of you, anytime, anywhere you can climb the mountain, completely beyond the idea of risking your life, or hard work, or easy work. In other words, you must be born in the same world as the mountain. 
 
-We say *dōshō dōshi*, that means you must be born simultaneously with the mountain. Mountain is born simultaneously with [...]. That means you must be one with the mountain’s life. 
+We say *dōshō dōshi*; that means you must be born simultaneously with the mountain. Mountain is born simultaneously with your birth. That means you must be one with the mountain’s life. 
 
-But on the other hand, you are you. Mountain is mountain. 
+But on the other hand, you are you, mountain is mountain. 
 
-But exactly there is a mountain and you are one. That’s why you become a great mountaineer; no one touches you. Why? No one knows why you have to climb the mountain risking your life, at the expense of your life. There is no guarantee when you can survive, when you die. There is no guarantee. But completely beyond human speculation, you can climb the mountain, constantly. But you know pretty well you are you, mountain is mountain, so in your whole life you have to learn what the mountain is, you have to learn who you are, constantly. Simultaneously you have to learn all living beings around the mountain, within the mountains, outside of the mountain. Within you, outside of you. 
+But exactly there is the mountain and you are one. That’s why you become a great mountaineer; no one touches you. No one knows why you have to climb the mountain, risking your life, at the expense of your life. There is no guarantee whether you can survive, whether you die. There is no guarantee. But completely beyond human speculation, you can climb the mountain, constantly. 
 
-So very naturally there is a great dynamic working between you and mountains. They are two, they are not two. They are one, but they are not one. But you can feel really dynamic working as one, beyond the idea of one or two. That is nothing but practice itself. You just climb the mountains. 
+But you know pretty well you are you, mountain is mountain, so in your whole life you have to learn what the mountain is, you have to learn who you are, constantly. Simultaneously you have to learn all living beings around the mountain, within the mountain, outside of the mountain. Within you, outside of you. 
 
-So here it says, 
+So very naturally there is a great dynamic working between you and the mountains. They are two; they are not two. They are one, but they are not one. You can really feel dynamic working as one, beyond the idea of one or two. That is nothing but practice itself. You just climb the mountains. 
 
-> T’ou said, “Though Hsueh Feng is born of the same lineage as me, he doesn’t die in the same lineage as me.” ...
+So that’s why T’ou said,
+
+> “Though Hsueh Feng is born of the same lineage as me, he doesn’t die in the same lineage as me.” ...
 
 Because mountain is mountain, you are you. But mountains and you, and trees, birds, all sentient beings, were born in the same lineage as you. 
 
 > ... “If you want to know the last word, just this is it.”
 
-This is the last word. Just this is it. “Just this is it” means, when you do *gassho*, what is the last word of the *gassho*? The last word of the *gassho* is *just this is it*. So what is the last word of the fire? Just this is it. 
+This is the last word: just this is it. 
 
-What is the chanting of the sutra? What is the last word of the chanting? The last word of the chanting is completely beyond good chanter or bad chanter. The last word of chanting is completely beyond perceptions. *Just this is it* means just chanting. You must be jumping into the real process of the chanting. You must be alive right in the middle of chanting. They are two, but they are not two. They are one, but there are not one, if you think it. 
+“Just this is it” means, when you do *gassho*, what is the last word of the *gassho*? The last word of the *gassho* is *just this is it*. So what is the last word of the fire? Just this *is* it. 
 
-But when you are merged with practice itself, process itself, well that process of the practice you become merged with [is] completely beyond dichotomy. That means, just this is it. 
+What is the chanting of the sutra? What is the last word of the chanting? The last word of the chanting is completely beyond good chanter or bad chanter. The last word of chanting is completely beyond perceptions. *Just this is it* means just chanting. You must jump into the real process of the chanting. You must be alive right in the middle of chanting. They are two, but they are not two. They are one, but they are not one, if you think it. 
 
-Well, I cannot say who I am. In talking, in zazen, I cannot say. It’s pretty hard to say about the last word of my zazen. The last word of my zazen is anyway *just this is it*. 
+But when you are merged with process itself, well, that process of the practice you become merged with [is] completely beyond dichotomy. That means, just this is it. 
 
-In other words, “look at this zazen” – maybe that you can say so. But real zazen, the last word of zazen, is something maybe more than that, more than “just this is it.” That is *just this is it*. It means you have to *do* it. 
+Well, I cannot say who I [really] am – in talking, in zazen. I cannot say. It’s pretty hard to say about the last word of my zazen. The last word of my zazen is, anyway, *just this is it*. 
+
+In other words, “look at this zazen” – maybe you can say [that]. But real zazen, the last word of zazen, is something maybe *more* than that, more than “just this is it.” That is *just this is it*. It means you have to *do* it. 
 
 #### 30:20 
 
@@ -167,39 +171,59 @@ So, let’s read the pointer. The pointer says,
 
 > As soon as there is affirmation and denial, you lose your mind in confusion. 
 
-Always there is affirmation, denial. “Darkness and light are the source of existence and the branches of existence”: so we chant every morning in the *Sandokai*, “The Merging of Difference and Unity.” We always say that “right in light there is darkness, but don’t confound it as darkness. Right in darkness there is light, but don’t see it as light.” 
+Always there is affirmation and denial. Darkness and light. The source of existence and the branches of existence. 
 
-*Darkness* is the implication of the real reality. *Light* is the phenomenal world, when the darkness or real reality operates. When the real reality operates, it manifest itself as phenomena, which is called *light*. So, the microphone, floor, everybody, all of you, are beings which are existing very clearly. *Clearly* means you are buddha-nature. It’s very clear. You are not the *you* seen from certain ideas or scientific opinions, in terms of biology, in terms of science, physics, etc. You are *buddha-nature*, greatness of existence. That is clear, very clear. That’s why we say *light*. Phenomena is nothing but the functioning of the truth, real reality. That is called *light*; phenomena. 
+So we chant every morning in the *Sandokai*, “The Merging of Difference and Unity.” We always say that “right in light there is darkness, but don’t confound it as darkness. Right in darkness there is light, but don’t see it as light.” 
+
+*Darkness* is the implication of the real reality. *Light* is the phenomenal world, when the darkness or real reality operates. When the real reality operates, it manifest itself as phenomena, which is called *light*. 
+
+So, the microphone, floor, everybody, all of you, are beings which are existing very clearly. *Clearly* means you are buddha-nature. It’s *very* clear. You are not the *you* seen from certain ideas or scientific opinions – in terms of biology, in terms of science, physics, etc. You are *buddha-nature*, greatness of existence. That is clear, very clear; that’s why we say *light*. Phenomena is nothing but the functioning of the truth, real reality. That is called *light*; phenomena. 
 
 So that’s why [it says] “right in light there is darkness, but don’t confound it as darkness.” If you see the darkness, you are stuck there. 
 
 *[Tape change.]*
 
-... pitfall of enlightenment. So, that’s why here it says, “don’t see it as light.”
+... pitfall of enlightenment. So, that’s why here it says [...] don’t see it as darkness. 
 
-Don’t see it as darkness. Right in darkness there is light, but don’t see it as light. Because light and darkness, truth and phenomena, are working together. We cannot separate [them]. Mountain and you [are] working together, otherwise you cannot climb the mountain, you cannot feel a lightness of the mountain’s life. You cannot. You and mountains are really working together; that’s why you really love the mountains.
+“Right in darkness there is light, but don’t see it as light.” Because light and darkness, truth and phenomena, are working together. We cannot separate [them]. Mountain and you [are] working together – otherwise you cannot climb the mountain, you cannot feel a lightness of the mountain’s life. You cannot. You and mountains are really working together; that’s why you really love the mountains.
 
 That’s why next it says, “Light and dark are relative to one another, like forward and backward steps.” Just like the forward and backward steps you experience every day. But something more than back and forward steps. It’s working at super-speed.
 
 So, the same applies to affirmation and denial, and truth and phenomena. So, “as soon as there is affirmation and denial,” if you see even slightly a perception of the affirmation you attach to, “you lose your mind in confusion,” because immediately you see denial. 
 
-If you say, “I am happy,” you can see immediately the shadow of unhappiness. That’s why very naturally you are confused, because you don’t understand what happiness is. So you lose your mind in confusion. 
+If you say, “I am happy,” you can see immediately [it’s] shadow, unhappiness. That’s why very naturally you are confused – because you don’t understand what happiness is. So you lose your mind in confusion. 
+
+#### 35:01
 
 > If you don’t fall into grades and stages, then there is no seeking.
 
-But nevertheless, you cannot ignore the definition of you as you, the definition of mountains as mountains. So, mountains are mountains, you are you. There are stages, and grade, and career. You can experience step by step. 
+But nevertheless, you cannot ignore the definition of you as you, the definition of mountains as mountains. So, mountains are mountains, you are you. There are stages, and grade, and career, you can experience step by step. 
 
-“If you don’t fall into grades and stages, then there is no seeking.” There is no development, usually. There is no sense of progress. As long as we exist in the dualistic world, you cannot ignore a sense of progress. Stages. Grades. Races. Many kinds of discrimination. Real *[unintelligible]*. Not-peace or peace. Liberty or non-liberty. 
+“If you don’t fall into grades and stages, then there is no seeking” – there is no *development*, usually. There is no sense of progress. 
+
+As long as we exist in the dualistic world, we cannot ignore a sense of progress. Stages. Grades. Races. Many kinds of discrimination. [Relativities.] Not-peace, or peace. Liberty or non-liberty. 
 
 So, “if you don’t fall into grades and stages, then there is no seeking.” If you don’t accept this discrimination, you are also at a loss what to do. 
 
-So, the final beautiful ideal image of human life is living in the realm of no government, and no regulations, and no sectarianism, no races, exactly, you know? And then there is a really peaceful, wonderful Buddha’s world. But I don’t mean that you should ignore the world of regulations, and constitutions, and government, and moralities, and religious life, et cetera. I tell you very often, ethics and government and regulations must be accepted by all sentient beings, because without this we cannot live in order. But a point is, we have to digest through and through the constitutions, ethics, and government, in your life, until its form or traits appears in your life, in other words ethics, regulations, constitutions are completely alive in your life. If you want to know the American constitution, you should know yourself. So, your life is the constitution. But your life is always working very smoothly, without being stuck in the idea of the constitution, because your whole life is the constitution. So at that time, it is called no government, no constitution. And then, that is called *morality*, because people can live in peace and harmony without government. How do they live? According to morality, they can live. 
+So, the final beautiful ideal image of human life is living in the realm of no government, and no regulations, and no sectarianism, no races – exactly, you know? And then that is a really peaceful, wonderful Buddha’s world. 
 
-So if you live, that’s why you should accept morality. If you are stuck in morality, morality becomes a big burden for you, but on the other hand, you cannot ignore it. The important point is, morality must be digested in your life perfectly, completely, through and through, until it doesn’t appear in your life, so morality *is* your life. So at that time, morality is no trace of morality. “No trace of morality” is called spiritual life, religion, so-called religion. So, if you have a spiritual life, no morality; it’s not necessary to have morality, because morality is included in spiritual life. 
+But I don’t mean that you should ignore the world of regulations, and constitutions, and government, and moralities, and religious life, et cetera. I tell you very often: ethics and government and regulations must be accepted by all sentient beings, because without this we cannot live in order. 
 
-And next, still you should accept spiritual life, but still spiritual life becomes a big burden. So, spiritual life must be digested through and through in your life, until it doesn’t appear in your surface, without leaving any trace. And then, spiritual life doesn’t leave its own trace. At that time, it is called peace, harmony. So, when the spiritual life is completely digested in your life, perfect peace. That is called liberty, freedom. 
+But a point is, we have to digest through and through the constitutions, ethics, and government, in your life, until its form or trace appears in your life – in other words ethics, regulations, constitutions are completely alive in your life. 
 
-[From this point,] freedom doesn’t ignore spiritual life, morality, ethics, government, etc. Because in this discrimination, you have to find the liberty. How? Digest the morality in the constitutions, and ethics, and in your everyday life, through and through. Because morality and you are always working, just like a forward and backward steps. You cannot ignore [it]. Like a mountain and you. Until mountain’s life becomes one with you, you should digest mountain’s life. And then, your life is mountains. 
+If you want to know the American constitution, you should know yourself. So, your life is the constitution. But your life is always working very smoothly, without being stuck in the idea of the constitution, because your whole life is the constitution. 
+
+So at that time, it is called *no government*, *no constitution*. And then, that is called *morality*, because people can live in peace and harmony, without government. How do they live? According to morality, they can live. 
+
+That’s why if you live, you should accept morality. But if you are stuck in morality, morality becomes a big burden for you. But on the other hand, you cannot ignore it. So the important point is that morality must be digested in your life perfectly, completely, through and through, until it doesn’t appear in your life. So morality *is* your life. At that time, morality is no trace of morality. “No trace of morality” is called *spiritual life*, so-called *religion*. So, if you have a spiritual life, no morality; it’s not necessary to have morality, because morality is included in spiritual life. 
+
+And next, still you should accept spiritual life, but still spiritual life becomes a big burden. So, spiritual life must be digested through and through in your life, until it doesn’t appear [on the surface], without leaving any trace. And then, spiritual life doesn’t leave its own trace. At that time, it is called peace, harmony. 
+
+So, when the spiritual life is completely digested in your life: perfect peace. That is called liberty, freedom. 
+
+[From this point,] freedom doesn’t ignore spiritual life, morality, ethics, government, etc. Because in this discrimination, you have to find the liberty. How? Digest the morality and the constitutions and ethics in your everyday life, through and through. 
+
+Because morality and you are always working, just like forward and backward steps. You cannot ignore [it]. Like a mountain and you. Until mountain’s life becomes one with you, you should digest the mountain’s life. And then, your life is the mountain. 
 
 So, that’s why here it says, “As soon as there is affirmation and denial, you lose your mind in confusion. If you don’t go into grades and stages, then there is no seeking.”
 
@@ -207,59 +231,63 @@ So, that’s why here it says, “As soon as there is affirmation and denial, yo
 
 > But say, is letting go right, or is holding fast right? At this point, if you have any trace of an interpretative route, you are still stuck in verbal explanations. 
 
-So finally, what you have to do is, anyway, accept the constitution by digesting everyday. Digesting the constitution in your life means practice it, until it [melts into] your life. 
+So finally, what you have to do is accept the constitution by digesting [it] everyday. Digesting the constitution in your life means practice it, until it [melts into] your life. 
 
-So, from this point, you should “hold it fast.” Hold fast the constitution, morality, ethics, or spiritual life. But next moment, you have to digest them perfectly. That means “letting go.” Because if you digest morality, morality is not there. If you digest mountain’s life completely, well, mountain’s life helps you very much. Because if you look at your life, it is mountain’s life, so there is no trace of the mountain’s life particularly; that is called “letting go.” But on the other hand, mountain’s life and your life is separated, so you have to “hold fast,” anyway not running right in appropriate way. This is everyday life. We have to digest it; completely beyond good or bad, right or wrong, or hard or not hard. Anyway, everyday we have to climb the mountain. 
+So, from this point, you should “hold it fast.” Hold fast the constitution, morality, ethics, or spiritual life. But next moment, you have to digest them perfectly; that means “letting go.” Because if you digest morality, morality is not there. If you digest mountain’s life completely... well, mountain’s life helps you very much, because if you look at your life, it is mountain’s life. So there is no trace of the mountain’s life particularly; that is called “letting go.” But on the other hand, mountain’s life and your life is separated, so you have to “hold fast,” anyway not running right in appropriate way. This is everyday life. We have to digest it; completely beyond good or bad, right or wrong, or hard or not hard. Every day, we have to climb the mountain. 
 
-So, what should I do? Should I be letting go always? No, it’s not right. Should I always be holding fast? It’s not right always. So, letting go, right, and holding fast, right. You need both.
+So, what should I do? Should I be letting go always? No, it’s not right. Should I always be holding fast? It’s not always right. So, letting go, right, and holding fast, right. We need both.
 
 *How?* 
 
-*Just this is it*. That’s all. The last word of gassho, last word of the climbing the mountain. What is the last word of the climbing the mountain? Completely beyond a matter of discussion. 
+*Just this is it*. That’s all. 
 
-“At this point, if you have any trace of an interpretative route,” if there is even slightly an interpretative route, “you are still stuck in verbal explanation.” It is true, it is true. That’s why in the picture of your world fabricated by your head, always there is suffering. Should I go this way or that way? Always suffering. But we should accept this suffering, this... wobbling. We should accept the flashing light; always “this is right,” “this is wrong.” But from moment to moment, everyday life is going, from moment to moment. It’s quick. 
+The last word of gassho, last word of climbing the mountain. What is the last word of the climbing the mountain? Completely beyond a matter of discussion. 
 
-So every day, you have to arrive, from moment to moment. 
+“At this point, if you have any trace of an interpretative route” – if there is even slightly an interpretative route – “you are still stuck in verbal explanation.” It is true, it is true. That’s why in the picture of your world fabricated by your head, always there is suffering. “Should I go this way or that way?” Always suffering. 
+
+But we should accept this suffering, this... wobbling. We should accept the flashing light; always “this is right,” “this is wrong.” 
+
+[...] Everyday life is going from moment to moment. It’s quick. So every day, you have to arrive, from moment to moment. 
 
 #### 44:56
 
 > If you are still involved with devices and objects, then all of this is haunting the fields and forests.
 
-In Japanese we say [*e so fu boku*]. *E* means “depend on”. *So* means “grass”, “grass”. “Depend on the grasses”. “Fuboku” means “to attach.” “Fu” means “to attach,” “boku” means “trees.” “Depend on grasses, attaching to the trees.” That is a Buddhist technical term, we say... according to the sense of karmic theory, people living in India, after human death, [the] soul is haunting somewhere. For at least 49 days, you are haunting. And then during those 49 days, there is nothing to depend on, that’s why those souls are depending on grasses and the trees. By the side of the road, or the mountains, wherever you may go. Or sometimes dew drops, sometimes a speck of dust on the leaves of the grasses. That is called *e so fu boku*; here it says “haunting the fields and forests.” It means a kind of ghost, haunting. Haunting, I don’t know... in other words, in the human world, there is always something. Even though you cannot see it, there is always something. 
+In Japanese we say [*e sō fu boku*]. *E* means “depend on.” *Sō* means “grasses.” “Depends on the grasses.” [...] *Fu* means “to attach,” *boku* means “trees.” “Depend on the grasses, attaching to the trees.” That is a Buddhist technical term we say. According to the sense of karmic theory, people in India believed after human death, [the] soul is haunting somewhere – for at least 49 days, you are haunting. And then during those 49 days, there is nothing to depend on, that’s why those souls are depending on the grasses and the trees, by the side of the road, or the mountains, wherever you may go. Or sometimes dew drops; sometimes a speck of dust on the leaves or the grasses. That is called *e sō fu boku*; here it says “haunting the fields and forests.” It means a kind of ghost, haunting. “Haunting,” I don’t know... In other words, in the human world, there is always something. Even though you cannot see it, there is always something. 
 
 So, in a Zen monastery, I tell you very often, the toilet is a very important place for practice with silence. Very silent, and concentrating on purifying your body, becoming one with the whole world. Because when you go to the toilet, very naturally you become alone. No one interrupts you. Don’t you think so? 
 
-Well, when I was in the army, I was always running into the toilet in order to read something. Because I had a kind of inspiration of examination or something, so immediately I would run to the toilet and sit down there and read, for five minutes or ten minutes. When I was sixteen years old, my head worked very quick. Nothing else; I sit down there and read, and ten minutes, I memorize. So, the toilet is a very individual, peaceful world. *[He laughs.]*
+Well, when I was in the army, I was always running into the toilet in order to read something. Because I had kind of the inspiration of an examination or something, so immediately I would run to the toilet and sit down there and read, for five minutes or ten minutes. When I was sixteen years old, my head worked very quick! *[He laughs.]* Nothing else, I sit down there and read, and in ten minutes, I memorize. 
+
+So, the toilet is a very individual, peaceful world. *[He laughs.]*
 
 Well, that is a joke, anyway. *[Laughter.]*
 
-But anyway, the toilet is one important place for silent practice. Toilet, and zendo, and bath room. *Bath room* is bathing. Because pretty easily you feel relaxed. If you feel relaxed, very naturally words coming up, and your behavior becomes a little bit rough. So, we naturally keep silent and moving toward the center. Moving toward the center. 
+But anyway, the toilet is one important place for silent practice. Toilet, and zendo, and bath room... *bath room* is bathing. Because pretty easily you feel relaxed. If you feel relaxed, very naturally words coming up, and your behavior becomes a little bit rough. So, we naturally keep silent, and moving toward the center. 
 
-Moving toward the center is very important; so-called, what would you say... centripetal force? That’s pretty important. When you walk in the, whatever... try it, okay? Try it after this, when you go back: just walk on the street, and you try to come back to the center, and walk steadily. At that time, you feel a certain weight. That is the weight of depth of your life. When you come back to the center, the whole picture of your life becomes pretty stable, because centripetal force makes a kind of weight of the depth of your personality. Simultaneously, centripetal force, a central force. So very naturally people are impressed by you. Don’t you think so? Yes.
+Moving toward the center is very important; so-called, what would you say... centripetal force? That’s pretty important. When you walk wherever... try it, okay? After this, when you go back: just walk on the street, and you try to come back to the center, and walk steadily. At that time, you feel a certain weight. That is the weight of the depth of your life. When you come back to the center, the whole picture of your life becomes pretty stable, because centripetal force makes a kind of weight of the depth of your personality. Simultaneously, centripetal force creates... a central force. *[He chuckles.]* So very naturally people are impressed by you. Don’t you think so? Yes, [it does].
 
-So coming back to the center is very important for us. But in everyday life we are always going *out*. But when you have very strong [central] force, very naturally you have this centripetal force, but sometimes people are completely going out, forgetting they are coming back to the center. Alright? 
+So, coming back to the center is very important for us. But in everyday life we are always going *out*. But when you have a very strong [central force], very naturally you have this [centripetal] force, but sometimes people are completely going out, forgetting about coming back to the center. Alright? 
 
-So, more or less, we have power or capability to come back to the center, even though you try to go out. Because you cannot always [be] going out. Very naturally, if you continually going out, you exhaust. When you exhaust, that is the signal of coming back to the center. 
+So, more or less, we have the power or capability to come back to the center, even though you try to go out. Because you cannot always [be] going out. Very naturally, if you are continually going out, you exhaust [yourself]. When you exhaust [yourself], that is the signal [to come] back to the center. 
 
-So, anyway, all of this is “haunting the fields and forests.” 
+#### 51:20
 
-#### 51:32
+So, anyway, “... all of this is haunting the fields and forests...” 
 
 > Even if you arrive immediately at the point of solitary liberation, you haven’t avoided looking back to the village gate from ten thousand miles away. 
 
-“Even if you arrive immediately at the point of solitary liberation” means the oneness of the mountain and you who are climbing the mountain – you say, “I get it.” You get exactly a feeling of oneness. But at that time, it is already something you can see objectively. So that oneness is not *real* oneness, that oneness is perception of the oneness, not the last word of the oneness. The last word of the oneness is constantly you must be alive right in the middle of oneness. *Constantly*. So that’s why if you think it, that is you immediately create a huge gap, just like [between] heaven and earth. That’s why here it says, “Even if you arrive immediately at the point of solitary liberation, you haven’t avoided looking back to the village gate from ten thousand miles away.” 
+“Even if you arrive immediately at the point of solitary liberation” means oneness of the mountain and you who are climbing the mountain – you say, “I get it!” You get exactly a feeling of oneness. But at that time, it is already something you can see objectively, so that oneness is not *real* oneness. That oneness is *perception* of the oneness, not *the last word* of the oneness. The last word of the oneness is constantly you must be alive right in the middle of oneness. *Constantly*. 
 
-Anyway, you are just floating around trees and grasses. It’s a [ghost story]. 
+So that’s why if you *think* it, that is you immediately create a huge gap, just like [between] heaven and earth. That’s why here it says, “Even if you arrive immediately at the point of solitary liberation, you haven’t avoided looking back to the village gate from ten thousand miles away.” Anyway, you are just floating around trees and grasses. It’s a [ghost story]. 
 
-The other day I went to the Milwaukee, and one of the Tibetan Buddhist groups taught me a very interesting... I don’t want to tell this story because it’s a little bit... I’m hesitating. But anyway, whatever he does, he always is always imaginative very strongly about Avalokiteshvara, compassion. He tried to create energy around that Avalokiteshvara, so-called compassion, whatever he does. Particularly when he has excitement: right in the middle of excitement, he tries to create energy of Avalokiteshvara’s compassion. And then he feels pretty good! So he said, “Is that right?” I said, “Yes or no.” Well, in a sense it’s pretty good, but in a sense it’s nothing but a ghost, depending on the trees and grasses. Depending on the imagination of Avalokiteshvara, and haunting the excitement, spiritual fascination. If you’re looking at it, if you are really stuck even a moment there, you just look at that experience. It’s not the last word of the peace. Peace and harmony is not something coming from outside, but from you. Not *from* you... *in* you. *You* are peace. You must be peace itself. 
+The other day I went to Milwaukee, and one of the Tibetan Buddhist groups taught me a very interesting... I don’t want to tell this story because it’s a little bit... I’m hesitating. *[He laughs a little.]* But anyway, whatever he does, he always is always very strongly  imaginative about Avalokiteshvara, [the bodhisattva of] compassion. He tries to create the energy of Avalokiteshvara, so-called compassion, whatever he does. Particularly when he has excitement: right in the middle of excitement, he tries to create energy of Avalokiteshvara’s compassion. And then he feels pretty good! So he said, “Is that right?” I said, “Yes, or no.” Well, in a sense it’s pretty good, but in a sense it’s nothing but a ghost. Depending on the trees and grasses. Depending on the imagination of Avalokiteshvara, and “haunting” the excitement, spiritual fascination. If you are really stuck even a moment there, you just look at that experience. It’s not the last word of peace. Peace and harmony is not something coming from outside, but from you. Not *from* you... *in* you. *You* are peace. You must be peace itself. 
 
-So even though you constantly practice like this, and even though you feel good because you can get the energy of compassion, or you can get the energy of your life, but it is still [an imaginary] world. Because it is nothing to do with real peace of you. Because you are still swayed away by imagination of energy, or spiritual fascination, or excitement... many things. Feeling good or feeling bad, always. But real peace is you must be the last word of your being, *exactly*. 
+So even though you constantly practice like this, and even though you feel good because you can get the energy of compassion, or you can get the energy of your life, but it is still [an imaginary] world. Because it is nothing to do with real peace of you. Because you are still swayed away by imagination of energy, or spiritual fascination, or excitement... many things. Feeling good or not feeling bad, always. But real peace is you must be the last word of your being, *exactly*. 
 
 So that’s why here it says like this:
 
 > Can you reach it? If you can’t, just comprehend this perfectly obvious public case. To test I am citing it: look!
-
-Do you have a question? 
 
 #### 56:05
 
@@ -267,15 +295,15 @@ In this koan, the important point is what *the last word* is. The last word is, 
 
 So, regardless of whether you are conscious of it or not, if you climb the mountain, you are one with the mountains, whether you try or you don’t try – because you do your best to climb the mountain. 
 
-But how do you do your best to climb the mountain? For what? To make money? To become famous? There are lots of destinations. By the destination, doing your best, a minimum of doing your best is changing; the value of doing your best really changes. 
+But how do you do your best to climb the mountain? For what? To make money? To gain fame? There are lots of destinations. By the destination, doing your best, a minimum of doing your best is [changing]; the value of doing your best really changes. 
 
 Well, this is another big topic we have to think about. So, I don’t want to talk [about it now]. 
 
-Do you have a question? 
+Do you have any questions? 
 
 #### 58:05
 
-**Question:** Hojo-san, does consciousness have any place in [just doing your best]? Or is it the... I guess I’m trying to think about something I heard discussion on called *feedback* in cybernetics: information back to yourself. What about checking oneself. How do we know if we slip off, or... It seems like from this koan, that *to check* is already to put a big distance. Do you understand what I’m trying to ask? 
+**Question:** Hojo-san, does consciousness have any place in [just doing ones best]? Or is it the... I guess I’m trying to think about something I heard discussion on called *feedback* in cybernetics: information back to yourself. What about checking oneself? How do we know if we slip off, or... It seems like from this koan, that *to check* is already to put a big distance. Do you understand what I’m trying to ask? 
 
 **Katagiri Roshi:** I don’t know if *check* is the appropriate term, but anyway, when you check, you just check, with your wholeheartedness. That’s very important. Don’t bring in anything else; when you have to check, just check, with wholeheartedness.
 
