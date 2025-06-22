@@ -331,6 +331,13 @@ Katagiri Roshi explains that there are two aspects of Buddhist practice: *the wa
 
 Summary not yet available.
 
+#####  [*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 1](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1)
+
+Summary not yet available.
+
+#####  [*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 2](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2)
+
+Summary not yet available.
 
 ##### [*The Awakening of Faith* – Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
 

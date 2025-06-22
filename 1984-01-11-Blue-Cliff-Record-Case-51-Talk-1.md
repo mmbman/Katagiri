@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 1"
 ---
 ## January 11, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-01-04-Blue-Cliff-Record-Case-50) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1984) \| [Previous](1984-01-04-Blue-Cliff-Record-Case-50) \| [Next](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -501,4 +501,4 @@ This is a very simple, quiet practice. So-called “plant the root of the life.�
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-01-04-Blue-Cliff-Record-Case-50) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [List](list#1984) \| [Previous](1984-01-04-Blue-Cliff-Record-Case-50) \| [Next](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)

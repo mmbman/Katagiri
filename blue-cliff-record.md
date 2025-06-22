@@ -70,8 +70,8 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1
 - [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 1](1983-12-21-Blue-Cliff-Record-Case-49-Talk-1)
 - [Case 49: San Sheng’s Golden Fish Who Has Passed through the Net, Talk 2](1983-12-28-Blue-Cliff-Record-Case-49-Talk-2)
 - [Case 50: Yun Men’s Every Atom Samadhi](1984-01-04-Blue-Cliff-Record-Case-50)
-- Case 51 Talk 1
-- Case 51 Talk 2
+- [Case 51: Hsueh Feng’s What Is It? – Talk 1](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1)
+- [Case 51: Hsueh Feng’s What Is It? – Talk 2](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2)
 - Case 52 Talk 2
 - Case 53
 - Case 54
