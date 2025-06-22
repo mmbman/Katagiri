@@ -337,57 +337,67 @@ So, from this point, all of us are exactly Buddha Shakyamuni. But we don’t kno
 
 **Katagiri Roshi:** It’s impossible. So stop it, anyway. *[Laughter.]* 
 
-And stop it to count, to accumulate. All you have to do is just to be present in the eon, right in the middle of eons period of time. Walk. Don’t you think so? If you try to measure that time, eternal time, *[he laughs,]* it makes you exhausted. 
+Stop [counting], [accumulating]; all you have to do is just to be present in the eon, right in the middle of eons period of time. Walk. Don’t you think so? If you try to measure that eternal time, it makes you exhausted. *[He laughs.]*
 
-I always tell you, [it’s] just like a person right in the middle of ocean, okay? Nothing to get in. Nothing to hold on. So it’s really [that the] ocean is the eternal world, nothing to hold on. What do you do? Do you want to count how far the other shore is from you? It’s impossible to count, to measure. Okay? 
+I always tell you, [it’s] just like a person right in the middle of ocean, okay? Nothing to get in. Nothing to hold on. So it’s really [that the] ocean is the eternal world; nothing to hold on. What do you do? Do you want to count how far the other shore is from you? It’s impossible to count, to measure. Okay? 
 
 **Questioner:** Okay.
 
 **Katagiri Roshi:** If you try to count and then understand the eternal period of time, and *then* you want to practice, it’s really impossible to do that. 
 
-And even though you... well, if you want to understand that eternal time, you can do it. But your mind is always restless. In order to be free from restlessness, you have to be present there, and free. Walk. That is called *make your life mature*. That is peace.
+And even though you... well, if you want to understand that eternal time, you can do it. But your mind is always restless. In order to be free from restlessness, you have to be present there, and free. Walk. 
+
+That is called *make your life mature*. That is peace.
 
 #### 1:06:30
 
-**Question:** Um, I have a question about... a lot of times I wonder why I’m on this path, and why humans constantly are looking for enlightenment, or going back to the true life. How did we ever get off the road? Why? Is it just solely to learn? Or, why? Why did we ever come out, why did we ever try to separate ourselves? 
+**Question:** Um, I have a question about... a lot of times I wonder why I’m on this path, and why humans constantly are looking for enlightenment, or going back to the true life. How did we ever get off the road? Why? Is it just solely to learn? Or... why? Why did we ever come out, why did we ever try to separate ourselves? 
 
 **Katagiri Roshi:** Separate from ... ?
 
-**Questioner:** From the life force. Why we choose to pretend like we’re separate from the oneness. 
+**Questioner:** From... the life force. Why [do] we choose to pretend like we’re separate from the oneness? 
 
 **Katagiri Roshi:** Uh-huh. Because we have a mind. Okay? We have consciousness. 
 
 The energy of the consciousness is to separate, analyze you and object and everything. This is the energy of consciousness and your mind. Alright? 
 
-So very naturally, you can slip off from the life force itself. On the other hand, by analyzing, synthesizing, and trying to understand your object and yourself, and then that is called the self. 
+So very naturally, you can slip off from the life force itself. On the other hand, by analyzing, synthesizing, and trying to understand your object and yourself, then that is called *the self*. 
 
-You know Descartes says, “I think, therefore I exist.” *[He chuckles.]* Okay? So, you cannot ignore that energy of mind. But, thanks to the energy of your mind, you can appreciate the presence of the self. 
+You know that Descartes says, “I think, therefore I exist.” Okay? *[He chuckles.]* So, you cannot ignore that energy of mind. Thanks to the energy of your mind, you can appreciate the presence of the self. That is called *self*. 
 
-That is called *self*. But the energy of the self means the quality of the self has the great power to bring the harmony to your life, looking at this life, so-called present, and past, and future, including life and death. This is the energy of the self. 
+But the energy of the self means the quality of the self has the great power to bring the harmony to your life, looking at this life, so-called present, and past, and future, including life and death. This is the energy of the self. 
 
-Energy of the self is very powerful because not only are we looking at this life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Life for birds, and insects, and woodchucks, you know? 
+Energy of the self is very powerful because [we are not only] looking at *this* life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Like birds, and insects, and woodchucks, you know? 
 
-I always say, “woodchuck.” Woodchuck always living in the trees, and dogs just walk under the tree, immediately, *[sound]*, you know? But this action is to see his life in terms of instinct. So, he is always looking at his life, just a small word, in terms of instinct. But the energy of the self is very powerful to look at this life and the other life, all the world, okay? Understanding as a whole, as one. That is a quality of the self. So that quality of the self is very vital. So that is called energy, life force. 
+I always say “woodchuck.” *[He laughs.]* Woodchuck is always living in the trees, and dogs just walk under the tree, immediately, *[sound]*, you know? 
 
-So life force itself is simultaneously birth, your life. Life force is something coming up. So that is just like a stream of water gushing out from the ground. So your birth is, let’s return to the source means life force constantly gushing out. That is, when something life force comes up, it is called birth. And when you are born in this world, simultaneously you have a mind and consciousness. 
+But this action is to see his life in terms of instinct. He is always looking at his life, just a small world, in terms of instinct. But the energy of the self is very powerful to look at this life and [other lives], all the world, okay? Understanding as a whole, as a one. That is a quality of the self. 
 
-So analyze, synthesize. But analyze, synthesize is nothing but in other words, consciousness and mind, energy of the consciousness and mind comes from life force itself. So you cannot ignore it. 
+So that quality of the self is very vital. So that is called *energy*, *life force*. 
 
-So thanks to the life energy of the consciousness [...] you can see, you can justify, you can confirm *you*, so-called *the self*. That energy of the self is not looking at only this life, but a big world: past, present, future, *as a whole*, as one. This is the energy of the self. 
+Life force itself is simultaneously birth, your life. Life force is something coming up [...]. So that is just like spring water gushing out from the ground. 
 
-And then if you understand like this, then we can return to this energy again. That is called *spiritual teacher*. 
+So “let’s return to the source” means life force constantly gushing out. That is, when [...] life force comes up, it is called *birth*. And when you are born in this world, simultaneously you have a mind and consciousness. So analyze, synthesize. [...] In other words the energy of the consciousness and mind comes from life force itself. You cannot ignore it. 
+
+So thanks to the life energy of the consciousness [...] you can see, you can justify, you can confirm *you*, so-called *the self*. That energy of the self is not looking at only this life, but a big world: past, present, future, *as a whole*, as a one. This is the energy of the self. 
+
+And then if you understand like this, then we can return to this energy again. That is called *spiritual teaching*. 
 
 So...
 
+So. 
+
 *[Laughter.]*
 
-No particular reason why we have to do it, because we already are there. So all we have to do is just to learn where we are, what is the self, what is the consciousness. Not analyzing or synthesizing the consciousness, but by the consciousness we should know the limitation of the consciousness. In other words, through the consciousness we should learn what the consciousness is. Because consciousness is nothing but the life force, energy of life force. 
+No particular reason why we have to do it, because we already are there. So all we have to do is just to learn where we are, what is the self, what is the consciousness. Not analyzing [and] synthesizing the consciousness, but by the consciousness we should know the limitation of the consciousness. *[He chuckles.]* In other words, through the consciousness we should learn what the consciousness is. Because consciousness is nothing but the energy of life force. 
 
-So we should learn through the consciousness. Very naturally you can know limitation of consciousness by the consciousness. *[He chuckles.]* Alright? 
+So we should learn through the consciousness. Very naturally you can know limitation of consciousness *by* the consciousness. *[He chuckles.]* Alright? 
 
-In other words, I always try to explain, or try to point out, pin down what the real reality you live in, always using a lot of words, and what is the best word. *[He laughs.]* But sometimes I say, “Yes, this one,” but it’s not. [...] 
+In other words, I always try to explain, or try to point out, pin down, what is the real reality you live in – always using lots of words, and what is the best word... *[He laughs.]* But sometimes I [go], “Yes! This one.” But it’s not. *[Unintelligible.]*
 
-So, using the words, with your best effort, anyway you should learn what the limitation of the mind, consciousness is. There is no particular reason why we have to do this, because we are there. So we should learn, day by day, what the mind is, what the self is, what the life force, energy of life force is.
+So, using the words, with your best effort, you should learn what the limitation of the mind, consciousness is. 
+
+There is no particular reason why we have to do this, because we are there. So we should learn, day by day, what the mind is, what the self is, what the energy of life force is.
 
 #### 1:15:18 end of recording
 
