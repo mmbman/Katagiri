@@ -53,7 +53,7 @@ So finally, you don’t know what to say.
 
 This is *the last word*; we say “last word.” *The truth*... whatever you say. 
 
-The last word is spoken for you, not for others. It’s not others’ story, this is already *your* story. Because it is already spoken – not for us, for you. Even though you don’t know what is the real reality you live in, it’s already spoken, that’s why you are already living there. 
+The last word is spoken for you, not for others. It’s not others’ story; this is already *your* story. Because it is already spoken – not for us, for you. Even though you don’t know what is the real reality you live in, it’s already spoken, that’s why you are already living there. 
 
 So, constantly you have to live there and practice it. Make your life mature. Deepen your life. 
 
@@ -61,7 +61,7 @@ So, constantly you have to live there and practice it. Make your life mature. De
 
 In *Prajñāpāramitā* – you can see this book, in the English version translated by Edward Conze, [...] verses of *Prajñāpāramitā*. This is a very interesting scripture in Buddhism. Some day I would like to study this one with you. (*Transcriber’s Note*: This might be referring to the book that is now titled *Perfect Wisdom: The Short Prajnaparamita Texts* by Edward Conze, or perhaps *The Perfection of Wisdom in Eight Thousand Lines & Its Verse Summary* translated by Edward Conze.)
 
-Of course, *Prajñāpāramitā* always emphasizes emptiness. But emptiness is not something [where] you have to always explain or speak about something in terms of emptiness. Emptiness is not that you explain [...] or you speak of everything from emptiness, or it doesn’t mean that you should act on everything *from* emptiness. This sutra [says] you are not only thinking of everything from emptiness, or acting on everything from emptiness, but you should *dwell in* [emptiness]. It says *dwell*. “You have to dwell in” means you have to *be present* in emptiness. While you speak of everything from emptiness, you create a gap between emptiness and you, because you are talking about [it]. And also if you act on everything from emptiness, it seems to [be] no attachment. So you don’t attach [to] anything because everything is empty.
+Of course, *Prajñāpāramitā* always emphasizes emptiness. But emptiness is not something [where] you have to always explain or speak about something in terms of emptiness. Emptiness is not that you explain [...] or you speak of everything from emptiness, or it doesn’t mean that you should act on everything from emptiness. This sutra [says] you are not only thinking of everything from emptiness, or acting on everything from emptiness, but you should *dwell in* [emptiness]. It says *dwell*. “You have to dwell in” means you have to *be present* in emptiness. While you speak of everything from emptiness, you create a gap between emptiness and you, because you are talking about [it]. And also if you act on everything from emptiness, it seems to [be] no attachment, so you don’t attach [to] anything because everything is empty.
 
 In this sutra, Subhuti talks about emptiness, Subhuti acts on everything from emptiness. Buddha says it is true, because he doesn’t have any attachment, but it is not the real way of Buddhistic life. Because you have to *live in* the emptiness, instead of looking at the emptiness in terms of emptiness – in other words, objectively. If you see even slightly everything from emptiness, it is nothing but the wheel of life, seeing everything objectively. But this sutra says “you have to dwell in” means you have to *live* in there. It means you have to be one with emptiness. It means your body and mind *is* emptiness.
 
@@ -77,13 +77,9 @@ The *real* doing zazen, it means to do zazen is to let you be in peace [and] in 
 
 At that time... well, what can I say? Nothing to say, you know? 
 
-So sometimes it is called *the last word*. But *last word* is not something to explain, but it’s something *clear*, which exists always. 
+So sometimes it is called *the last word*. But *last word* is not something to explain, it’s something *clear*, which exists always. 
 
-Anyway, *to dwell in zazen* is nothing to get in, [no way to] get something in your hand. So at that time, most people are very confused, upset. So-called *boredom*... *[He laughs.]* You feel boredom. And also you don’t like it; [you are] upset, afraid. If you get the spiritual fascination through zazen experience, you’re very surprised, you know? But that is nothing but the experience of spiritual fascination. Next moment, it disappears. 
-
-So finally all you have to do is just continuation of dwelling in zazen, dwelling in zazen. That’s all we have to do. 
-
-But if you achieve continuation of being present in zazen itself as one, most people are very surprised – confused, afraid, upset. Surprised. Because nothing. 
+Anyway, *to dwell in zazen* is nothing to get in, [no way to] get something in your hand. So at that time, most people are very confused, upset. So-called *boredom*... *[He laughs.]* You feel boredom. And also you don’t like it; [you are] upset, afraid. If you get the spiritual fascination through zazen experience, you’re very surprised, you know? But that is nothing but the experience of spiritual fascination. Next moment, it disappears. So finally all you have to do is just continuation of dwelling in zazen, dwelling in zazen. That’s all we have to do. But if you achieve continuation of being present in zazen itself as one, most people are very surprised – confused, afraid, upset. Surprised. Because nothing. 
 
 So, this sutra says, “A bodhisattva is not afraid, does not lose heart.” “[Does not] lose heart” means not afraid, not surprised, not upset, not confused. That means to achieve continuation, to achieve... undisturbed series of thought. 
 
@@ -138,7 +134,7 @@ You know, before winter, before you get snow, well, the autumn is very cloudy, w
 
 Then look at the mountains and the trees, and with a little bit of snow, each tree is just standing on the mountains. Well, it’s really beautiful. I say beautiful, but it’s something more than beautiful. *[He laughs.]* 
 
-It doesn’t say anything, but I was very impressed. Not only I; all of you are very impressed by that situation with the snowy mountains and trees in sunny days. It’s really beautiful. Something more than the term beauty, the definition of beauty. So I cannot say anything. Just “wow!”
+It doesn’t say anything, but I was very impressed. Not only I; all of you are very impressed by that situation with the snowy mountains and trees in sunny days. It’s really beautiful. Something more than the term beauty, the definition of beauty. So I cannot say anything. Just, “Wow!”
 
 If you experience something more than beautiful, well, you cannot get any words, so you just say “wow,” you know? You cannot find any appropriate term. So just face it, just dwell in and be present with it. 
 
@@ -158,9 +154,9 @@ So I cannot tell them anything, but I have lots of things to tell the trees, mou
 
 So, nothing to get in my hand, in terms of a sense of give and take, or pros and cons, success and failure, loss and gain. Nothing. Just be present, dwell in. At that time, nothing. 
 
-And then sometimes people are very confused, surprised, because if you feel *good*, you are completely surprised by beauty, or something. But if you don’t feel anything, you are completely surprised, confused by, infatuated with something, [that is] nothing there. You are completely infatuated with beauty or not beauty.
+And then sometimes people are very confused, surprised, because if you feel *good*, you are completely surprised by beauty, or something. But if you don’t feel anything, you are completely surprised, confused by, infatuated with something [that is] nothing there. You are completely infatuated with beauty or not beauty.
 
-So if you look at the trees: the life of tree is something more than the term so-called tree. Behind the tree is beautiful nature, beautiful... well, energy, or life force of nature. So, even though you cannot say what it is, if you look at the tree in that situation, well, you can see the tree, but something more than the tree. Simultaneously you can see the tree with the whole beautiful life force of nature. That’s why you feel [beauty]. 
+So if you look at the trees: the life of tree is something more than the term so-called *tree*. Behind the tree is beautiful nature, beautiful... well, energy, or life force of nature. So, even though you cannot say what it is, if you look at the tree in that situation, well, you can see the tree, but something more than the tree. Simultaneously you can see the tree with the whole beautiful life force of nature. That’s why you feel [its] beautiful. 
 
 [...] In terms of the *light*, so-called phenomena, you can use words: “that is a tree.” But the tree’s life in real reality is something more than the term, because the beautiful life force of nature is there. It’s a huge world. Okay? 
 
@@ -170,7 +166,7 @@ So, “pair by pair”: “the time of light and dark pair by pair.”
 
 That is an opportunity you can know what the last word is. [It is] spoken to you. 
 
-For this, it is not something you have to realize or you have to see something, or you have to know something. You have to be present with it constantly, and don’t be surprised. Don’t be surprised, and don’t lose heart. Anyway, continually be there. 
+For this, it is not something you have to realize, or you have to see something, or you have to know something. You have to be present with it constantly, and don’t be surprised. Don’t be surprised, and don’t lose heart. Anyway, continually be there. 
 
 #### 33:16
 
@@ -210,17 +206,17 @@ That’s why “born of the same lineage” means “they share the knowledge.�
 
 > Dying of different lineages, they are utterly separated.  
 
-If so, what is sharing the knowledge [with] each other? Or [...] “I am present with the mountains constantly as one” means not [a] combination, not “mixed up” ...
+If so, oneness, or “sharing the knowledge with each other,” or “I am present with the mountains constantly as one,” [does not mean a] combination; [it’s] not “mixed up.” ... 
 
 *[Tape change.]*
 
 ... you have to continually learn what the mountain is, you have to continually learn who you are. 
 
-So to learn you, to learn the mountains, and then be one with the mountains, you can share knowledge with the mountains, mountains share with you. “Dying of different lineages, you are utterly separated”: “utterly separated” is you, everyone lives from moment to moment. 
+So to learn you, to learn the mountains, and then be one with the mountains, you can share knowledge with the mountains, [and] mountains share with you. [But] “dying of different lineages, you are utterly separated,” “utterly separated” is you and everyone lives from moment to moment. 
 
 I always tell you, human beings are living always in a moment. If you die, *who* dies? No one helps you. When you die, no one. 
 
-When I cut my finger, you say, “Sorry, Katagiri,” but who feels pain? Whose blood comes up? Not yours! *My* blood comes up. Who feels pain? Not your pain; my pain. 
+When I cut my finger, you say, “Sorry, Katagiri” – but who feels pain? Whose blood comes up? Not yours! *My* blood comes up. Who feels pain? Not your pain. My pain. 
 
 Whatever you say, I have completely experienced my own pain. No one touches it. 
 
