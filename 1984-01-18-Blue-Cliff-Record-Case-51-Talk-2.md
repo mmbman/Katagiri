@@ -1,5 +1,5 @@
 ---
-title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? Talk 2"
+title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 2"
 ---
 ## January 18, 1984 Dharma Talk by Dainin Katagiri Roshi
 
