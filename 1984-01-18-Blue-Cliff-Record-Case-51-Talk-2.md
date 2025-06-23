@@ -242,7 +242,7 @@ So that’s why I have to look at all of you and try to explain some aspects of 
 
 On the other hand, I have to think why the people left! Because many people become the quality of my life. Because I create *my* own world, completely, so my own world is including all of your life. Your life is my world, my life.
 
-So I look at these guys [...] in terms of my viewpoint. So he is not he, he is my world. Do you understand that? That’s why you can criticize somebody else. *[He chuckles.]* Always criticize. But if you criticize, you always look at somebody objectively – that’s why it’s very difficult to share your life with each other in terms of compassion or warm heart. Okay? 
+So I look at these guys [...] in terms of my viewpoint. So he is not he, he is my world. Do you understand that? That’s why you can criticize somebody else. *[He chuckles.]* Always criticize. But if you criticize, you always look at somebody objectively – that’s why it’s very difficult to share your life with each other in terms of compassion or warm heart.
 
 So you have to know the two aspects. If you climb the mountains, you are completely living and dying in the same way as the beautiful life force of nature. You can live in the same way as the mountains, you can die in the same way as the mountains. But [it] doesn’t mean [it’s a] combination or mixed-up: you are you, and mountains [are] mountains. So constantly you have to learn who you are, what mountain is. 
 
@@ -259,15 +259,15 @@ Okay. So, next:
 
 Well, even Buddha Shakyamuni or Bodhidharma cannot understand it, cannot *know* what it is. But anyway Bodhidharma and Buddha Shakyamuni – or ancestors, your parents, your grandparents – continued to dwell in the beautiful life force of nature constantly, making their life mature, instead of *knowing* or *analyzing* constantly. [That] is a *part* of human activity, but it’s not all. 
 
-So, it is not something to realize or to know, but to dwell in and make your life deepen or mature. That means that, here it says, “even yellow head (Buddha) and blue eyes (Bodhidharma) have yet to discern.” It’s not a matter of discussion. No. It is something you have to do. 
+So, it is not something to realize or to know, but to dwell in and make your life deepen or mature. That means that, here it says, “even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.” It’s not a matter of discussion. No. It is something you have to do. 
 
 > South, North, East, West, let us return—  
 
-That’s why, let’s return to East, West, South, means, let’s return to *you*. Let’s return to your own world, that means, the center axis of the top, so-called *you*. Let’s return. Because you are you, but you have a great capability to continue to dwell in mountains and rivers and winters, sharing the knowledge with each other. 
+That’s why, let’s return to East, West, South, means, let’s return to *you*. Let’s return to your own world – that means the center axis of the top, so-called *you*. Let’s return. Because you are you, but you have a great capability to continue to dwell in mountains and rivers and winters, sharing the knowledge with each other. 
 
 So here it says, “South, North, East, West.” That means different kinds of human beings, different kinds of beings: trees, birds. Let’s return to individual life. Look at your life. Look at the trees. If you see the mountains while driving a car, let’s return to the trees. Just look at the trees. And at that time, you can say it is tree, but it’s not a tree, it is something more than a tree, because there is beautiful life force of nature there. 
 
-But is it completely beautiful life force of nature without [the] tree? Yes, it is a tree. So, beautiful life force of nature, and tree, you can see, becoming one, interconnected, interpenetrated. 
+But is it completely beautiful life force of nature without [the] tree? Yes, it is a tree. So, beautiful life force of nature, and tree, you can see becoming one, interconnected, interpenetrated. 
 
 So [you might ask,] “What do you mean? Where should we return?” So next it says, 
 
@@ -347,7 +347,7 @@ That is called *make your life mature*. That is peace.
 
 #### 1:06:30
 
-**Question:** Um, I have a question about... a lot of times I wonder why I’m on this path, and why humans constantly are looking for enlightenment, or going back to the true life. How did we ever get off the road? Why? Is it just solely to learn? Or... why? Why did we ever come out, why did we ever try to separate ourselves? 
+**Question:** Um, I have a question about... A lot of times I wonder why I’m on this path, and why humans constantly are looking for enlightenment, or going back to the true life. How did we ever get off the road? Why? Is it just solely to learn? Or... why? Why did we ever come out, why did we ever try to separate ourselves? 
 
 **Katagiri Roshi:** Separate from ... ?
 
@@ -355,19 +355,17 @@ That is called *make your life mature*. That is peace.
 
 **Katagiri Roshi:** Uh-huh. Because we have a mind. Okay? We have consciousness. 
 
-The energy of the consciousness is to separate, analyze you and object and everything. This is the energy of consciousness and your mind. Alright? 
+The energy of the consciousness is to separate, analyze, you and object and everything. This is the energy of consciousness and your mind. Alright? 
 
 So very naturally, you can slip off from the life force itself. On the other hand, by analyzing, synthesizing, and trying to understand your object and yourself, then that is called *the self*. 
 
 You know that Descartes says, “I think, therefore I exist.” Okay? *[He chuckles.]* So, you cannot ignore that energy of mind. Thanks to the energy of your mind, you can appreciate the presence of the self. That is called *self*. 
 
-But the energy of the self means the quality of the self has the great power to bring the harmony to your life, looking at this life, so-called present, and past, and future, including life and death. This is the energy of the self. 
+But the energy of the self means the quality of the self has the great power to bring the harmony to your life – looking at this life, so-called present, and past, and future, including life and death. This is the energy of the self. 
 
 Energy of the self is very powerful because [we are not only] looking at *this* life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Like birds, and insects, and woodchucks, you know? 
 
-I always say “woodchuck.” *[He laughs.]* Woodchuck is always living in the trees, and dogs just walk under the tree, immediately, *[sound]*, you know? 
-
-But this action is to see his life in terms of instinct. He is always looking at his life, just a small world, in terms of instinct. But the energy of the self is very powerful to look at this life and [other lives], all the world, okay? Understanding as a whole, as a one. That is a quality of the self. 
+I always say “woodchuck.” *[He laughs.]* Woodchuck is always living in the trees, and dogs just walk under the tree, immediately, *[sound]*, you know? But this action is to see his life in terms of instinct. He is always looking at his life, just a small world, in terms of instinct. But the energy of the self is very powerful to look at this life and [other lives], all the world, okay? Understanding as a whole, as a one. That is a quality of the self. 
 
 So that quality of the self is very vital. So that is called *energy*, *life force*. 
 
