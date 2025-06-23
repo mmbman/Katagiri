@@ -493,7 +493,7 @@ The destination is not far from you; it’s here. That is called vow; we say vow
 
 But this must last for a long time. Not [only] your lifetime; life after life. That’s why it is called “long-cherished.” You know? “Long-cherished aspiration,” which is called vow. 
 
-This is a very simple, quiet practice. So-called “plant the root of the life.” Virtuous quality.
+This is a very simple, quiet practice. So-called “plant the root of the life” – virtuous quality.
 
 #### 1:18:55 end of recording. 
 
