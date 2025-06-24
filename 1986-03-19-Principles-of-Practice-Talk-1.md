@@ -32,13 +32,13 @@ I think “the great matter of one’s whole life” is not only [in Dōgen’s 
 
 *Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 
-*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. This is the Way. All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
+*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 
 So *gakudō* is to study universal life beyond the conscious and unconscious worlds. This is *gakudō*. 
 
 *Sanzen* is to surrender one’s body and mind to *zen*, or tranquility. *Zen* sometimes means *samadhi*, one-pointedness; sometimes it is translated as *tranquility*; sometimes it is translated as *meditation*. But anyway, *san* means “to surrender oneself to.” To surrender, or to visit, or to be present... to go toward. This is *san*. So *sanzen* means to surrender one’s life to *zen* or tranquility. 
 
-*Zen* or tranquility means dimension of being in which there is no individual consciousness, so-called consciousness, or unconsciousness. So [not any] subtle signs of ideas, conscious world or unconscious world. 
+*Zen* or tranquility means dimension of being in which there is no individual consciousness, so-called consciousness or unconsciousness. So [no] subtle signs of ideas, conscious world or unconscious world. 
 
 In Japanese, tranquility is called *jakujō*. *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means if you are there, you are *exactly* there; nothing else except you. So that is very tranquil. Just like being present in the wilderness. There are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfectly tranquil. That is the meaning of *jaku*. So, completely nothing around you. 
 
@@ -46,19 +46,23 @@ And also *jō* of *jakujō* means literally “to express in detail.” So liter
 
 So *jaku* is kind of the essence of beings, how they exist. Everything exists exactly in peace, in harmony, in tranquility. But it is not something *abstract*, because it penetrates every aspect of everydayness. If you see a tree, if you see winter, if you see fine days – whatever you see, all sentient beings exist just exactly tranquil. You can see perfect tranquility through the form [of beings], every form of beings – trees, birds, and weather, et cetera. So that’s why *jō* of *jakujō* is tranquility which penetrates every aspect of everydayness. 
 
-So *jaku* is no one or nothing with which you want to talk – that is, according to [what Buddha said] or according to the Buddha’s teaching, we say, “Heaven and earth is the same and one root as my existence, your existence.” [Or] “I and heaven and earth are the same and one root.” Exactly that is called tranquility, exactly tranquility. Tranquility is no ideas, nothing to think, so you cannot think of it. Before you think of the universe, or you, whatever – the whole world, all existence, exactly exists in perfect peace and harmony. That is called “I and heaven and earth are the one and the same root.” 
+So *jaku* is no one or nothing with which you want to talk; that is, according to [what Buddha said] or according to the Buddha’s teaching, we say, “Heaven and earth is the same and one root as my existence, your existence.” [Or] “I and heaven and earth are the same and one root.” Exactly that is called tranquility, exactly tranquility. Tranquility is no ideas, nothing to think, so you cannot think of it. Before you think of the universe, or you – whatever – the whole world, all existence exactly exists in perfect peace and harmony. That is called “I and heaven and earth are the one and the same root.” 
 
-The *jō* of *jakujō* [is], according to Buddha’s teaching we say *hachimen reirō* (八面玲瓏), that means a clear and immaculate jewel with octagonal spheres. “Octagonal” [here] doesn’t mean eight angles, eight dimensions of the jewel or ball, [it means] many angles there. So existence is just like a huge ball or jewel which is clear and immaculate: that is *jaku*, exactly – perfect quiet. But on the other hand that ball has many aspects, many angles: that is called “octagonal spheres.” (That is *jō*.) That means many myriad, myriad aspects of human life, every day: getting up in the morning, washing your face, having your breakfast, studying, working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate. (*Transcriber’s Note:* For more detail, see the Sōtōshū’s *Dōgen’s Shōbōgenzō Volume VIII*, page 358, “crystal clear on all eight sides.”)
+The *jō* of *jakujō* [is], according to Buddha’s teaching, we say *hachimen reirō* (八面玲瓏). That means a clear and immaculate jewel with octagonal spheres. “Octagonal” [here] doesn’t mean eight angles or eight dimensions of the jewel or ball, [it means] many angles there. 
+
+So existence is just like a huge ball or jewel which is clear and immaculate. That is *jaku*, exactly: perfect quiet. But on the other hand that ball has many aspects, many angles: that is called “octagonal spheres.” (That is *jō*.) That means many myriad, myriad aspects of human life, every day. Getting up in the morning; washing your face; having your breakfast; studying; working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate. 
+
+(*Transcriber’s Note:* For more detail on *hachimen reirō*, see the Sōtōshū’s *Dōgen’s Shōbōgenzō, Volume VIII*, page 358, “crystal clear on all eight sides.”)
 
 This is the meaning of *sanzen*. So it’s very difficult to translate *sanzen* into English. If you say “the study of the Way through the practice of zazen,” it is true... but it is pretty difficult to express the real spirit of the practice. So I want to use this original term *sanzen*, so through this original term you can see the real spirit of practice.
 
 So let’s [look at] the meaning of *sanzen gakudō*, okay? *Sanzen* is you have to surrender your whole life to *zen* or *tranquility*, which is exactly the Way. 
 
-So *sanzen* is the same meaning as *gakudō*. What do we learn? The Way, it is the Way. 
+So *sanzen* is the same meaning as *gakudō*. What do we learn? The Way; it is the Way. 
 
-But what is the Way? That is universal life. What is universal life? How do we learn that universal life beyond conscious and unconscious world? 
+But what is the Way? That is universal life. What is universal life? How do we learn that universal life beyond [the] conscious and unconscious world? 
 
-So, you have to surrender your whole life to tranquility. Tranquility means perfect tranquility, stillness – on the other hand, that perfect tranquility penetrates every aspect of everydayness. So to surrender yourself to tranquility *totally* means you have to manifest perfect tranquility within each single form of everydayness: *gassho*, getting up in the morning, having breakfast, walking, et cetera. 
+You have to surrender your whole life to tranquility. Tranquility means perfect tranquility, stillness, [and] on the other hand that perfect tranquility penetrates every aspect of everydayness. So to surrender yourself to tranquility *totally* means you have to manifest perfect tranquility within each single form of everydayness: *gassho*, getting up in the morning, having breakfast, walking, et cetera. 
 
 That is the meaning of *sanzen gakudō*. 
 
@@ -68,21 +72,21 @@ The “great” [is] *maha* in Sanskrit. *Maha* doesn’t mean something limited
 
 And also we say “one’s whole life.” This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life. 
 
-Because, what do you have to learn if you want to live in your spiritual life? You have to learn or study something more than your consciousness can see or your consciousness cannot see – [something] beyond this. Anyway you have to learn that; that means you have to learn the whole world. In the whole world, there are countless, countless beings [that] exist. So, the whole span of your lifetime is not good enough to learn all sentient beings in the whole world, because it’s very short! But we have to learn the *whole* world, *all* sentient beings. *How*? We have to spend this life and the other life and the other life – life after life. This is the meaning of the “one’s whole life” here. 
+Because, what do you have to learn if you want to live in your spiritual life? You have to learn or study something more than your consciousness can see or your consciousness cannot see – [something] beyond this. [...] That means you have to learn the whole world. In the whole world, there are countless, countless beings [that] exist. So, the whole span of your lifetime is not good enough to learn all sentient beings in the whole world – because it’s very short! But we have to learn the *whole* world, *all* sentient beings. *How?* We have to spend this life and the other life and the other life... life after life. This is the meaning of the “one’s whole life” here. 
 
-So, in this case, to learn the Buddha Way, to learn the Way, is not a small matter which [can] be learned at the university or in a workshop, et cetera. No. You cannot do it. The matter of learning the Way or studying the Way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to spend the immense long span of your time. 
+So, in this case, to learn the Buddha Way – to learn the Way – is not a small matter which [can] be learned at the university or in a workshop, et cetera. No; you cannot do it. The matter of learning the Way or studying the Way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to spend the immense long span of your time. 
 
-This is the reason why Buddha is born in this world, the *Saddharma Pundarika Sutra* or *Lotus Sutra* says. Yes it is. [It is] why *you* were born; the same applies to the reason why you were born. The same reason. Why were you born in this world? Because you are Buddha, we are Buddha. If so, the advent of your existence is due to seeing this great matter in your whole life. Life after life, we have to learn. 
+This is the reason why Buddha is born in this world, the *Saddharma Pundarika Sutra* or *Lotus Sutra* says. Yes it is. [It is] why *you* were born; the same reason applies to the reason why you were born. Why were you born in this world? Because you are Buddha, we are Buddha. If so, the advent of your existence is due to seeing this great matter in your whole life. Life after life, we have to learn. 
 
 This is the purpose of practice, the purpose of spiritual life. 
 
-So what is the purpose of spiritual life? It is not the kind of individual experience which we believe usually, that spiritual life is accompanied by mysterious or [miraculous] experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. This is [the] purpose of spiritual life. 
+So what is the purpose of spiritual life? It is not the kind of individual experience which we usually believe, that spiritual life is accompanied by mysterious or [miraculous] experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. This is [the] purpose of spiritual life. 
 
 That’s why in the *Prajñāpāramitā Sutra* we say we have to attain *anuttara-samyak-sambodhi*, the complete, perfect, supreme enlightenment. [This is] in the *Prajñāpāramitā* we chant every day. And then, you can attain wisdom, *prajnaparamita*. In order to attain *anuttara-samyak-sambodhi*, perfect supreme enlightenment, that means you have to learn something more than you think or you cannot think. This is something very profound. 
 
 Even though you don’t understand this, we are struggling [toward] attaining this. That’s why we practice. That’s why we live in this world. 
 
-You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dōgen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life is very important, because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is [the] real reality [which] your life is. 
+You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dōgen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life, is very important because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is [the] real reality [which] your life is. 
 
 So you shouldn’t neglect it or treat it lightly. That’s why this is “the great matter of your *whole* life.” 
 
@@ -92,11 +96,11 @@ That’s why next [Dōgen] says:
 
 > In China there are the excellent examples of former Zen masters who cut off their arms or fingers. [...]
 
-I think this is [referring to] the Second Patriarch, Eka Daishi Zen Master, who expressed his strong aspiration for becoming a monk, but Bodhidharma didn’t immediately accept his will or desire, so Eka Zen Master kept standing outside in winter. And finally he wanted to express how strong his intention was, so he cut off his arm. 
+I think this is [referring to] the Second Patriarch, Eka Daishi Zen Master (Dazu Huike, 大祖慧可, c. 487–593), who expressed his strong aspiration for becoming a monk. But Bodhidharma didn’t immediately accept his will or desire, so Eka Zen Master kept standing outside in winter. And finally he wanted to express how strong his intention was, so he cut off his arm. 
 
-This example seems to be cruel or hard, we can say, in terms of usual common sense. But for Eka Daishi, for the Second Patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not [cold]. [It is] beyond any ideas of understanding that situation through our common sense, because he is realizing there is [an] important matter he has to seek for. That is *sanzen gakudō*. 
+We can say this example seems to be cruel or hard, in terms of usual common sense. But for Eka Daishi, for the Second Patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not [cold]. [It is] beyond any ideas of understanding that situation through our common sense, because he is realizing there is [an] important matter he has to seek for. That is *sanzen gakudō*. 
 
-So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing this or that. No one. But it’s coming up. When you have a very strong spirit coming up naturally, you cannot stop doing. 
+So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing this or that. No one. But it’s coming up. When you have a very strong spirit coming up, naturally you cannot stop doing. 
 
 So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. For him it is not hard practice, or not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
 
@@ -106,9 +110,9 @@ And also he says:
 
 > Long ago the Buddha Sakyamuni renounced both his home and his kingdom – another fine trace of the practice of the Way. Men of the present day, however, say that one need only practice that which is easily practiced. Their words are very mistaken and far removed from the Way.
 
-This is laziness. This is the nature of human beings. Unconsciously we try to justify the nature of human beings based on laziness. So, very naturally, we say that we need only practice that which is easily practiced. *Or*, somebody says we need hard practice. But why do you emphasize the need of hard practice, or why are you emphasizing the need of easy practice? You don’t yet realize how important [are the] things you have to seek for, so very naturally, you are always arguing. But if you really touch something important, energy is coming up naturally. Whatever people say, you just do it. 
+This is laziness; this is the nature of human beings. Unconsciously we try to justify the nature of human beings based on laziness, so very naturally, we say that we need only practice that which is easily practiced. *Or*, somebody says we need hard practice. But why do you emphasize the need of hard practice, or why are you emphasizing the need of easy practice? You don’t yet realize how important [are the] things you have to seek for, so very naturally, you are always arguing. But if you really touch something important, energy is coming up naturally. Whatever people say, you just do it. 
 
-But what you *just do* doesn’t hurt anybody. [Still], lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you [their idea].
+But [even if] what you *just do* doesn’t hurt anybody, [still,] lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you [their idea].
 
 That’s why here Dōgen Zenji says it like this: “Their words are very mistaken.” [They are]. 
 
@@ -124,13 +128,13 @@ That means, you can practice hard ... making the most of your spare moments of l
 
 *[Tape change.]*
 
-“If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.” So you really [want to] go on and on, making the most of your spare moments. 
+... “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.” So you really [want to] go on and on, making the most of your spare moments. 
 
-When I was at Eiheiji monastery, my position was one of the clerks. The task of the clerk in Eiheiji monastery is a very difficult one for the monks, because they couldn’t find any chance to do zazen and to participate in the other activities, because it’s pretty busy, so you have to exactly devote yourself to taking care of your task. 
+When I was at Eiheiji monastery, my position was one of the clerks. The task of the clerk in Eiheiji monastery is a very difficult one for the monks, because they can’t find any chance to do zazen and to participate in the other activities. Because it’s pretty busy, so you have to exactly devote yourself to taking care of your task. 
 
 But *I* wanted to participate in the ceremonies and other activities, and zazen. 
 
-Well, if you try to find [the opportunity], you can find it – find the opportunity to do this. So I did it. Not always, because the task always forces you to do this instead of doing something else, so very naturally you cannot do it. But if you try to find the opportunity to do this or that, very naturally you can do it. So I did it. 
+Well, if you try to find [it], you can find the opportunity to do this. So I did it. Not always, because the task always forces you to do this instead of doing something else, so very naturally you cannot do it. But if you try to find the opportunity to do this or that, very naturally you can do it. So I did it. 
 
 And many people said, “You are crazy”; “you are stupid.” But, well, I just kept doing it. Because I was very moved by the spirit of zazen mentioned by Hashimoto Roshi, so I did it. 
 
@@ -167,7 +171,7 @@ So this is [the] purpose of practice. Tomorrow I would like to talk about *bodhi
 
 **Question:** Is there a cognition?
 
-**Katagiri Roshi:** Yes, it’s a cognition, but... that cognition is – what would you say – the very inception of cognition, the very beginning of the cognition, which occurs. At that time, the very beginning of cognition is not cognition, because it is the first stage of cognition, so you cannot say *cognition*. The first stage of cognition is very touchy, very touchy – you don’t know what it is. If you say *cognition*, it’s already your conscious world. But *before* you say cognition, it’s not cognition. Is that clear? It’s very touchy, very touchy. 
+**Katagiri Roshi:** Yes, it’s a cognition, but... that cognition is – what would you say – the very inception of cognition, the very beginning of the cognition which occurs. At that time, the very beginning of cognition is not cognition, because it is the first stage of cognition, so you cannot say *cognition*. The first stage of cognition is very touchy, very touchy – you don’t know what it is. If you say *cognition*, it’s already your conscious world. But *before* you say cognition, it’s not cognition. Is that clear? It’s very touchy, very touchy. 
 
 Just like when you get up in the morning. When you wake up, you don’t know the first moment of waking up. You don’t know. You can know something *after* the first moment of the waking up. 
 
