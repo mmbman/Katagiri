@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 2"
 ---
 ## January 18, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -399,4 +399,4 @@ There is no particular reason why we have to do this, because we are there. So w
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1) \| [Next](1984-03-16-Awakening-of-Faith-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
