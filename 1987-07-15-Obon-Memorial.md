@@ -3,7 +3,7 @@ title: "Obon Memorial"
 ---
 ## July 15, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-06-20-Manas) \| [Next](1988-10-05-Review-and-Renew) \| Series: none
+#### [Previous](1987-06-20-Manas) | [Next](1988-10-05-Review-and-Renew) | [List](list#1987) | Series: none
 
 ### Transcript
 
@@ -183,4 +183,4 @@ Then when you have food, first be present peacefully in the stupa, in the presen
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-06-20-Manas) \| [Next](1988-10-05-Review-and-Renew) \| Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-20-Manas) | [Next](1988-10-05-Review-and-Renew) | [List](list#1987) | Series: none

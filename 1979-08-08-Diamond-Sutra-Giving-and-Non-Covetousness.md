@@ -3,7 +3,7 @@ title: "Diamond Sutra, Talk 10: Giving and Non-Covetousness"
 ---
 ## August 8, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1979) \| [Previous](1979-08-01-Diamond-Sutra-Emptiness) \| [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1979-08-01-Diamond-Sutra-Emptiness) | [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -240,4 +240,4 @@ I went to the convent in South Dakota, and from the convent I could see the Miss
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1979) \| [Previous](1979-08-01-Diamond-Sutra-Emptiness) \| [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1979-08-01-Diamond-Sutra-Emptiness) | [Next](1979-08-15-Diamond-Sutra-Dharma-Not-Dharma-Dharma) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)

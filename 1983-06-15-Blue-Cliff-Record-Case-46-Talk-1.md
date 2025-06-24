@@ -4,7 +4,7 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1
 
 ## June 15, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| [Next](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) | [Next](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ***Archive Issue:*** The online audio for this talk is actually from *Blue Cliff Record* Case 43 Talk 2, on the Five Ranks, so this talk is currently not available. However, the next talk sounds like the first talk.
 
@@ -18,4 +18,4 @@ title: "Blue Cliff Record Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 1
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| [Next](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) | [Next](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)

@@ -3,7 +3,7 @@ title: "Settling in the Vast Openness of the Sky"
 ---
 ## August 2, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: None
+####[Previous](1986-05-31-Goldenness-of-the-Earth) | [Next](1987-05-23-Karma-in-Buddhism) |  [List](list#1986) | Series: None
 
 ### Transcript
 
@@ -135,4 +135,4 @@ This is compassion, okay?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-05-31-Goldenness-of-the-Earth) \| [Next](1987-05-23-Karma-in-Buddhism) \| Series: None
+####[Previous](1986-05-31-Goldenness-of-the-Earth) | [Next](1987-05-23-Karma-in-Buddhism) |  [List](list#1986) | Series: None

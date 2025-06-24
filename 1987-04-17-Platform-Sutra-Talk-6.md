@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 6"
 ---
 ## April 17, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-04-10-Platform-Sutra-Talk-5) \| [Next](1987-04-24-Platform-Sutra-Talk-7) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-04-10-Platform-Sutra-Talk-5) | [Next](1987-04-24-Platform-Sutra-Talk-7) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Summary 
 
@@ -362,4 +362,4 @@ But if you try to explain, there are two things, always. But actually, not two: 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-04-10-Platform-Sutra-Talk-5) \| [Next](1987-04-24-Platform-Sutra-Talk-7) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-04-10-Platform-Sutra-Talk-5) | [Next](1987-04-24-Platform-Sutra-Talk-7) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)

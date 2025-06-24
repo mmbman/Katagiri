@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 20: Lung Ya’s Meaning of the Coming from the We
 ---
 ## August 26, 1981 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1981) \| [Previous](unfinished-1981-1) \| [Next](unfinished-1981-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](unfinished-1981-1) | [Next](unfinished-1981-2) | [List](list#1981) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -28,4 +28,4 @@ title: "Blue Cliff Record Case 20: Lung Ya’s Meaning of the Coming from the We
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1981) \| [Previous](unfinished-1981-1) \| [Next](unfinished-1981-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](unfinished-1981-1) | [Next](unfinished-1981-2) | [List](list#1981) | Series: [*Blue Cliff Record*](blue-cliff-record)

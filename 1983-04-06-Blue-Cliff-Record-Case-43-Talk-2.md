@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 43 Talk 2: The Five Ranks"
 ---
 ## April 6, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| [Next](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) | [Next](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -252,4 +252,4 @@ Remember this. My teacher said, when I complained a little bit about life (in th
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) \| [Next](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-03-16-Blue-Cliff-Record-Case-43-Talk-1) | [Next](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)

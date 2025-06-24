@@ -3,7 +3,7 @@ title: "Dealing with Death, Dealing with Life"
 ---
 ## January 7, 1989 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1989) \| [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| Next \| Series: [Miscellaneous](miscellaneous)
+#### [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | Next | [List](list#1989) | Series: [Miscellaneous](miscellaneous)
 
 ### Summary
 
@@ -164,4 +164,4 @@ I vow to attain it.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1989) \| [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) \| Next \| Series: [Miscellaneous](miscellaneous)
+#### [Previous](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | Next | [List](list#1989) | Series: [Miscellaneous](miscellaneous)

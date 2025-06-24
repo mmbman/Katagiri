@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 34: Yang Shan Asks “Where Have You Come From?�
 ---
 ## November 17, 1982 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1982) \| [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| [Next](1982-11-24-Blue-Cliff-Record-Case-35) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) | [Next](1982-11-24-Blue-Cliff-Record-Case-35) | [List](list#1982) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -234,4 +234,4 @@ I understand it’s pretty hard, because getting up in the morning is a very sim
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1982) \| [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) \| [Next](1982-11-24-Blue-Cliff-Record-Case-35) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) | [Next](1982-11-24-Blue-Cliff-Record-Case-35) | [List](list#1982) | Series: [*Blue Cliff Record*](blue-cliff-record)

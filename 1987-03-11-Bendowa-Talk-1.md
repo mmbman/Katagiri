@@ -3,7 +3,7 @@ title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 1"
 ---
 ## March 11, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendōwa*](bendowa)
+#### [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) | [Next](1987-03-12-Bendowa-Talk-2) | [List](list#1987) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -265,4 +265,4 @@ That is what Dōgen Zenji [says] here: if it doesn’t arise, you should cease f
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) \| [Next](1987-03-12-Bendowa-Talk-2) | Series: [*Bendōwa*](bendowa)
+#### [Previous](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) | [Next](1987-03-12-Bendowa-Talk-2) | [List](list#1987) | Series: [*Bendōwa*](bendowa)

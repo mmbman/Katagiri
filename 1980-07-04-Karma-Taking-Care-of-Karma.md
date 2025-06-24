@@ -3,7 +3,7 @@ title: "Karma: Taking Care of Karma"
 ---
 ## July 4, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-07-03-Karma-Unmanifested) \| [Next](1980-07-10-Karmic-Retribution-in-Present-Life) \| Series: [Karma](karma)
+#### [Previous](1980-07-03-Karma-Unmanifested) | [Next](1980-07-10-Karmic-Retribution-in-Present-Life) | [List](list#1980) | Series: [Karma](karma)
 
 ### Summary
 
@@ -236,4 +236,4 @@ That is the conclusion of my talk this week. Do you have any questions?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-07-03-Karma-Unmanifested) \| [Next](1980-07-10-Karmic-Retribution-in-Present-Life) \| Series: [Karma](karma)
+#### [Previous](1980-07-03-Karma-Unmanifested) | [Next](1980-07-10-Karmic-Retribution-in-Present-Life) | [List](list#1980) | Series: [Karma](karma)

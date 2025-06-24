@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 2
 ---
 ## June 1, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) \| [Next](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) | [Next](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -258,4 +258,4 @@ Okay?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) \| [Next](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) | [Next](1983-06-15-Blue-Cliff-Record-Case-46-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)

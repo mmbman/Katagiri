@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 1"
 ---
 ## March 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) \| [Next](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) | [Next](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Summary
 
@@ -359,4 +359,4 @@ I think you can read the book  [*The Zen Doctrine of No Mind*] written by D.T. S
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) \| [Next](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) | [Next](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)

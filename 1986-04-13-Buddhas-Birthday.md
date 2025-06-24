@@ -3,7 +3,7 @@ title: "Buddha’s Birthday"
 ---
 ## April 13, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-04-12-Receiving-the-Precepts) \| [Next](1986-04-26-Three-Collective-Pure-Precepts) \| Series: [Zen Forms](zen-forms)
+#### [Previous](1986-04-12-Receiving-the-Precepts) | [Next](1986-04-26-Three-Collective-Pure-Precepts) | [List](list#1986) | Series: [Zen Forms](zen-forms)
 
 
 ### Summary
@@ -98,4 +98,4 @@ Thank you very much.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-04-12-Receiving-the-Precepts) \| [Next](1986-04-26-Three-Collective-Pure-Precepts) \| Series: [Zen Forms](zen-forms)
+#### [Previous](1986-04-12-Receiving-the-Precepts) | [Next](1986-04-26-Three-Collective-Pure-Precepts) | [List](list#1986) | Series: [Zen Forms](zen-forms)

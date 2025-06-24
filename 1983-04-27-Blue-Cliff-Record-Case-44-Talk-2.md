@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Tal
 ---
 ## April 27, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| [Next](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) | [Next](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -348,4 +348,4 @@ So, you cannot be careless. But I don’t mean you should be nervous. No. You ca
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) \| [Next](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-04-20-Blue-Cliff-Record-Case-44-Talk-1) | [Next](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)

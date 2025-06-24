@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts"
 ---
 ## April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-04-13-Buddhas-Birthday) \| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| Series: [Precepts](precepts)
+#### [Previous](1986-04-13-Buddhas-Birthday) | [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [List](list#1986) | Series: [Precepts](precepts)
 
 ### Summary
 
@@ -124,4 +124,4 @@ Vow is a big hope, huge hope.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-04-13-Buddhas-Birthday) \| [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| Series: [Precepts](precepts)
+#### [Previous](1986-04-13-Buddhas-Birthday) | [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [List](list#1986) | Series: [Precepts](precepts)

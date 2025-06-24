@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 4: Te Shan Carrying His Bundle, Talk 1"
 ---
 ## May 8, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| [Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) | [Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) | [List](list#1980) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -221,4 +221,4 @@ Tomorrow, I would like to read the commentary by Engo Zen Master. It’s a very 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) \| [Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-04-20-Blue-Cliff-Record-Case-3-Talk-2) | [Next](1980-05-18-Blue-Cliff-Record-Case-4-Talk-2) | [List](list#1980) | Series: [*Blue Cliff Record*](blue-cliff-record)

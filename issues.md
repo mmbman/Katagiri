@@ -2,7 +2,7 @@
 title: Issues
 ---
 
-[Home](index) \| [Talk List](list) \| [Summaries](summaries) \| [Search](search)
+[Home](index) | [Talk List](list) | [Summaries](summaries) | [Search](search)
 
 This is an ongoing list of issues discovered in the online audio files. Some of these might be problems with the original recordings, but many might be fixable.
 
@@ -22,4 +22,4 @@ The beginning and ending of this talk are missing, and what exists in the audio 
 This talk seems to include only the first side of the tape. Any discussion of the verse or notes is missing.
 
 
-[Home](index) \| [Talk List](list) \| [Summaries](summaries) \| [Search](search)
+[Home](index) | [Talk List](list) | [Summaries](summaries) | [Search](search)

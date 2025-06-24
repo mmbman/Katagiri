@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 18: National Teacher Chung’s Seamless Monument"
 ---
 ## July 18, 1981 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1981) \| [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) | [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) | [List](list#1981) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -314,4 +314,4 @@ That’s why [Tan Yuan] said, “Within the crystal palace, there is no one who 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1981) \| [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) \| [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-07-23-Diamond-Sutra-Final-Lecture) | [Next](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1) | [List](list#1981) | Series: [*Blue Cliff Record*](blue-cliff-record)

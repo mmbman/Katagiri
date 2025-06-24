@@ -3,7 +3,7 @@ title: "Principles of Practice, Talk 5: Direct Transmission"
 ---
 ## March 23, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-22-Principles-of-Practice-Talk-4) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-22-Principles-of-Practice-Talk-4) | [Next](1986-04-12-Receiving-the-Precepts) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)
 
 ### Transcript
 
@@ -415,4 +415,4 @@ Uchiyama Roshi took the example of the helicopter. Individual life is just like 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-08-Triple-Treasure-Lecture-1) \| [Next](1986-04-12-Receiving-the-Precepts) \| Series: [Precepts](precepts)
+#### [Previous](1986-03-22-Principles-of-Practice-Talk-4) | [Next](1986-04-12-Receiving-the-Precepts) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)

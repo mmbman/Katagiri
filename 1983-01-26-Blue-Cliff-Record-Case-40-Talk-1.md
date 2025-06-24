@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 1"
 ---
 ## January 26, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) | [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -167,4 +167,4 @@ That is oneness, the-same-and-oneness. Heaven and earth and you are the-same-and
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) \| [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-01-19-Blue-Cliff-Record-Case-39-Talk-2) | [Next](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)

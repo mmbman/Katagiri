@@ -6,7 +6,7 @@ The *Blue Cliff Record* (*Hekiganroku*) is a renowned collection of one hundred 
 
 Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1989. Listed below are the talks that are present in the online audio archive. 
 
-[Talk List](blue-cliff-record) \| Talk Summaries
+[Talk List](blue-cliff-record) | Talk Summaries
 
 ---
 

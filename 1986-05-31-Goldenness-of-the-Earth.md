@@ -3,7 +3,7 @@ title: "The Goldenness of the Earth, the Sweet Milk of the Long River"
 ---
 ## May 31, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| Series: [*Genjokoan*](genjokoan)
+#### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjokoan*](genjokoan)
 
 ### Summary
 
@@ -88,4 +88,4 @@ But your body and mind biologically belongs to any denomination. That’s fine. 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) \| [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| Series: [*Genjokoan*](genjokoan)
+#### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjokoan*](genjokoan)

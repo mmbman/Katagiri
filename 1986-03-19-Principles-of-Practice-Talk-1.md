@@ -3,7 +3,7 @@ title: "Principles of Practice, Talk 1: The Purpose of Practice"
 ---
 ## March 19, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| [Next](1986-03-20-Principles-of-Practice-Talk-2) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-15-Triple-Treasure-Lecture-2) | [Next](1986-03-20-Principles-of-Practice-Talk-2) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)
 
 
 ### Transcript
@@ -341,4 +341,4 @@ But actually, we cannot ignore that specific event. We have to face that specifi
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-15-Triple-Treasure-Lecture-2) \| [Next](1986-03-20-Principles-of-Practice-Talk-2) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-15-Triple-Treasure-Lecture-2) | [Next](1986-03-20-Principles-of-Practice-Talk-2) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)

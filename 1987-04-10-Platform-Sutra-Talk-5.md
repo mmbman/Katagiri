@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 5"
 ---
 ## April 10, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-04-17-Platform-Sutra-Talk-6) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-04-03-Platform-Sutra-Talk-4) | [Next](1987-04-17-Platform-Sutra-Talk-6) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Summary
 
@@ -235,4 +235,4 @@ So that is the dragon; dragon means dependent co-origination or emptiness. That 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-04-03-Platform-Sutra-Talk-4) \| [Next](1987-04-17-Platform-Sutra-Talk-6) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-04-03-Platform-Sutra-Talk-4) | [Next](1987-04-17-Platform-Sutra-Talk-6) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)

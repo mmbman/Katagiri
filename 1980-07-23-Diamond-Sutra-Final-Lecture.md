@@ -3,7 +3,7 @@ title: "Diamond Sutra, Talk 45: Final Lecture"
 ---
 ## July 23, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| [Next](1981-07-18-Blue-Cliff-Record-Case-18) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) | [Next](1981-07-18-Blue-Cliff-Record-Case-18) | [List](list#1980) | Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -279,4 +279,4 @@ Unfortunately I have to go to Omaha this weekend, I cannot be [at the rummage sa
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| [Next](1981-07-18-Blue-Cliff-Record-Case-18) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) | [Next](1981-07-18-Blue-Cliff-Record-Case-18) | [List](list#1980) | Series: [*Diamond Sutra*](diamond-sutra)

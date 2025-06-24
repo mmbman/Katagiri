@@ -3,7 +3,7 @@ title: "Platform Sutra – Talk 3"
 ---
 ## March 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-20-Platform-Sutra-Talk-2) \| [Next](1987-03-28-Living-in-Vow) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-03-20-Platform-Sutra-Talk-2) | [Next](1987-03-28-Living-in-Vow) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)
 
 ### Summary 
 
@@ -249,4 +249,4 @@ So very naturally, your great greed turns into the Precepts. That’s why it say
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1987-03-20-Platform-Sutra-Talk-2) \| [Next](1987-03-28-Living-in-Vow) | Series: [*Platform Sutra*](platform-sutra)
+#### [Previous](1987-03-20-Platform-Sutra-Talk-2) | [Next](1987-03-28-Living-in-Vow) | [List](list#1987) | Series: [*Platform Sutra*](platform-sutra)

@@ -3,7 +3,7 @@ title: "Karma: Unmanifested Karma"
 ---
 ## July 3, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-07-02-Karma-Where-Karma-Originates) \| [Next](1980-07-04-Karma-Taking-Care-of-Karma) \| Series: [Karma](karma)
+#### [Previous](1980-07-02-Karma-Where-Karma-Originates) | [Next](1980-07-04-Karma-Taking-Care-of-Karma) | [List](list#1980) | Series: [Karma](karma)
 
 ### Summary
 
@@ -290,4 +290,4 @@ The moment when you store good karma, at that time [it becomes] unmanifested kar
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-07-02-Karma-Where-Karma-Originates) \| [Next](1980-07-04-Karma-Taking-Care-of-Karma) \| Series: [Karma](karma)
+#### [Previous](1980-07-02-Karma-Where-Karma-Originates) | [Next](1980-07-04-Karma-Taking-Care-of-Karma) | [List](list#1980) | Series: [Karma](karma)

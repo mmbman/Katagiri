@@ -3,7 +3,7 @@ title: "Genjokoan: Talk 2 (Consciousness)"
 ---
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3) \| Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) | [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -268,4 +268,4 @@ So, [they are] always connected, something like that.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) \| [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3) \| Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-1) | [Next](1987-06-07-Shobogenzo-Genjokoan-Talk-3) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)

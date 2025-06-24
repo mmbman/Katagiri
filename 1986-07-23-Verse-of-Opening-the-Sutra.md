@@ -3,7 +3,7 @@ title: "Verse of Opening the Sutra"
 ---
 ## July 23, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1986-10-31-Tiantai-Buddhism-Talk-1) \| Series: [Zen Forms](zen-forms)
+#### [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: [Zen Forms](zen-forms)
 
 ### Summary
 
@@ -256,4 +256,4 @@ I think that the book written by Alice Miller – I forgot the title. If you wan
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) \| [Next](1986-10-31-Tiantai-Buddhism-Talk-1) \| Series: [Zen Forms](zen-forms)
+#### [Previous](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: [Zen Forms](zen-forms)

@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 23"
 ---
 ## October 19, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-05-24-Awakening-of-Faith-Talk-13) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [Previous](1984-05-24-Awakening-of-Faith-Talk-13) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 
 ### Transcript
@@ -521,4 +521,4 @@ But if you do it, you are caught by the intellect. *[He laughs.]* So that’s wh
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-05-24-Awakening-of-Faith-Talk-13) \| [Next](1985-06-22-Introduction-to-Buddhism)
+#### [Previous](1984-05-24-Awakening-of-Faith-Talk-13) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)

@@ -3,7 +3,7 @@ title: "Principles of Practice, Talk 3: High Resolve"
 ---
 ## March 21, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-20-Principles-of-Practice-Talk-2) \| [Next](1986-03-22-Principles-of-Practice-Talk-4) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-20-Principles-of-Practice-Talk-2) | [Next](1986-03-22-Principles-of-Practice-Talk-4) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)
 
 
 ### Transcript
@@ -376,4 +376,4 @@ That’s surrender. But it’s very difficult to do this, because always the sel
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-20-Principles-of-Practice-Talk-2) \| [Next](1986-03-22-Principles-of-Practice-Talk-4) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-20-Principles-of-Practice-Talk-2) | [Next](1986-03-22-Principles-of-Practice-Talk-4) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)

@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 1 of 7: Significance of Ordination"
 ---
 ## February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1985-06-22-Introduction-to-Buddhism) \| [Next](1986-03-01-Three-Aspects-of-Repentance) \| Series: [Precepts](precepts)
+#### [Previous](1985-06-22-Introduction-to-Buddhism) | [Next](1986-03-01-Three-Aspects-of-Repentance) | [List](list#1986) | Series: [Precepts](precepts)
 
 ### Summary
 
@@ -154,4 +154,4 @@ Okay. Next Saturday, we’ll explain a little more about the concrete aspects of
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1985-06-22-Introduction-to-Buddhism) \| [Next](1986-03-01-Three-Aspects-of-Repentance) \| Series: [Precepts](precepts)
+#### [Previous](1985-06-22-Introduction-to-Buddhism) | [Next](1986-03-01-Three-Aspects-of-Repentance) | [List](list#1986) | Series: [Precepts](precepts)

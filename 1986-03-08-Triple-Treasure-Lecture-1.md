@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 ---
 ## March 8, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1986-03-15-Triple-Treasure-Lecture-2) \| Series: [Precepts](precepts)
+#### [Previous](1986-03-01-Three-Aspects-of-Repentance) | [Next](1986-03-15-Triple-Treasure-Lecture-2) | [List](list#1986) | Series: [Precepts](precepts)
 
 ### Summary
 
@@ -204,4 +204,4 @@ But it’s pretty easy to stay with the result. And then, the Buddhist way is yo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-01-Three-Aspects-of-Repentance) \| [Next](1986-03-15-Triple-Treasure-Lecture-2) \| Series: [Precepts](precepts)
+#### [Previous](1986-03-01-Three-Aspects-of-Repentance) | [Next](1986-03-15-Triple-Treasure-Lecture-2) | [List](list#1986) | Series: [Precepts](precepts)

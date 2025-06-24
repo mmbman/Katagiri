@@ -3,8 +3,8 @@ title: "Glossary"
 description: A work-in-progress glossary of terms used in the talks.
 ---
 
-[List](list#appendices) \| 
-[Previous](1989-01-07-Dealing-with-Death-Dealing-with-Life) \| 
+[List](list#appendices) | 
+[Previous](1989-01-07-Dealing-with-Death-Dealing-with-Life) | 
 [Next](dogen)
 
 ---

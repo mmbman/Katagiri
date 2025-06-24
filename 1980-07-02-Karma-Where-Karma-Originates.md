@@ -3,7 +3,7 @@ title: "Karma: Where Karma Originates"
 ---
 ## July 2, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-07-01-Karma-Twelve-Link-Causation) \| [Next](1980-07-03-Karma-Unmanifested) \| Series: [Karma](karma)
+#### [Previous](1980-07-01-Karma-Twelve-Link-Causation) | [Next](1980-07-03-Karma-Unmanifested) | [List](list#1980) | Series: [Karma](karma)
 
 ### Summary
 
@@ -352,4 +352,4 @@ So that’s why it’s a very unstable field. But all we have to do is do our be
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-07-01-Karma-Twelve-Link-Causation) \| [Next](1980-07-03-Karma-Unmanifested) \| Series: [Karma](karma)
+#### [Previous](1980-07-01-Karma-Twelve-Link-Causation) | [Next](1980-07-03-Karma-Unmanifested) | [List](list#1980) | Series: [Karma](karma)

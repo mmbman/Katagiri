@@ -3,7 +3,7 @@ title: Resources
 description: 
 ---
 
-[List](list#appendices) \| 
+[List](list#appendices) | 
 [Previous](books)
 
 These are miscellaneous links that I don’t have another place for yet.

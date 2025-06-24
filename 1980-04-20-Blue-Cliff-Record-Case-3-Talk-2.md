@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 3: Master Ma Is Unwell, Talk 2"
 ---
 ## April 20, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| [Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) | [Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) | [List](list#1980) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -352,4 +352,4 @@ That’s why *[unintelligible]* is necessary for us. Why don’t you read “The
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) \| [Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-04-19-Blue-Cliff-Record-Case-3-Talk-1) | [Next](1980-05-08-Blue-Cliff-Record-Case-4-Talk-1) | [List](list#1980) | Series: [*Blue Cliff Record*](blue-cliff-record)

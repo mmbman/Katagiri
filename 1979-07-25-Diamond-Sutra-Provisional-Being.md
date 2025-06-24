@@ -3,7 +3,7 @@ title: "Diamond Sutra, Talk 8: Provisional Being"
 ---
 ## July 25, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1979) \| [Previous](1979-06-15-Fukanzazengi-Talk-7) \| [Next](1979-08-01-Diamond-Sutra-Emptiness) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1979-06-15-Fukanzazengi-Talk-7) | [Next](1979-08-01-Diamond-Sutra-Emptiness) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -220,4 +220,4 @@ Buddhism is always not to touch the extreme ideas, *perception of soul* or *perc
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1979) \| [Previous](1979-06-15-Fukanzazengi-Talk-7) \| [Next](1979-08-01-Diamond-Sutra-Emptiness) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1979-06-15-Fukanzazengi-Talk-7) | [Next](1979-08-01-Diamond-Sutra-Emptiness) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)

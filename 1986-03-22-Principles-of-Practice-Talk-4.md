@@ -3,7 +3,7 @@ title: "Principles of Practice, Talk 4: Faith"
 ---
 ## March 22, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1986-03-21-Principles-of-Practice-Talk-3) \| [Next](1986-03-23-Principles-of-Practice-Talk-5) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-21-Principles-of-Practice-Talk-3) | [Next](1986-03-23-Principles-of-Practice-Talk-5) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)
 
 
 ### Transcript
@@ -272,4 +272,4 @@ And then, take care of your everydayness with compassion, encouragement, generos
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1986-03-21-Principles-of-Practice-Talk-3) \| [Next](1986-03-23-Principles-of-Practice-Talk-5) \| Series: [Principles of Practice](principles-of-practice)
+#### [Previous](1986-03-21-Principles-of-Practice-Talk-3) | [Next](1986-03-23-Principles-of-Practice-Talk-5) | [List](list#1986) | Series: [Principles of Practice](principles-of-practice)

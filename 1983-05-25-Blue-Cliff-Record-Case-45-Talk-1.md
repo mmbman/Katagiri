@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1
 ---
 ## May 25, 1983 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1983) \| [Previous](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2) \| [Next](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2) | [Next](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
@@ -365,4 +365,4 @@ So if you become a *doan*, very naturally, you can hit the bell in the proper wa
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1983) \| [Previous](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2) \| [Next](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2) | [Next](1983-06-01-Blue-Cliff-Record-Case-45-Talk-2) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)

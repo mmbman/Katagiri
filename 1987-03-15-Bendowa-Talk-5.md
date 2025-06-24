@@ -3,7 +3,7 @@ title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 5"
 ---
 ## March 15, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-14-Bendowa-Talk-4) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendōwa*](bendowa)
+#### [Previous](1987-03-14-Bendowa-Talk-4) | [Next](1987-03-20-Platform-Sutra-Talk-2) | [List](list#1987) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -363,4 +363,4 @@ So, faith and belief is your activity. It must be based on activity. Religious a
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-14-Bendowa-Talk-4) \| [Next](1987-03-20-Platform-Sutra-Talk-2) | Series: [*Bendōwa*](bendowa)
+#### [Previous](1987-03-14-Bendowa-Talk-4) | [Next](1987-03-20-Platform-Sutra-Talk-2) | [List](list#1987) | Series: [*Bendōwa*](bendowa)

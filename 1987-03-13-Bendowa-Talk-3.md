@@ -3,7 +3,7 @@ title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 3"
 ---
 ## March 13, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) \| [Previous](1987-03-12-Bendowa-Talk-2) \| [Next](1987-03-14-Bendowa-Talk-4) | Series: [*Bendōwa*](bendowa)
+#### [Previous](1987-03-12-Bendowa-Talk-2) | [Next](1987-03-14-Bendowa-Talk-4) | [List](list#1987) | Series: [*Bendōwa*](bendowa)
 
 ### Transcript
 
@@ -376,4 +376,4 @@ But we still have to respect individual lives in their own characteristics, okay
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) \| [Previous](1987-03-12-Bendowa-Talk-2) \| [Next](1987-03-14-Bendowa-Talk-4) | Series: [*Bendōwa*](bendowa)
+#### [Previous](1987-03-12-Bendowa-Talk-2) | [Next](1987-03-14-Bendowa-Talk-4) | [List](list#1987) | Series: [*Bendōwa*](bendowa)

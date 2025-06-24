@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 33"
 ---
 ## March 7, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1985-10-25-Awakening-of-Faith-Talk-30) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
 
 <p align="center"><b>This transcript is in draft stage.</b></p>
 
@@ -233,4 +233,4 @@ So, next, we will go forward. So, please keep chart...
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1985-10-25-Awakening-of-Faith-Talk-30) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)

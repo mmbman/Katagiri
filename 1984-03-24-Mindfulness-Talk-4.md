@@ -3,7 +3,7 @@ title: "Mindfulness – Talk 4"
 ---
 ## March 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1984-03-25-Mindfulness-Talk-5) \| Series: [Mindfulness](mindfulness)
+#### [Previous](1984-03-23-Mindfulness-Talk-3) | [Next](1984-03-25-Mindfulness-Talk-5) | [List](list#1984) | Series: [Mindfulness](mindfulness)
 
 ### Summary 
 
@@ -359,4 +359,4 @@ So in the human world, if there are many different kinds of persons here, and th
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-03-23-Mindfulness-Talk-3) \| [Next](1984-03-25-Mindfulness-Talk-5) \| Series: [Mindfulness](mindfulness)
+#### [Previous](1984-03-23-Mindfulness-Talk-3) | [Next](1984-03-25-Mindfulness-Talk-5) | [List](list#1984) | Series: [Mindfulness](mindfulness)

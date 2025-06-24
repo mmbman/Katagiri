@@ -3,7 +3,7 @@ title: "Diamond Sutra, Talk 9: Emptiness"
 ---
 ## August 1, 1979 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1979) \| [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) | [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)
 
 ### Summary
 
@@ -265,4 +265,4 @@ If you don’t have more questions, I want to tell you one thing. At Omaha Zen C
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1979) \| [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) \| [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) \| Series: [*Diamond Sutra*](diamond-sutra)
+#### [Previous](1979-07-25-Diamond-Sutra-Provisional-Being) | [Next](1979-08-08-Diamond-Sutra-Giving-and-Non-Covetousness) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)

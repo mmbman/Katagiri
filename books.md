@@ -2,8 +2,8 @@
 title: Books
 ---
 
-[List](list#appendices) \| 
-[Previous](BCR) \| 
+[List](list#appendices) | 
+[Previous](BCR) | 
 [Next](resources)
 
 ---

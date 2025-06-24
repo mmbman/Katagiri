@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 1"
 
 ### Transcript
 
-<p align="center"><b>This transcript is in rough draft stage.</b></p>
+<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-51-lecture-1" target="_blank">Listen to this talk</a>

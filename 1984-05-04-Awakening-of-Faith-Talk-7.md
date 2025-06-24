@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 7"
 ---
 ## May 4, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1984) \| [Previous](1984-04-27-Awakening-of-Faith-Talk-6) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
@@ -335,4 +335,4 @@ So through this, two kinds of truth we have to know. *Real* truth. That real tru
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1984) \| [Previous](1984-04-27-Awakening-of-Faith-Talk-6) \| [Next](1985-06-22-Introduction-to-Buddhism) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)

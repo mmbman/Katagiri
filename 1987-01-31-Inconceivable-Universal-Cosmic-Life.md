@@ -3,7 +3,7 @@ title: "Inconceivable, Universal, Cosmic Life"
 ---
 ## January 31, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Miscellaneous](miscellaneous)
+#### [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | [List](list#1987) | Series: [Miscellaneous](miscellaneous)
 
 
 ### Transcript
@@ -20,4 +20,4 @@ Yesterday I got this letter from a student in San Francisco with a story of a tr
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1987) | [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | Series: [Miscellaneous](miscellaneous)
+#### [Previous](1986-10-31-Tiantai-Buddhism-Talk-1) | [Next](1987-03-06-Platform-Sutra-Talk-1) | [List](list#1987) | Series: [Miscellaneous](miscellaneous)

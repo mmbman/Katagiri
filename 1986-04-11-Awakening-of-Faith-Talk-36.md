@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 36"
 ---
 ## April 11, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1986) \| [Previous](1985-10-25-Awakening-of-Faith-Talk-30) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
 
 <p align="center"><b>This transcript is in draft stage.</b></p>
 
@@ -243,4 +243,4 @@ And then, the world which you have made a choice, is exactly manifestation of yo
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1986) \| [Previous](1985-10-25-Awakening-of-Faith-Talk-30) \| [Next](1986-02-22-Significance-of-Ordination) \| Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)

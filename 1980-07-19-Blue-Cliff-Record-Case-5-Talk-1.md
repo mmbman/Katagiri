@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 5: Hsueh Feng’s Grain of Rice, Talk 1"
 ---
 ## July 19, 1980 Dharma Talk by Dainin Katagiri Roshi
 
-#### [List](list#1980) \| [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| [Next](1980-07-23-Diamond-Sutra-Final-Lecture) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) | [Next](1980-07-23-Diamond-Sutra-Final-Lecture) | [List](list#1980) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -246,4 +246,4 @@ I always tell you this point, but still it’s pretty hard to touch, to pin down
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [List](list#1980) \| [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) \| [Next](1980-07-23-Diamond-Sutra-Final-Lecture) \| Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1980-07-16-Diamond-Sutra-Emptiness-and-Mind) | [Next](1980-07-23-Diamond-Sutra-Final-Lecture) | [List](list#1980) | Series: [*Blue Cliff Record*](blue-cliff-record)
