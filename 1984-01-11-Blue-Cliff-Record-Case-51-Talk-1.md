@@ -125,7 +125,7 @@ The two monks didn’t understand the meaning of “the last word”; that’s w
 
 > T’ou said, “Why didn’t you ask earlier?” 
 
-Because the last word exists always. *[Unintelligible]* ... completely beyond [whether] you understand or you don’t understand [...] you should face directly. In other words, you should [knock on the door] again and again. 
+Because the last word exists always. *[Unintelligible]* ... completely beyond [whether] you understand or you don’t understand... anyway, you should face directly. In other words, you should [knock on the door] again and again. 
 
 So, that’s why he said, “Why didn’t you ask earlier?” The monk answered very honestly:
 
