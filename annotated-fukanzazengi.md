@@ -168,7 +168,11 @@ This document is very much a work in progress. I will update this page as I tran
 - This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [39:44](1979-06-14-Fukanzazengi-Talk-6#3944).
 
 > This being the case, intelligence or lack of it is not an issue; make no distinction between the dull and the sharp-witted. If you concentrate your effort single-mindedly, that in itself is wholeheartedly engaging the way.
-Practice-realization is naturally undefiled. Going forward is, after all, an everyday affair.
+
+> Practice-realization is naturally undefiled. Going forward is, after all, an everyday affair.
+
+- “Practice-realization” is again *shushō* (修證); see above. 
+- For a good look at the meaning of the term *undefiled* in Buddhism, see “*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1” (in progress). 
 
 > In general, in our world and others, in both India and China, all equally hold the buddha-seal. While each lineage expresses its own style, they are all simply devoted to sitting, totally blocked in resolute stability. Although they say that there are ten thousand distinctions and a thousand variations, they just wholeheartedly engage the way in zazen. Why leave behind the seat in your own home to wander in vain through the dusty realms of other lands? If you make one misstep, you stumble past what is directly in front of you.
 
