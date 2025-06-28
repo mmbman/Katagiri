@@ -4,7 +4,7 @@ title: "Annotated Fukanzazengi"
 
 #### Annotations by Kikan Michael Howard
 
-#### Updated June 27, 2025
+#### Updated June 28, 2025
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
@@ -74,11 +74,12 @@ This document is very much a work in progress. I will update this page as I tran
 
 > Body and mind of themselves will drop away, ...
 
+- “Body and mind of themselves will drop away” (身心自然脱落) is related *shinjin datsuraku* (身心脱落), or “casting off body and mind,” one of Dōgen’s most well-known and frequently used terms. The specific term *shinjin datsuraku* is discussed in  [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) and in [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma). In particular, [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) is an important talk where dropping off body and mind is discussed in relation to *compassion*.
+- Note that the additional characters “自然” which are translated as “of themselves” are more often translated as “naturally.” As an aside, it might also be observed that Katagiri Roshi uses the words “very naturally” repeatedly in almost all of his talks. Whether there is a connection there must be left to the reader/listener to decide. (I say there probably is.)
 - “Body and mind of themselves will drop away” is extensively discussed in the [*Fukanzazengi*](fukanzazengi) series. Particularly see the beginning of [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](1979-06-12-Fukanzazengi-Talk-4): “In shikantaza, all delusions drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself.” And also: “Dōgen Zenji says, ‘Zazen is dropping off body and mind.’ Remember this. In your whole life, you should remember: ‘Zazen is dropping off body and mind.’ It means all delusions drop off.” 
 - “Body and mind dropping off” is discussed from the standpoint of Buddhist psychology in [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6).
 - Another clear reference is in [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4): “So that is, if you put your body *right there*, then you can drop off your body and mind, drop off, you can be free from the root of discriminating mind. That means you can be exactly one with the very minute vibration of the mind. And then, no concept of the minute vibration of the mind.”
-- Or, see [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind). This is an important talk where dropping off body and mind is discussed in relation to *compassion*.
-- “Dropping off body and mind” is closely related to “from the first, dullness and distraction are struck aside.” See the notes for “dullness and distraction are struck aside” below, closer to the end.
+- “Dropping off body and mind” is closely related to “from the first, dullness and distraction are struck aside.” This is mentioned in [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma). See also the notes for “dullness and distraction are struck aside” below, closer to the end.
 - A good search term in KR’s talks is “drop off.” There are many references to things that “drop off”: delusions, dullness and distraction, verbal explanations, all unwholesome things, all unwholesome human behaviors, thought and discursive thinking, ideas, the “concept of wondrous practice which you have realized” ... and so on.
 
 > ... and your original face will manifest. 

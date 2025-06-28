@@ -85,7 +85,7 @@ So *practice* is to surrender to simplicity in life. Simplicity means that which
  
 So *sanzen* is *zazen*. How can you surrender to simplicity in life? Dōgen Zenji [says], that is zazen. 
 
-And then he says, zazen is *shinjin dotsuraku*, that means “casting off body and mind,” in other words “dropping off body and mind.” Or, he says, “Dullness and distraction are struck aside from the beginning.”
+And then he says, zazen is *shinjin datsuraku*, that means “casting off body and mind,” in other words “dropping off body and mind.” Or, he says, “Dullness and distraction are struck aside from the beginning.”
 
 Dullness and distraction are not something you try to remove. If you try to remove [them], you create more distraction and dullness. Because dullness and distractions are something that [is] created, produced, by your attitude, by your actions, activities – so, according to [...] conditional elements, conditional circumstances. So you don’t know how to be free from [them]. No matter how long you use techniques – psychologically, philosophically, or scientifically – you never get freedom from dullness and distraction. The moment when you feel freedom from dullness and distraction, immediately you are confused right in the middle of freedom of dullness and distraction. That’s why human beings constantly seek for the psychologist to let you be free from dullness and distractions. You know? You always feed the psychologist. *[He laughs.]* 
 
