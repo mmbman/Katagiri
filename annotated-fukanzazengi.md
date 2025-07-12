@@ -8,7 +8,7 @@ title: "Annotated Fukanzazengi"
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
-The text annotated here is the [Sōtōshū translation of *Fukanzazengi* (external link)](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many English-speaking Zen centers. Alternative translations by Katagiri Roshi are provided where they are available. 
+The English translation annotated here is the [Sōtōshū translation of *Fukanzazengi* (external link)](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many English-speaking Zen centers. Alternative translations by Katagiri Roshi are provided where they are available. 
 
 English translations of *Fukanzazengi* vary widely, and no single translation should be taken as authoritative. For a comparison of six English translations of *Fukanzazengi*, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf). If six isn’t enough, see the [twenty translations organized by Fábio Rodrigues](https://artecontemplativa.com/wp-content/uploads/2021/05/Fukan-Zazengi-Eihei-Dogen-20-translations-Fabio-Rodrigues.pdf). Beyond that, compare [the translation at Confluence Zen Center](https://www.confluencezen.org/fukanzazengi/).
 
@@ -18,12 +18,14 @@ This document is very much a work in progress. I will update this page as I tran
 
 ### *Fukanzazengi*
 
+> 原 夫道本圓通、  
 > The Way is originally perfect and all-pervading. 
 
 - Katagiri Roshi translates this as, “The origin of the way is perfect and all-pervading.” See [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [56:36](1979-06-09-Fukanzazengi-Talk-1#5636), and also the start of [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2”](1979-06-10-Fukanzazengi-Talk-2) and at [34:20](1979-06-10-Fukanzazengi-Talk-2#3420).
 - "The Way" is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 - For an explanation of what “the Way” actually means in Buddhism, perhaps the best place to start is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), from the beginning, followed by the whole [“Principles of Practice”](principles-of-practice) series. Although, perhaps unsurprisingly, “the Way” is discussed in many of Katagiri Roshi’s other talks! In the future I may add more references here.
 
+> 爭假修證。  
 > How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
@@ -31,11 +33,13 @@ This document is very much a work in progress. I will update this page as I tran
 - The oneness of practice and realization is often presented as a key point of Dōgen’s teaching, if not his key point, period. A well-known statement from *Bendōwa* is, “To think practice and realization are not one is a heretical view. In the buddha-dharma, practice and realization are identical.” Also, Katagiri Roshi states that “... this is not [just] Dōgen Zenji’s idea, this is the essential point of Buddha’s teaching.” About this, see [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4). 
 - See also the commentary on these lines in *Each Moment Is the Universe*, Chapter 6, “The Root of the Buddha Way.” This chapter is derived from more than one talk, which may or may not be available in the archive.
 
+> 宗乘自在、何費功夫。  
 > The true vehicle is self-sufficient. What need is there for special effort? 
 
 - Katagiri Roshi (KR) translates this as: “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” See [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1), especially to clarify the meaning of *dharma vehicle*.
 
-> Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? It is never apart from this very place; what is the use of traveling around to practice? 
+> 況乎全體逈出塵埃兮、孰信拂拭之手段。
+> Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
 
 - “Dust,” “brush it clean,” etc. is a reference to [*The Platform Sutra*](platform-sutra) and the well-known story of the “poetry contest,” which is considered a foundational story in Chinese Buddhism. In the story, the top student Shen Hsiu (Japanese: Jinshū) writes a verse comparing Buddhist practice to brushing dust from a mirror to keep it clean, and the student Hui Neng (Japanese: Daikan Enō), who becomes the Sixth Ancestor, composes a responding verse. For the story and its interpretation, see [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1). 
 - Although these lines might initially seem to be supporting the verse attributed to the Sixth Ancestor Hui Neng over the verse attributed to Shen Hsiu, note that the very next words in *Fukanzazengi* are, “And yet.” As Katagiri Roshi states in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1) and on many other occasions, these perspectives are two aspects of the same reality, and they work together. They are two sides of the same coin, and Dōgen’s “and yet” is basically him flipping the coin. 
@@ -44,6 +48,10 @@ This document is very much a work in progress. I will update this page as I tran
 - See also Katagiri Roshi’s commentary in [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) at [30:00](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000) (and note the historical shift in the assignment of “sudden” and “gradual”): “Zen history says Sōtō Zen is ‘gradual enlightenment,’ Rinzai Zen is ‘sudden enlightenment.’ It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much.”
 - For a deeper dive into the meaning of *mirror* in Zen, see Katagiri Roshi’s commentary in “*Shōbōgenzō Kokyo*: Form and Mirror” – not yet available, but coming soon-ish.
 
+> 大都不離當處兮、豈用修行之脚頭者乎。  
+> It is never apart from this very place; what is the use of traveling around to practice? 
+
+> 然而毫釐有差天地懸隔、違順纔起 紛然失心。
 > And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
 
 - In Katagiri Roshi’s talks, discussions of the idea of *separation* or *discrimination* – and its opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” etc. –  are probably too numerous to cite. A random example would be [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50) (the talk I happen to be transcribing at the time of writing), which lines up very well with this discussion.
@@ -51,15 +59,20 @@ This document is very much a work in progress. I will update this page as I tran
 - The specific term “hairsbreadth deviation” appears in the *Song of the Jewel Mirror Awareness*. The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
 - “Between heaven and earth”: see “*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 1” at 51:32 (in progress).
 
+> 直饒誇會豐悟兮、獲瞥地之智通、得道明心兮、擧衝天之志氣、雖逍遙於入頭之邊量、幾虧闕於出身之活路。  
 > Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 
 - KR translates this as: “Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.”
 - This is extensively discussed in [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
+> 矧彼祇園之爲生知兮、端坐六年之蹤跡可 見。少林之傳心印兮、面壁九歳之聲名尚聞。古聖既然、今人盍辦。
+
 > Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice?
 
+> 所以須休尋言逐語之解行、  
 > Therefore, put aside the intellectual practice of investigating words and chasing phrases, ...
 
+> 須學囘光返照之退歩。  
 > ... and learn to take the backward step that turns the light and shines it inward. 
 
 - “Turn the light and shine it inward” is *ekō henshō* (回光返照). This key phrase is translated and understood in slightly different ways. 
@@ -72,6 +85,7 @@ This document is very much a work in progress. I will update this page as I tran
 - In [“Karma: Karmic Retribution in Present Life”](1980-07-10-Karmic-Retribution-in-Present-Life) at [50:45](1980-07-10-Karmic-Retribution-in-Present-Life#5045), Katagiri Roshi discusses the backward step of *ekō henshō* (回光返照) in relationship to the word *ekō* (回向, from Sanskrit *pariṇāmanā*) which means “dedicating the merit.” He says that *ekō* is “turning the merit to all beings, instead of holding on to it by yourself,” and that *ekō henshō* is similar. This might seem to be almost the opposite of “investigation of one’s own mind as opposed to the external world.”
 - There is a clear statement of this in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [56:36](1979-06-09-Fukanzazengi-Talk-1#5636): Katagiri Roshi says that *shikantaza*, or the zazen of *Fukanzazengi*, “... is really helpful. That is really a way of helping people: offering your merit, the merit of your practice, to all sentient beings.”
 
+> 身心自然脱落、  
 > Body and mind of themselves will drop away, ...
 
 - “Body and mind of themselves will drop away” (身心自然脱落) is related *shinjin datsuraku* (身心脱落), or “casting off body and mind,” one of Dōgen’s most well-known and frequently used terms. The specific term *shinjin datsuraku* is discussed in  [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) and in [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma). In particular, [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) is an important talk where dropping off body and mind is discussed in relation to *compassion*.
@@ -82,15 +96,18 @@ This document is very much a work in progress. I will update this page as I tran
 - “Dropping off body and mind” is closely related to “from the first, dullness and distraction are struck aside.” This is mentioned in [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma). See also the notes for “dullness and distraction are struck aside” below, closer to the end.
 - A good search term in KR’s talks is “drop off.” There are many references to things that “drop off”: delusions, dullness and distraction, verbal explanations, all unwholesome things, all unwholesome human behaviors, thought and discursive thinking, ideas, the “concept of wondrous practice which you have realized” ... and so on.
 
+> 本來面目現前。  
 > ... and your original face will manifest. 
 
 - “Original face” is discussed in connection with *total personality* and *buddha-nature* at the beginning of [“*Fukanzazengi* – Talk 2”](1979-06-10-Fukanzazengi-Talk-2). See also [“*Fukanzazengi* – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [1:16:36](1979-06-14-Fukanzazengi-Talk-6#11636), and [“Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2”](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2) after [1:00:05](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#10005). 
 - Just as “dropping off body and mind” is closely related to “from the first, dullness and distraction are struck aside,” “your original face will manifest” is closely tied to “the right dharma is manifesting itself.” This is implied in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1); where it’s discussed as “the original nature of the self is manifesting” and “manifesting the original nature of existence.”
 
+> 欲得恁麼事、 急務恁麼事。  
 > If you want to realize such, get to work on such right now.
 
 - A better translation might be, “If you want to realize *suchness*, practice suchness immediately.” To “get to work on” something generally implies that there is a goal.
 
+> 夫參禪者、靜室宜焉、  
 > For practicing Zen, a quiet room is suitable. 
 
 - The words “practicing Zen” are a translation of *sanzen* (参禅). Katagiri Roshi leaves the term *sanzen* untranslated, because the word *practice* in English “doesn’t hit the mark” of what *sanzen* means. He comments on the actual meaning of *sanzen* extensively. See:
@@ -100,10 +117,12 @@ This document is very much a work in progress. I will update this page as I tran
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
 - “A quiet room is suitable” is discussed as “arrangement of the sensory system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [36:23](1979-06-09-Fukanzazengi-Talk-1#3623), and in the rest of the series, along with additional details from *Shōbōgenzō Zazengi* (which is distinct from *Fukan Zazengi*).
 
+> 飮飡節矣。  
 > Eat and drink moderately. 
 
 - “Eat and drink moderately” (and also “breathe gently through your nose”) is discussed as “arrangement of the internal organ system” or “gut system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) at [42:38](1979-06-09-Fukanzazengi-Talk-1#4238), and in the rest of the series.
 
+> 放捨諸縁、休息萬事。  
 > Put aside all involvements and suspend all affairs. 
 
 - “Cast aside all involvements; cease all affairs” is discussed as “arrangement of circumstances” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (34:20)](1979-06-09-Fukanzazengi-Talk-1#3420) and in the rest of the series.
