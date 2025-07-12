@@ -16,7 +16,7 @@ This document is very much a work in progress. I will update this page as I tran
 
 ---
 
-### *Fukanzazengi*
+### *Fukanzazengi* (普勸坐禪儀)
 
 > 原 夫道本圓通、  
 > The Way is originally perfect and all-pervading. 
@@ -51,7 +51,7 @@ This document is very much a work in progress. I will update this page as I tran
 > 大都不離當處兮、豈用修行之脚頭者乎。  
 > It is never apart from this very place; what is the use of traveling around to practice? 
 
-> 然而毫釐有差天地懸隔、違順纔起 紛然失心。
+> 然而毫釐有差天地懸隔、違順纔起 紛然失心。  
 > And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. 
 
 - In Katagiri Roshi’s talks, discussions of the idea of *separation* or *discrimination* – and its opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” etc. –  are probably too numerous to cite. A random example would be [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi”](1984-01-04-Blue-Cliff-Record-Case-50) (the talk I happen to be transcribing at the time of writing), which lines up very well with this discussion.
@@ -65,11 +65,11 @@ This document is very much a work in progress. I will update this page as I tran
 - KR translates this as: “Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.”
 - This is extensively discussed in [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
-> 矧彼祇園之爲生知兮、端坐六年之蹤跡可 見。少林之傳心印兮、面壁九歳之聲名尚聞。古聖既然、今人盍辦。
+> 矧彼祇園之爲生知兮、端坐六年之蹤跡可見。少林之傳心印兮、面壁九歳之聲名尚聞。古聖既然、今人盍辦。  
 
 > Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice?
 
-> 所以須休尋言逐語之解行、  
+> 所以須休尋言逐語之解行、    
 > Therefore, put aside the intellectual practice of investigating words and chasing phrases, ...
 
 > 須學囘光返照之退歩。  
@@ -130,13 +130,13 @@ This document is very much a work in progress. I will update this page as I tran
 - “Throw away all affairs” is discussed in [“Arts and Buddhism”](1983-10-29-Arts-and-Buddhism)
 - “Throw away all worldly affairs,” et cetera is discussed in [“*The Awakening of Faith* – Talk 38”](1986-05-02-Awakening-of-Faith-Talk-38)
 
-> 不思善惡、莫管是非。停心意識之運轉、止念想觀之測量。
+> 不思善惡、莫管是非。停心意識之運轉、止念想觀之測量。莫圖作佛、豈拘坐臥乎。  
 > Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down?
 
 - This is discussed as the “arrangement of the brain and nervous system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (44:56)](1979-06-09-Fukanzazengi-Talk-1#4456) and in the rest of the series.
 - Here Katagiri Roshi uses the Norman Waddell and Masao Abe translation: “Do not think good or bad; do not administer pros and cons.” “Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no design on becoming a Buddha.”
 
-> 尋常坐 處、厚敷坐物、上用蒲團。或結跏趺坐、或半跏趺坐。謂、結跏趺坐、先以右足安左腿上、左足安右腿上。半跏趺坐、但以左足壓右矣。寛繋衣帶、可令齊整。次右 手安左足上、左掌安右掌上。兩大拇指、面相拄矣。乃正身端坐、不得左側右傾、前躬後仰。要令耳與肩對、鼻與臍對。舌掛上腭、唇齒相著。  
+> 尋常坐處、厚敷坐物、上用蒲團。或結跏趺坐、或半跏趺坐。謂、結跏趺坐、先以右足安左腿上、左足安右腿上。半跏趺坐、但以左足壓右矣。寛繋衣帶、可令齊整。次右手安左足上、左掌安右掌上。兩大拇指、面相拄矣。乃正身端坐、不得左側右傾、前躬後仰。要令耳與肩對、鼻與臍對。舌掛上腭、唇齒相著。  
 > At your sitting place, spread out a thick mat and put a cushion on it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, first place your right foot on your left thigh, then your left foot on your right thigh. In the half-lotus, simply place your left foot on your right thigh. Tie your robes loosely and arrange them neatly. Then place your right hand on your left leg and your left hand on your right palm, thumb-tips lightly touching. Straighten your body and sit upright, leaning neither left nor right, neither forward nor backward. Align your ears with your shoulders and your nose with your navel. Rest the tip of your tongue against the front of the roof of your mouth, with teeth together and lips shut. 
 
 - This is discussed as the arrangement of the “movement system” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (39:42)](1979-06-09-Fukanzazengi-Talk-1#3942) and in the rest of the series.
@@ -146,12 +146,12 @@ This document is very much a work in progress. I will update this page as I tran
 
 - “Breathe gently through your nose” is discussed as “arrangement of the internal organ system”; see “eat and drink moderately,” above.
 
-> 身相既調、欠氣一息、  
+> 身相既調、欠氣一息、左右搖振。兀兀坐定、思量箇不思量底。  
 > Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. 
 
 - “Settle into steady, immovable sitting” might be translated as “sitting in zazen silently and immobile” (see [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” at 39:42](1979-06-09-Fukanzazengi-Talk-1#3942)). Here *immovable* or *immobile* has a meaning beyond simply staying still physically, because mind and body are closely connected. This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 2”](1979-06-10-Fukanzazengi-Talk-2): “*Immobile* means just sit physically, and also mentally, psychologically, you must be completely one with sitting.”
 
-> 思量箇不思量底。不思量底、如何思量、非思量、此乃坐禪之要術也。  
+> 不思量底、如何思量、非思量、此乃坐禪之要術也。  
 > Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen.
 
 - “Don’t think anything” is “think not-thinking”: see [“*Diamond Sutra*, Talk 8: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being”).
@@ -193,7 +193,7 @@ This document is very much a work in progress. I will update this page as I tran
 - “The opportunity provided by” is omitted from the Sōtōshū translation, perhaps to streamline the sentence, but this is a questionable choice. The difference is whether the referenced devices bring about enlightenment directly, or they provide an opportunity.
 - “Opportunity” is *ki* (機), which comes up again in “pivotal opportunity of human form”; see below.
 
-> 豈爲神通修證之所能知也。可爲聲色之外威儀、那非知 見前軌則者歟。
+> 豈爲神通修證之所能知也。可爲聲色之外威儀、那非知 見前軌則者歟。  
 > ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views?
 
 - KR translates this as: “... it cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions?”
@@ -208,7 +208,7 @@ This document is very much a work in progress. I will update this page as I tran
 - “Practice-realization” is again *shushō* (修證); see above. 
 - For a good look at the meaning of the term *undefiled* in Buddhism, see “*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1” (in progress). 
 
-> 凡夫自界他方、西天東地、等持佛印、一擅宗風。唯 務打坐、被礙兀地。雖謂萬別千差、秪管參禪辦道。何抛卻自家之坐牀。謾去來他國之塵境。若錯一歩、當面蹉過。  
+> 凡夫自界他方、西天東地、等持佛印、一擅宗風。唯務打坐、被礙兀地。雖謂萬別千差、秪管參禪辦道。何抛卻自家之坐牀。謾去來他國之塵境。若錯一歩、當面蹉過。  
 > In general, in our world and others, in both India and China, all equally hold the buddha-seal. While each lineage expresses its own style, they are all simply devoted to sitting, totally blocked in resolute stability. Although they say that there are ten thousand distinctions and a thousand variations, they just wholeheartedly engage the way in zazen. Why leave behind the seat in your own home to wander in vain through the dusty realms of other lands? If you make one misstep, you stumble past what is directly in front of you.
 
 > 既得人身之機要、莫虚度光陰。  
@@ -223,9 +223,9 @@ This document is very much a work in progress. I will update this page as I tran
 > Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. 
 
 - For the (presumably related) story of the blind men touching the elephant, see [“Karma: Taking Care of Karma”](1980-07-04-Karma-Taking-Care-of-Karma) at [45:24](1980-07-04-Karma-Taking-Care-of-Karma#4524), tied to the discussion of *saṃjñā* or “perception.”
-- “True dragon” refers to the story of Seiko (or Shoko), who loved images of dragons. But when a real dragon decided to visit him, Seiko was alarmed, and either scared the dragon off or ran away (depending on who’s telling the story). 
+- “True dragon” refers to the story of Seiko (or Shoko, Chinese: Yeh Kung-tzu), who loved images of dragons. But when a real dragon decided to visit him, Seiko was alarmed, and either scared the dragon off or ran away, depending on who’s telling the story.
 
-> 精進直指端的之道、尊貴絶學無爲之人。合沓佛佛之菩提、嫡嗣祖祖之三昧。久爲恁麼、須是恁麼、寶藏自開、受用如意。  
+> 精進直指端的之道、尊貴絶學無爲之人。合沓佛佛之菩提、嫡嗣祖祖之三昧。久爲恁麼、須是恁麼、寶藏自開、受用如意。    
 > Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely.
 
 - “If you follow this practice, your treasure chest will open of itself and you can use it at will” is discussed in Q&A in [“Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4) at [1:16:15](1987-03-14-Bendowa-Talk-4#11615).
