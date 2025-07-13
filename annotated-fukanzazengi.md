@@ -16,7 +16,8 @@ This document is very much a work in progress. I will update this page as I tran
 
 ---
 
-### *Fukanzazengi* (普勸坐禪儀)
+### 普勸坐禪儀
+### *Fukanzazengi*
 
 > 原 夫道本圓通、  
 >  
