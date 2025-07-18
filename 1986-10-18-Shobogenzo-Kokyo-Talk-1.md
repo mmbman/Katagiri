@@ -13,27 +13,33 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/form-and-mirror-1-of-2" target="_blank">Listen to this talk</a>
 </p>
 
-#### 0:00
+#### 00:00
 
-There are many cultural forms in every country, through which we can understand people's life and histories and heart. “There are many cultural forms” means customs, habits, manners, rituals – many forms. And those forms are not merely forms, because they are just like a mirror, [in] which people's lives are reflected. So that's why we have to make every possible effort to understand different cultures, because it is not merely forms, it is a mirror. We can see our mind, our life in it. 
+There are many cultural forms in every country, through which we can understand people's life and histories and heart. “There are many cultural forms” means customs, habits, and the manners, rituals... many forms. And those forms are not merely forms, because they are just like a mirror, [in] which people's lives are reflected. So that's why we have to make every possible effort to understand different cultures, because it is not merely forms, it is the mirror. We can see our mind, our life in it. 
 
-So, in the United States, you have already lots of historical background, religious background, and also cultural background; many forms. Through those forms, people understand who you are, what kind of life you have followed. So, your cultural forms are very important for us. 
+So, in the United States, you have already lots of historical background, religious background, and also cultural background. Many forms. Through those forms, people understand who you are, what kind of life you have followed. So, your cultural forms are very important for us. 
 
-What is a mirror? What is a mirror which the essence of man's existence is reflected in? What is the mirror? Not only the cultural forms, but we have to understand what is the mirror that the essential nature of human life is reflected in. 
+What is a mirror? What is a mirror in which the essence of man's existence is reflected? What is the mirror? Not only the cultural forms, but we have to understand what is the mirror that the essential nature of human life is reflected in. 
 
-So, Dōgen Zenji mentions in *Shōbōgenzō*, [?] “*Kokyo*” in Japanese, which means literally “old mirror” or “ancient mirror.” This is a very interesting chapter. 
+So, Dōgen Zenji [talks about this] in *Shōbōgenzō* – the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror.” This is a very interesting chapter. 
 
-So I mentioned mirror is that which you can see the essential nature of human life reflected in it, in that mirror. So, that mirror implies kind of vastness, vast expanse of sky, or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth.” So, this is a mirror. 
+So I mentioned *mirror* is that which you can see the essential nature of human life reflected in it, in that mirror. So that mirror implies kind of vastness, vast expanse of sky, or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth.” 
 
-So, in other words, “what is a mirror” means “what is the truth.” 
+So, this is a mirror. So in other words, “what is a mirror?” means “what is the truth?” 
 
 So how is that mirror exercised? How does that mirror reflect? How do all sentient beings reflect in that mirror? 
 
-First point, Dōgen Zenji mentions like this – it is a little bit difficult, but I will explain later, okay? 
+#### 05:10
 
-> It is the ancient mirror that buddhas and patriarchs have received, preserved, and transmitted personally. They are all the same and one with view, face, shape, mold, practice, and enlightenment. When the barbarian comes, he is reflected in that mirror. 8000 or 10000. Also, when the Chinese comes, he is reflected in it, containing one moment or 10,000 years. Also, when the past, the present, or the buddhas and ancestors come, they are reflected. 
+The first point Dōgen Zenji mentions [is] like this. It is a little bit difficult, but I will explain later, okay? 
 
-This is the first point. What is a mirror? Dōgen Zenji says it is the ancient mirror that Buddhas and ancestors have received and preserved and transmitted personally. “Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, preserved and transmitted. Tried to hand it down from generation to generation. So, that mirror is very personal, but it’s not personal, because many buddhas, many ancestors tried to receive and preserve and transmit it from generation to generation – the *same* mirror. So, it is public, completely public. It’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it. You have to receive it and maintain it and preserve it and transmit it to next generations. This is natural! 
+> It is the ancient mirror that buddhas and patriarchs have received, preserved, and transmitted personally. They are all the same and one with view, face, shape, mold, practice, and enlightenment. When the barbarian comes, he is reflected in that mirror – eight thousand or ten thousand. Also, when the Chinese comes, he is reflected in it, containing one moment or 10,000 years. Also, when the past, the present, or the buddhas and ancestors come, they are reflected. 
+
+This is the first point. What is a mirror? Dōgen Zenji says 
+
+> It is the ancient mirror that Buddhas and ancestors have received and preserved and transmitted personally. 
+
+“Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, preserved and transmitted. Tried to hand it down from generation to generation. So, that mirror is very personal, but it’s not personal, because many buddhas, many ancestors tried to receive and preserve and transmit it from generation to generation – the *same* mirror. So, it is public, completely public. It’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it. You have to receive it and maintain it and preserve it and transmit it to next generations. This is natural! 
 
 So, what is the essence of human life which you have attained enlightenment? Saying how sublime human life is, how important human life is. So, this is in your... This enlightenment is really personal, but it’s not personal, it’s really for everyone. So, naturally it’s coming up, you try to receive it and maintain it and transmit it. So, you want to say something. You want to say something about it to your sons, to your daughters, to your friends, to the next generations. So, it becomes public. Okay? 
 
@@ -49,7 +55,7 @@ If buddhas and ancestors are reflected in that mirror, all buddhas and ancestors
 
 And also, the face, look, is of course different, but they are the same. All buddhas and ancestors – same look, same face. Different, but they are the same and one. So, exactly they are different, but you can see the same feeling. 
 
-Do you understand? For instance, American, if you live in United States for many, many years. Everyone has a different look – but if your life is reflected in the same mirror, so-called American culture, you can see same look. Can’t you? Sure, you can see. “Oh, you are American.”
+Do you understand? For instance, American, if you live in United States for many, many years. Everyone has a different look – but if your life is reflected in the same mirror, so-called American culture, you can see same look. Can’t you? Sure, you can see: “Oh, you are American.”
 
 Yes, you can. *[Laughter.]* So, from now on, you try. Particularly, when you go to Europe, and not necessarily in Japan, Japan is completely different, you know, all are Japanese. But, if you go to Europe, you are almost same as Europeans. But, still you are American. You can realize. People say, “Are you American?” Yes, you can see. So, looks are different, but exactly same look, so-called American. 
 
