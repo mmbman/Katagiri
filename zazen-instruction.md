@@ -2,7 +2,7 @@
 title: "Katagiri Roshi’s Zazen Instruction"
 ---
 
-Katagiri Roshi visited the Menomonie, Wisconsin Zen group in 1981 and offered zazen instruction. Dharma Field Zen Center has posted the audio recording of this session on YouTube. This is a very valuable resource, as Katagiri Roshi is offering the most basic instruction in Zen. Also, this talk is short and the audio is better quality than the compressed MP3 files in the archive, making it quite listenable. Strongly recommended. 
+This is an audio recording of Katagiri Roshi offering zazen instruction, posted by Dharma Field Zen Center on YouTube. Katagiri Roshi visited the Menomonie, Wisconsin Zen group in 1981 and offered zazen instruction. This is a very valuable resource, as Katagiri Roshi is offering the most basic instruction in Zen. Also, this talk is short and the audio is better quality than the compressed MP3 files in the archive, making it quite listenable. Strongly recommended. 
 
 “Katagiri Roshi Meditation Instruction” on YouTube, posted by Dharma Field Zen Center:
 
