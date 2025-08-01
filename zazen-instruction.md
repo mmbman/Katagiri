@@ -6,10 +6,10 @@ This is an audio recording of Katagiri Roshi offering zazen instruction, posted 
 
 “Katagiri Roshi Meditation Instruction” on YouTube, posted by Dharma Field Zen Center:
 
-- [Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
-- [Part 2](https://www.youtube.com/watch?v=hTWYdee6COI)
-- [Part 3](https://www.youtube.com/watch?v=0ImK8BBFg3Y)
-- [Part 4](https://www.youtube.com/watch?v=Nro0SBmLJck)
+- [Part 1 on YouTube](https://www.youtube.com/watch?v=0-Sx0FSjh20)
+- [Part 2 on YouTube](https://www.youtube.com/watch?v=hTWYdee6COI)
+- [Part 3 on YouTube](https://www.youtube.com/watch?v=0ImK8BBFg3Y)
+- [Part 4 on YouTube](https://www.youtube.com/watch?v=Nro0SBmLJck)
 
 ### Transcript 
 
@@ -19,9 +19,9 @@ This is an audio recording of Katagiri Roshi offering zazen instruction, posted 
 
 [Listen to Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
 
-In *zazen*... *zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. So I always use the term *zazen*, because the zazen we do is a little different from the meditation that [other schools,] other religions do. That’s why I want to use the original term *zazen*. 
+[...] *Zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. So I always use the term *zazen*, because the zazen we do is a little different from the meditation that [other schools,] other religions do. That’s why I want to use the original term *zazen*. 
 
-In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people (人) sitting on the ground (土).) *Za* [or] sitting that means you have to sit with more than two beings. Not only human beings. You cannot sit alone. So you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. So [if] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
+In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people (人) sitting on the ground (土).) *Za* [or] sitting that means you have to sit with more than two beings. Not only human beings. You cannot sit alone, so you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. So [if] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
 
 And then, very naturally through *this* sitting, that sitting is exactly *zen*, tranquility. Because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
