@@ -21,15 +21,17 @@ This is an audio recording of Katagiri Roshi offering zazen instruction, posted 
 
 [...] *Zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. So I always use the term *zazen*, because the zazen we do is a little different from the meditation that [other schools,] other religions do. That’s why I want to use the original term *zazen*. 
 
-In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people (人) sitting on the ground (土).) *Za* [or] sitting that means you have to sit with more than two beings. Not only human beings. You cannot sit alone, so you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. So [if] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
+In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) *Za* [or] sitting that means you have to sit with more than two beings. Not only human beings. You cannot sit alone, so you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. So [if] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
 
 And then, very naturally through *this* sitting, that sitting is exactly *zen*, tranquility. Because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
-So you and the universe, earth, all beings, and all circumstances, are become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s all we have to do. 
+So you and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s all we have to do. 
 
 Don’t expect anything *special*, okay? [Other than] this. Just do your best to do *this* zazen. 
 
-Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something *else*. So very naturally you cannot always [be] exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do. 
+Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. 
+
+But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something *else*. So very naturally you cannot always [be] exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do. 
 
 If you feel hungry, all you have to do is just eat. Just eat. And then after eating you can very naturally see something. But before you eat, you cannot expect a full stomach, because you don’t eat yet. So all you have to do is, you have to eat. 
 
