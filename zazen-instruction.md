@@ -19,41 +19,37 @@ This is an audio recording of Katagiri Roshi offering zazen instruction, posted 
 
 [Listen to Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
 
-[...] *Zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. So I always use the term *zazen*, because the zazen we do is a little different from the meditation that [other schools,] other religions do. That’s why I want to use the original term *zazen*. 
+[...] *Zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. I always use the term *zazen*, because the zazen we do is a little different from the meditation that [other schools,] other religions do. That’s why I want to use the original term *zazen*. 
 
-In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) *Za* [or] sitting that means you have to sit with more than two beings. Not only human beings. You cannot sit alone, so you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. So [if] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
+In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) [...] That means you have to sit with more than two beings; not only human beings. You cannot sit alone, so you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. [If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
 
 And then, very naturally through *this* sitting, that sitting is exactly *zen*, tranquility. Because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
 So you and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s all we have to do. 
 
-Don’t expect anything *special*, okay? [Other than] this. Just do your best to do *this* zazen. 
+Don’t expect anything *special*, okay? [Other than] this. Just do your best to do *this* zazen. Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something *else*. So very naturally you cannot always [be] exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do. 
 
-Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. 
-
-But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something *else*. So very naturally you cannot always [be] exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do. 
-
-If you feel hungry, all you have to do is just eat. Just eat. And then after eating you can very naturally see something. But before you eat, you cannot expect a full stomach, because you don’t eat yet. So all you have to do is, you have to eat. 
+If you feel hungry, all you have to do is just eat, and then after eating you can very naturally see something. But before you eat, you cannot expect a full stomach, because you [haven’t eaten] yet. So all you have to do is, you have to eat. 
 
 But intellectually you have to know: what is zazen, what is the purpose, what’s the meaning of zazen, et cetera. So that’s why we have to explain: how to do zazen, how to eat breakfast, how to eat supper, et cetera. But when you jump into activities, [jump] with the full functioning of your intellectual sense, and just eat. 
 
-It’s not just eat *blindly*. With your *full* attention, your full kindness – and then you eat. And then very naturally, you can see something else. 
+It’s not just eat *blindly*. With your *full* attention, your full kindness – then you eat. And then very naturally, you can see something else. 
 
 So, that is zazen. But usually we always expect something before you do zazen, from the zazen. Don’t you think so? So always your mind is spinning: “What is zazen? What’s the purpose of zazen?” So if you do zazen, you have heard something about zazen from your friends, or from a book: “zazen makes you calm,” so very naturally you expect calmness. So when you sit in zazen, then you expect the calmness. But actually your mind is busy! It’s pretty hard to find the calmness. So you are confused very much. 
 
 So calmness or not calmness, that is an intellectual understanding, temporarily. “What is zazen? What is the purpose? What do you mean?” Et cetera. “Why do you have to do it?” Many reasons there. But when you start to do zazen, forget those explanations and just sit. 
 
-#### 6:00
-
 There are three points we have to follow. Harmonizing body; harmonizing mind; harmonizing your breath. Three points, in zazen.
 
 So, let me show [you] first how to do zazen. And then I will explain a little bit, after that. 
 
-[...] For this, we use these round cushions. If you don’t use a round cushion, very naturally the center gravity is around the hips. So if you fall asleep, you fall down, like this. *[There are some chuckles.]* Because this posture is very unstable. If you sit like this it seems to be comfortable, but it’s not comfortable as a whole. Because you oppress your intestines, so your intestines don’t work, you know? And also your heart is oppressed, so you cannot breathe well. And also if you cannot breathe well, then very naturally your nerves become irritated, and your hormones cannot keep balance. So very naturally as a whole you become irritated. So you cannot sit for [a long time]. 
+#### 6:30
+
+[...] For this, we use these round cushions. If you don’t use a round cushion, very naturally the center gravity is around the hips. So if you fall asleep, you fall down, like this. *[There are some chuckles.]* Because this posture is very unstable. If you sit like this it seems to be comfortable, but it’s not comfortable as a whole. Because you oppress your intestines, so your intestines don’t work, you know? And also your heart is oppressed, so you cannot breathe well. And also if you cannot breathe well, then very naturally your nerves become irritated, and your hormones cannot keep balance, so very naturally as a whole you become irritated. So you cannot sit for [a long time]. 
 
 So even if you [feel] uncomfortable sitting straight, this is pretty good for us. Because if you straighten your back and front, very naturally all your organs operate very well. 
 
-So we use these cushions. If you use this cushion, very naturally this zazen forms a three-dimensional triangle. And then the center of gravity is right in the middle of this triangle. So it makes you posture very stable. Even if you fall asleep in zazen, you cannot fall. So just like this. So while you do zazen can sleep well, very naturally - just like this. *[Laughter.]* So that’s why we do this posture. 
+So we use these cushions. If you use this cushion, very naturally this zazen forms a three-dimensional triangle. And then the center of gravity is right in the middle of this triangle. So it makes your posture very stable. Even if you fall asleep in zazen, you cannot fall. So just like this. So while you do zazen can sleep well, very naturally - just like this. *[Laughter.]* So that’s why we do this posture. 
 
 And also there are two postures: half-lotus – this is half-lotus. Or vice-versa: your left leg on the right side. This is the half-lotus. And also full-lotus is like this: both your legs up on your knee. 
 
@@ -77,11 +73,7 @@ And the thumbs are placed a few inches below the navel: not too high, not too lo
 
 And your arms go forward a little bit – not too much, like this, not [touching] the side of your body. So go a little forward. Just like holding raw eggs under your arm: neither crush, nor drop. Okay? And then very naturally your arms become relaxed.
 
-Next, in the lower back, push it forward, a little hard, and then [adjust a little]. This practice is a little hard for you, because you have never done it before. So if you do zazen like this, next day you [may] have a sore back. 
-
-*[Tape change.]*
-
-... you are alive, anyway. And you body, your mind is working very normally. So don’t worry about this. 
+Next, in the lower back, push it forward, a little hard, and then [adjust a little]. This practice is a little hard for you, because you have never done it before. So if you do zazen like this, next day you [may] have a sore back. But you are alive, anyway. And you body, your mind is working very normally. So don’t worry about this. 
 
 So, push the lower back first, and [adjust a little]. And straighten your [...] upper back, and your head. And keep your neck in parallel with the wall, first. And then, without moving your neck, pull your chin in, [so that you] feel like [you’re] pushing the ceiling with the top of the back of your head. And then very naturally your back becomes taut. Just like sticking a straight stick from the top of your head to the bottom. 
 
