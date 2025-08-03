@@ -39,7 +39,7 @@ So, that is zazen. But usually we always expect something before you do zazen, f
 
 So calmness or not calmness, that is an intellectual understanding, temporarily. “What is zazen? What is the purpose? What do you mean?” Et cetera. “Why do you have to do it?” Many reasons there. But when you start to do zazen, forget those explanations and just sit. 
 
-There are three points we have to follow. Harmonizing body; harmonizing mind; harmonizing your breath. Three points, in zazen.
+There are three points we have to follow: harmonizing body; harmonizing mind; harmonizing your breath. Three points, in zazen.
 
 So, let me show [you] first how to do zazen. And then I will explain a little bit, after that. 
 
