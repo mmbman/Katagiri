@@ -2,7 +2,7 @@
 title: "Katagiri Roshi’s Zazen Instruction"
 ---
 
-This is an audio recording of Katagiri Roshi offering zazen instruction, posted by Dharma Field Zen Center on YouTube. Katagiri Roshi visited the Menomonie, Wisconsin Zen group in 1981 and offered zazen instruction. This is a very valuable resource, as Katagiri Roshi is offering the most basic instruction in Zen. Also, this talk is short and the audio is better quality than the compressed MP3 files in the archive, making it quite listenable. Strongly recommended. 
+This is an audio recording of Katagiri Roshi offering zazen instruction, posted by Dharma Field Zen Center on YouTube. Katagiri Roshi visited the Menomonie, Wisconsin Zen group in 1981 and offered zazen instruction. This recording is a very valuable resource, as Katagiri Roshi is offering the most basic instruction in Zen. Also, this talk is relatively short and the audio is better quality than the compressed MP3 files in the archive, making it quite listenable. Strongly recommended. 
 
 “Katagiri Roshi Meditation Instruction” on YouTube, posted by Dharma Field Zen Center:
 
@@ -19,21 +19,23 @@ This is an audio recording of Katagiri Roshi offering zazen instruction, posted 
 
 [Listen to Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
 
-[...] *Zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. I always use the term *zazen*, because the zazen we do is a little different from the meditation that [other schools,] other religions do. That’s why I want to use the original term *zazen*. 
+[...] *Zazen* means Zen meditation, in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
 
-In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) [...] That means you have to sit with more than two beings. Not only human beings. You cannot sit alone, so you should sit with more than two beings: in the earth, in the universe. Not in your own egoistic, selfish territory. [If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
+In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) [...] That means you have to sit with more than two beings – not only human beings – you cannot sit alone. So you should sit with more than two beings: in the earth, in the universe – not in your own egoistic, selfish territory. You must open yourself and sit in the universe, [so] very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
 
 And then, very naturally through *this* sitting, that sitting is exactly *zen*, tranquility. Because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
-So you and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s all we have to do. 
+So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do. 
 
-Don’t expect anything *special*, okay? [Other than] this. Just do your best to do *this* zazen. Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something *else*. So very naturally you cannot always [be] exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do. 
+Don’t expect anything *special*, okay? [Other than] this. Just do your best to do *this* zazen. 
+
+Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something else! So very naturally you cannot [be] always exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do!
 
 If you feel hungry, all you have to do is just eat, and then after eating you can very naturally see something. But before you eat, you cannot expect a full stomach, because you [haven’t eaten] yet. So all you have to do is, you have to eat. 
 
-But intellectually you have to know: what is zazen, what is the purpose, what’s the meaning of zazen, et cetera. So that’s why we have to explain: how to do zazen, how to eat breakfast, how to eat supper, et cetera. But when you jump into activities, [jump] with the full functioning of your intellectual sense, and just eat. It’s not just eat *blindly*. With your *full* attention, your full kindness – then you eat. And then very naturally, you can see something else. 
+But intellectually you have to know: what is zazen, what is the purpose, what’s the meaning of zazen, et cetera. So that’s why we have to explain: how to do zazen, how to eat breakfast, how to eat supper, et cetera. But when you jump into the activities, [jump] with the full functioning of your intellectual sense ... and just eat. It’s not just eat *blindly*. With your *full* attention, your full kindness – then you eat. And then very naturally, you can see something else. 
 
-So, that is zazen. But usually we always expect something before you do zazen, from the zazen. Don’t you think so? So always your mind is spinning: “What is zazen? What’s the purpose of zazen?” If you do zazen, you have heard something about zazen from your friends, or from books: “Zazen makes you calm,” so very naturally you expect calmness. So when you sit in zazen, then you expect the calmness. But actually your mind is busy! It’s pretty hard to find the calmness. So you are confused very much. 
+So, that is zazen. But usually we always expect something before you do zazen, [we expect something] from the zazen. Don’t you think so? So always your mind is spinning: “What is zazen? What’s the purpose of zazen?” If you do zazen, you have heard something about zazen from your friends, or from books: “Zazen makes you calm.” So very naturally you expect calmness; so when you sit in zazen, then you expect the calmness. But actually your mind is busy! It’s pretty hard to find the calmness. So you are confused very much. 
 
 So calmness or not calmness, that is an intellectual understanding, temporarily. “What is zazen? What is the purpose? What do you mean?” Et cetera. “Why do you have to do it?” Many reasons there. But when you start to do zazen, forget those explanations and just sit. 
 
@@ -43,45 +45,45 @@ So, let me show [you] first how to do zazen. And then I will explain a little bi
 
 #### 6:30
 
-[...] For this, we use these round cushions. If you don’t use a round cushion, very naturally the center gravity is around the hips. So if you fall asleep, you fall down, like this. *[There are some chuckles.]* Because this posture is very unstable. If you sit like this it seems to be comfortable, but it’s not comfortable as a whole. Because you oppress your intestines, so your intestines don’t work, you know? And also your heart is oppressed, so you cannot breathe well. And also if you cannot breathe well, then very naturally your nerves become irritated, and your hormones cannot keep balance, so very naturally as a whole you become irritated. So you cannot sit for [a long time]. 
+[...] For this, we use these round cushions. If you don’t use a round cushion, very naturally the center gravity is around the hips. So if you fall asleep, you fall down, like this. *[There are some chuckles.]* Because this posture is very unstable. If you sit like this it seems to be comfortable, but it’s not comfortable as a whole. Because you oppress your intestines, so your intestines don’t work, you know? And also your heart is oppressed, so you cannot breathe well. And also if you cannot breathe well, then very naturally your nerves become irritated, and your hormones cannot keep balance. So very naturally as a whole you become irritated, so you cannot sit for [very long]. 
 
 So even if you [feel] uncomfortable sitting straight, this is pretty good for us. Because if you straighten your back and front, very naturally all your organs operate very well. 
 
-So we use these cushions. If you use this cushion, very naturally this zazen forms a three-dimensional triangle. And then the center of gravity is right in the middle of this triangle. So it makes your posture very stable. Even if you fall asleep in zazen, you cannot fall. So just like this. So while you do zazen can sleep well, very naturally - just like this. *[Laughter.]* So that’s why we do this posture. 
+So we use these cushions. If you use this cushion, very naturally this zazen forms a three-dimensional triangle, and then the center of gravity is right in the middle of this triangle. So it makes your posture very stable. Even if you fall asleep in zazen, you cannot fall. So just like this. So while you do zazen can sleep well, very naturally - just like this. *[Laughter.]* So that’s why we do this posture. 
 
 And also there are two postures: half-lotus – this is half-lotus. Or vice-versa: your left leg on the right side. This is the half-lotus. And also full-lotus is like this: both your legs up on your knee. 
 
 And then, if you do this posture, your weight is put on the three points: two knees and the hips. Two knees on the square cushion, and the hips on the round cushion. So, this is the posture. Posture is very important. 
 
-Next, put your hand palm upward on your knee. Then, take deep breaths. Open your mouth just slightly. Inhale... let the breath in through your mouth, and when you inhale your body is arching backward a little bit, stretching the front. Very slowly, with full attention, okay? And then when you exhale, your body is arching foward, just like taking away all the inhaled breath from the lower abdomen. Just arching forward. Do you understand okay? Let’s repeat this one. 
+Next, put your hand palm upward on your knee. Then, take deep breaths. Open your mouth just slightly. Let the breath in through your mouth, and when you inhale your body is arching backward a little bit, stretching the front. Very slowly, with full attention, okay? And then when you exhale, your body is arching foward, just like taking away all the inhaled breath from the lower abdomen. Just arching forward. Do you understand okay? Let’s repeat this one. 
 
 And then next, lean to the right as you exhale, stretching out the left side of your body. And bring your body back to the center as you inhale. And exhale while leaning to the left, stretching out the right side of your body. And inhale and bring it back to the center. Let’s repeat this [...]. And the motion goes from large to small. This is a very important practice before you sit. This is a preparation for your sitting – physically and mentally. 
 
 And then next, your left hand, palm upward, is placed on your right palm, and the thumbs just touch each-other, right above your middle finger. Not forward, and not backward: right above the middle finger. Making the form of an ellipse – not a circle, not a square. Like this. Not a loose feeling, not tense. A very soft, gentle form you should make. 
 
-This is called the *cosmic mudra*. This is the symbol of the cosmic universe. We cannot exist without the universe, so we should appreciate the universe. To appreciate the universe means you should do something *with* the universe, physically and mentally. So why don’t you show the universe? But the universe is big. But we can know the characteristic of the universe: to unify two beings, together, in peace, in harmony. So that’s why two hands are put together like this, and this is the universe. 
+This is called the *cosmic mudra*. This is the symbol of the cosmic universe. We cannot exist without the universe, so we should appreciate the universe. To appreciate the universe means you should do something *with* the universe, physically and mentally. So why don’t you show the universe? But a universe is *big*! But we can know the characteristic of a universe: to unify two beings, together, in peace, in harmony. So that’s why two hands are put together like this. And this is the universe. 
 
-So if you believe this symbol of the universe made by your hands – well, that symbol really works. But if you don’t believe, the symbol is just a symbol. It doesn’t work, in you. 
+So if you believe this symbol of the universe made by your hands – well, that symbol really works. But if you don’t believe, the symbol is just a symbol. It doesn’t work, in *you*. 
 
-Just like the American flag. If you see the American flag, you stand up and you do this. And the symbol of American flag works with you. The same applies to this. This is a symbol, but a symbol is not a symbol, a symbol is something which should [be] alive in you. When you *make* it alive, when you use it. At that time, symbol really works. But a symbol itself doesn’t have any sense. So only when you use it, it really works. 
+Just like the American flag. If you see the American flag, you stand up and you do this, and then the symbol of American flag works with you. The same applies to this. This is a symbol, but a symbol is not a symbol, a symbol is something which should [be] alive in you – when you *make* it alive, when you use it. At that time, symbol really works. But a symbol itself doesn’t have any sense. So only when you use it, it really works. 
 
-So anyway, that’s why we make a universe with two hands. And then the universe must be one with you, with the center of gravity. So that center of the gravity is always lower abdomen. So this universe much be touched to the lower abdomen. 
+So anyway, that’s why we make a universe with two hands. And then the universe must be one with you, with the center of gravity. That center of the gravity is always lower abdomen, so this universe much be touched to the lower abdomen. 
 
 And the thumbs are placed a few inches below the navel: not too high, not too low. 
 
-And your arms go forward a little bit – not too much, like this, not [touching] the side of your body. So go a little forward. Just like holding raw eggs under your arm: neither crush, nor drop. Okay? And then very naturally your arms become relaxed.
+And your arms go forward a little bit – not *too* much, like this, not [touching] the side of your body. So go a *little* forward. Just like holding raw eggs under your arm: neither crush, nor drop. Okay? And then very naturally your arms become relaxed.
 
-Next, in the lower back, push it forward, a little hard, and then [adjust a little]. This practice is a little hard for you, because you have never done it before. So if you do zazen like this, next day you [may] have a sore back. But you are alive, anyway. And you body, your mind is working very normally. So don’t worry about this. 
+Next, in the lower back, push it forward, a little hard, and then [adjust a little]. This practice is a little hard for you, because you have never done it before. So if you do zazen like this, next day you [may] have a sore back. [...] But you are alive, anyway. And you body, your mind is working very normally. So don’t worry about this. 
 
 So, push the lower back first, and [adjust a little]. And straighten your [...] upper back, and your head. And keep your neck in parallel with the wall, first. And then, without moving your neck, pull your chin in, [so that you] feel like [you’re] pushing the ceiling with the top of the back of your head. And then very naturally your back becomes taut. Just like sticking a straight stick from the top of your head to the bottom. 
 
-And then, very naturally your eyes cast [down on] the floor, and looking at a certain point on the floor – a little wide area. Don’t pick up [a stain] from the floor. Just cast down your eyes. And then this area is almost in the same distance as your sitting height. So very naturally your eyes open just slightly – not wide, not closed. If you close your eyes, you really enjoy “innate visualizations.” [...] If your open your eyes too much, that is also trouble: your mind scatters. So not wide open, not closed. But in the beginning of zazen if it is difficult to take care of your mind, at that time you can close your eyes – for a while. Okay? For a while. And then as soon as possible, you should open your eyes. 
+And then, very naturally your eyes cast on the floor, and looking at a certain point on the floor – a little wide area. Don’t pick up *[unintelligible]* from the floor. Just cast down your eyes. And then this area is almost in the same distance as your sitting height. So very naturally your eyes open just slightly – not wide, not closed. If you close your eyes, you really enjoy “innate visualizations.” [...] If your open your eyes too much, that is also trouble: your mind scatters. So not wide open, not closed. But in the beginning of zazen if it is difficult to take care of your mind, at that time you can close your eyes – for a while. Okay? For a while. And then as soon as possible, you should open your eyes. 
 
 So let’s have this posture, and cast down your eyes on the floor, your eyes open just slightly. And at that time, your nose and navel are in a vertical line; and ears and shoulders in the same straight line. That means you cannot lean forward, you cannot lean backward. You cannot lean to the right or to the left. Exactly straight up. Just like a mountain. 
 
-This posture really teaches us a middle way. Exactly middle way: neither attaching to the right or to the left, regarded as two extreme ideas. Not to the right or the left, not front or back: just straight in the center. That means the middle way. 
+This posture really teaches us a middle way. Exactly middle way: neither attaching to the right or to the left, regarded as two extremes, ideas. Not to the right or the left, not front or back: just straight in the center. That means the middle way. 
 
-But middle way is not going in the middle, but we know both, all situations. And *then* you can walk in the middle. 
+But the middle way is not going in the middle, but we know both, all situations. And *then* you can walk in the middle. 
 
 So you have to keep your body always not tipping forward, or leaning backward, or leaning to the right, to the left. You have to watch. You have to understand the *whole* situation there.
 
@@ -101,17 +103,13 @@ That is breathing.
 
 If you pay attention to the breath, the rate of the breathing, respiration, becomes a little bit slow. Not too slow, not too fast – but if you pay attention to your respiration, respiration goes a little bit more slowly than as usual. 
 
-Sometimes you have a problem for your breath. At that time, let it go, as naturally as you can. For a while. Just breathe naturally for a while, if you have a problem. [Like] stomach pain, because you pushed the breath too much, to let it go down to the lower abdomen. At that time sometimes you have too much tension on the lower abdomen. Or sometimes you cannot breathe well, so at that time, let it go, and breathe as naturally as you can. For a while. 
+Sometimes you have a problem for your breath. At that time, let it go, as naturally as you can, for a while. Just breathe naturally for a while, if you have a problem. [Like] stomach pain, because you pushed the breath too much, to let it go down to the lower abdomen. At that time sometimes you have too much tension on the lower abdomen. Or sometimes you cannot breathe well. So at that time, let it go, and breathe as naturally as you can. For a while. 
 
-Don’t worry about [whether a breath is a] good breath or bad breath. Don’t worry about this. Don’t worry about judgement. 
-
-So if you see a not good situation of your breath, let it go for awhile, and take care of this situation of your breath, to return to normal. But if you are irritated, [trying] to control your breath, at that time you make more [of a] problem. 
-
-So sometimes you can control, but sometimes you cannot control. So if you cannot control, for a while let it go, then see what is the problem. You can do [this].
+Don’t worry about [whether a breath is a] good breath or bad breath. Don’t worry about this. Don’t worry about judgement. But if you see a not good situation of your breath, let it go for awhile, and take care of this situation of your breath, to return to normal. If you are irritated, [trying] to control your breath, at that time you make more [of a] problem. So sometimes you can control [it], but sometimes you cannot control [it]. So if you cannot control [it], for a while let it go, then see what is the problem. You can do [this].
 
 Breathing is always changing. You cannot keep a certain pattern of your breath. Constantly changing – according to your emotion, according to your feeling, and also physical condition, and also external circumstances. [And] internal circumstances – body too. Always changing. 
 
-#### 2:55
+#### 2 - 2:55
 
 And then next, the mind. Harmonizing your mind. The mind is really busy – like a monkey. So anyway, take care of your mind. 
 
