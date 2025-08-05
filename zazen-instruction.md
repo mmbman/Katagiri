@@ -259,9 +259,13 @@ So that’s why open your eyes just slightly. That means contacting with object 
 
 **Katagiri Roshi:** Well... *[He laughs.]* Well, if you say “that is *shikantaza*,” that is a type. What do you mean, “a certain type of...”
 
-**Questioner:** I was just reading a book on Buddhism that said that the Sōtō sect practices *shikantaza* and the Rinzai practices *koans*, and I just wasn’t sure what it meant. 
+**Questioner:** I was just reading a book on Buddhism that said that the Sōtō sect practices *shikantaza*...
 
-**Katagiri Roshi:** *Shikantaza* is a type of... yes. Well, *koan* is another Zen practice. But *shikantaza* is, if you want to say [so], that is a type of meditation. But it is not a particular type of meditation separate from other meditation; it is because this *shikantaza* is exactly... I don’t know... *essence* of practice of zazen, meditation. Even if you don’t use anything, or even if you don’t have any idea of zazen, or whoever you are – clever person or poor person, stupid, whoever you are – if you do zazen like this, you can do it, exactly. Even though you don’t pass any *koan*, even if you don’t know *koans*. Even if you don’t know Buddhism. Even if you don’t know what life is. But why don’t you sit like this? This is exactly the way of realizing who you are, touching directly who are you. That is *shikantaza*. 
+**Katagiri Roshi:** *Shikantaza* is a type of... yes.
+
+**Questioner:** ... and the Rinzai practices *koans*, and I just wasn’t sure what it meant. 
+
+**Katagiri Roshi:** Well, *koan* is another Zen practice. But *shikantaza* is, if you want to say [so], that is a type of meditation. But it is not a particular type of meditation separate from other meditation; it is because this *shikantaza* is exactly... I don’t know... *essence* of practice of zazen, meditation. Even if you don’t use anything, or even if you don’t have any idea of zazen, or whoever you are – clever person or poor person, stupid, whoever you are – if you do zazen like this, you can do it, exactly. Even though you don’t pass any *koan*, even if you don’t know *koans*. Even if you don’t know Buddhism. Even if you don’t know what life is. But why don’t you sit like this? This is exactly the way of realizing who you are, touching directly who are you. That is *shikantaza*. 
 
 Okay, any others?
 
