@@ -55,7 +55,7 @@ And also there are two postures: half-lotus – this is half-lotus. Or vice-vers
 
 And then, if you do this posture, your weight is put on the three points: two knees and the hips. Two knees on the square cushion, and the hips on the round cushion. So, this is the posture. Posture is very important. 
 
-Next, put your hand palm upward on your knee. Then, take deep breaths. Open your mouth just slightly. Let the breath in through your mouth, and when you inhale your body is arching backward a little bit, stretching the front. Very slowly, with full attention, okay? And then when you exhale, your body is arching foward, just like taking away all the inhaled breath from the lower abdomen. Just arching forward. Do you understand okay? Let’s repeat this one. 
+Next, put your hand palm upward on your knee. Then, take deep breaths. Open your mouth just slightly. Let the breath in through your mouth, and when you inhale your body is arching backward a little bit, stretching the front. Very slowly, with full attention, okay? And then when you exhale, your body is arching forward, just like taking away all the inhaled breath from the lower abdomen. Just arching forward. Do you understand okay? Let’s repeat this one. 
 
 And then next, lean to the right as you exhale, stretching out the left side of your body. And bring your body back to the center as you inhale. And exhale while leaning to the left, stretching out the right side of your body. And inhale and bring it back to the center. Let’s repeat this [...]. And the motion goes from large to small. This is a very important practice before you sit. This is a preparation for your sitting – physically and mentally. 
 
@@ -67,7 +67,7 @@ So if you believe this symbol of the universe made by your hands – well, that
 
 Just like the American flag. If you see the American flag, you stand up and you do this, and then the symbol of American flag works with you. The same applies to this. This is a symbol, but a symbol is not a symbol, a symbol is something which should [be] alive in you – when you *make* it alive, when you use it. At that time, symbol really works. But a symbol itself doesn’t have any sense. So only when you use it, it really works. 
 
-So anyway, that’s why we make a universe with two hands. And then the universe must be one with you, with the center of gravity. That center of the gravity is always lower abdomen, so this universe much be touched to the lower abdomen. 
+So anyway, that’s why we make a universe with two hands. And then the universe must be one with you, with the center of gravity. That center of the gravity is always lower abdomen, so this universe must be touched to the lower abdomen. 
 
 And the thumbs are placed a few inches below the navel: not too high, not too low. 
 
@@ -111,9 +111,11 @@ Breathing is always changing. You cannot keep a certain pattern of your breath. 
 
 #### 2 - 2:55
 
-And then next, the mind. Harmonizing your mind. The mind is really busy – like a monkey. So anyway, take care of your mind. 
+And then next, the mind – harmonizing your mind. The mind is really busy – like a monkey. So anyway, take care of your mind. 
 
-So [taking care of your] mind should be: let your mind sit in zazen with you. Constantly. Don’t let it go. If you let it go, it runs wild. 
+So [taking care of your] mind should be: let your mind sit in zazen with you. Constantly. 
+
+Don’t let it go. If you let it go, it runs wild. 
 
 Anyway, let whatever kind of mind – monkey mind, or good mind, or calm mind, whatever it is – let your monkey mind sit together with you. That is a point. 
 
@@ -123,9 +125,9 @@ For this, when you inhale, maybe you can concentrate on [the] lower abdomen goin
 
 This is the breathing. It’s pretty good practice. 
 
-So either way, always your mind must be with the breath. But mind goes, immediately. So at that time, take it back. Bring it back to your zazen. 
+So either way. Always your mind must be with the breath. But mind goes, immediately. So at that time, take it back. Bring it back to your zazen. 
 
-But very often, your mind is just like a wild kid. Really wild kid. Always he is screaming, and going out... and you are just like a mother. So always take [him] back. Okay?
+But very often, your mind is just like a wild kid. A really wild kid. Always he is screaming, and going out... and you are just like a mother. So always take [him] back. Okay?
 
 So probably I don’t know how often you should take him back to your zazen. Maybe your whole period of zazen. You always see the mind going out, and take him back, and going out, take him back – always. So finally you say, “What *is* zazen?” You don’t understand zazen’s meaning. But that’s alright, that’s alright... don’t worry. All you have to do is, see the mind: where is it? And then if it goes, take it back. With your best. That’s all we have to do. 
 
@@ -137,9 +139,9 @@ For a while, I will correct your posture.
 
 Okay, when the zazen is over, we release the posture of your hands. Put them on your knee, like this, palm upward. And move to the right, to the left, going from small motion to large. First drop down your head to the right shoulder as you exhale, and bring your head back to the center as you inhale. And drop down your head to the left shoulder as you exhale, and inhale and bring it back to the center. Let’s repeat. And the swinging is going from small motion to large. 
 
-Your mind has been very quiet, so after zazen you cannot [...] act roughly. That’s why this swinging must be going from small motion to large, like this.
+Your mind has been very quiet, so after zazen you cannot [move or] act roughly. That’s why this swinging must be going from small motion to large, like this.
 
-And then release your posture of your leg, and stretch out. 
+And then release your posture of your legs, and stretch out. 
 
 And then you can stand up. 
 
@@ -147,31 +149,31 @@ And then you can stand up.
 
 [Listen to Part 3](https://www.youtube.com/watch?v=0ImK8BBFg3Y)
 
-I want to say a few point in zazen which are very important. 
+I want to say a few points in zazen which are very important. 
 
-I told you there are three crucial points you have to attention to in zazen: harmonizing the body, harmonizing the breath, harmonizing the mind. That is very important.
+I told you there are three crucial points you have to attention to in zazen: harmonizing the body, harmonizing the breath, harmonizing your mind. That is very important.
 
 So in this case, first of all you have to make arrangement of circumstances: the zendo, sitting place. Our external circumstances. So, not a messy room, not a stinky room, not too bright, not too dark, not too cold, not too hot. Not much [draft]. So you should adjust the external circumstances for your sitting. 
 
 And also, next, that is posture. Posture you have already learned. That proper physical posture means to keep balance; to keep your body balanced. If you have this straight posture like this, that is exactly you keep your body balanced, externally, physically. And simultaneously that’s connected with the nervous system – the brain stem. Central nerves and spinal cord are exactly connected. So if you have a proper posture physically, that means exactly the function of the brain stem works and keeps in balance, exactly. That’s exactly [what it] means. So that’s why sitting in proper posture is important. 
 
-So if you’re sitting like *this*, you cannot sit for long. And also you cannot really concentrate on the sitting. If you sit like *this*, which means too comfortable posture for you *[he laughs]*: at that time thinking, thoughts coming up. So it’s very difficult to become sort of tranquil. 
+So if you’re sitting like *this*, *[demonstrating a posture]*, you cannot sit for long, and also you cannot really concentrate on the sitting. If you sit like *this*, which means too comfortable posture for you *[he laughs]*: at that time thinking, thoughts coming up. So it’s very difficult to become sort of tranquil. 
 
 So, that is physical posture. 
 
 And next, harmonizing the breath, harmonizing the mind. This is also very important. 
 
-External physical condition, or internal physical condition. The human body is characterized by sort of ... homeostasis. So if you are harmonizing your breath, harmonizing your mind, that is exactly keeping the function of your brain stem completely in balance, creating a strong feeling of being present right-now-right-here. Because central nerves [are] working pretty well, and also the frontal lobe, the cerebral cortex, really rests perfectly. When the cerebral cortex rests... if you can make it rest, well, it works very naturally, smoothly, without giving pressure to the central nerve. So central nerve and your brainstem and cerebral cortex and all things work pretty well. So very naturally, the function of the hormones [works] pretty well, breathing is pretty well. And then very naturally, mind blooms... so-called *tranquil*. So very naturally you really feel strongly or stably being present, right-now-right-here.
+External physical condition, or internal physical condition. The human body is characterized by sort of ... *homeostasis*. So if you are harmonizing your breath, harmonizing your mind, that is exactly keeping the function of your brain stem completely in balance, creating a strong feeling of being present right-now-right-here. Because the central nerves [are] working pretty well, and also the frontal lobe, the cerebral cortex, really rests perfectly. When the cerebral cortex rests... if you can make it rest, well, it works very naturally, smoothly, without giving any pressure to the central nerve. So central nerve and your brainstem and cerebral cortex and all things work pretty well. So very naturally, the function of the hormones [works] pretty well, breathing is pretty well. And then very naturally, mind blooms... so-called *tranquil*. So very naturally you really feel strongly or stably being present, right-now-right-here.
 
 On the other hand, when the external or internal physical condition operates pretty well, at that time you can create vitalities, you can feel really strong vitalities. 
 
-So two things you can realize through this practice. You can feel exactly being present, completely beyond you like or you don’t like, just being present; you can notice this, through this sitting. On the other hand, you can realize vitality. You want to *live*, you want to be present; that is vitality. Two things come up. So sometimes you don’t know what to do. Strong vitality comes up, energy comes up. *[He laughs.]* But at that time, don’t worry. Don’t worry. Just let it go. Just... be with it. But if you poke your head into something *extra*, something particular – vitalities, energies – depressing energy or strong energies, et cetera – that is a problem for you. So don’t worry – whatever kind of energy comes up, all you have to do is just sitting continually, keeping balance. 
+So two things you can realize through this practice. You can feel exactly being present, completely beyond you like or you don’t like, just being present; you can notice this, through this sitting. On the other hand, you can realize vitality. You want to *live*, you want to be present; that is vitality. Two things come up. So sometimes you don’t know what to do. Strong vitality comes up, energy comes up. *[He laughs.]* But at that time, don’t worry, don’t worry. Just let it go. Just... be with it. But if you poke your head into something *extra*, something particular – vitalities, energies – depressing energy or strong energies, et cetera – that is a problem for you. So don’t worry – whatever kind of energy comes up, all you have to do is just sitting continually, keeping balance. 
 
-So very naturally your whole body and mind is characterized by homeostasis, constantly keeping balance. That is influencing your life. And also you can... fit your life into human society through this experience. So, you bring your body and mind into human society, but your mind and body are very calm and keeping balance. And also, you influence, you help somebody with this situation of your body and mind, even though you don’t say [anything]. 
+So very naturally your whole body and mind is characterized by homeostasis, constantly keeping balance. That is influencing your life. And also you can... fit your life into human society through this experience. So, you bring your body and mind into human society, but your mind and body are very calm and keeping balance. And also, [...] you help somebody with this situation of your body and mind, even though you don’t say [anything]. 
 
-So when you join human society, still you can really experience this feeling of being present stably and securely; on the other hand, feeling of desire to be present – both. But both are completely working in equality. So that is keeping balance; exactly keeping balance. 
+So when you join human society, still you can really experience this feeling of being present stably and securely; on the other hand, feeling of desire to be present. Both. But both are completely working in equality. So that is keeping balance; exactly keeping balance. 
 
-You cannot always keep calm – because you have to act! Even though you sit down, it is acting. Even though you don’t say anything, it is acting. So in order to act, you need vitality, energy. Don’t you think so? 
+You cannot always keep calm... because you have to act! Even though you sit down, it is acting. Even though you don’t say anything, it is acting. So in order to act, you need vitality, energy. Don’t you think so? 
 
 So, both. But both don’t interrupt each other. Exactly keeping balance. This is characteristic of your bodies, externally or internally. That is called *homeostasis*. Completely. 
 
@@ -181,37 +183,35 @@ Let’s keep this function, characteristic of your body and mind like this.
 
 You can help people like this, and also you can help yourself like this. So very naturally you can really enjoy yourself. 
 
-At that time, still it is a problem: so-called *egoistic*. “I am a great man” – like this. That is ego. It’s ego.
+At that time, still it is a problem! So-called *egoistic*. “I am a great man” – like this. That is ego. It’s ego.
 
-Or, there is a very strong desire: “I want to keep this. I want to be a good boy, wherever I am. So I want to do zazen.” So sometimes [you] kick out anybody who interrupts you. So [you kick them] out and [say], “I want do zazen.” You don’t care about family, you don’t care about school, you don’t care about the office. Sometimes you really want to do. This is egoistic. In a sense, egoistic. 
+Or, there is a very strong desire: “I want to keep this. I want to be a good boy, wherever I am, so I want to do zazen.” So sometimes [you] kick out anybody who interrupts you. So [you kick them] out and [say], “I want do zazen.” You don’t care about family, you don’t care about school, you don’t care about the office. Sometimes you really want to do it. This is egoistic. In a sense, egoistic. 
 
-So the more you realize how wonderful the function of homeostasis [is], you can realize, but it becomes selfish. So finally, all you have to do is: forget it! *[He chuckles.]* All you have to do is, day by day, just keep this practice. Just, on and on. Without expectation [of] anything. Just keep it. 
+So the more you realize how wonderful the function of homeostasis [is that] you can realize, it becomes selfish. So finally, all you have to do is: forget it! *[He chuckles.]* All you have to do is, day by day, just keep this practice. Just, on and on. Without expectation [of] anything. Just keep it. 
 
 That is a religious practice. *[He chuckles.]* Okay? 
 
-But before this, if you attach to the good aspect of your experience through zazen, at that time you create a certain expectation through the zazen. “Enlightenment! More, more, more!” Desires going endlessly. At that time, you cannot become peaceful. Because, “more, more... better life, better life.” It keeps you busy. So [where] is the peace? In zazen you are confused [because] you are not in peace. 
+But before this, if you attach to the good aspect of your experience through zazen, at that time you create a certain expectation through the zazen. “Enlightenment! More, more, more!” Desires going endlessly. At that time, you cannot become peaceful, because, “More, more! Better life, better life!” It keeps you busy. So [where] is the peace? In zazen you are confused [because] you are not in peace. 
 
-So zazen is exactly [a symbol of] peace. Exactly. That means around the zazen, nothing to touch to zazen. Only zazen is standing there. That’s all!
+So zazen is exactly [a symbol of] peace. Exactly. That means around the zazen, [there is] nothing to touch to zazen. Only zazen is standing there. That’s all!
 
-But if you really realize how *wonderful* zazen is, you are exactly creating more desire to experience something more, or “I want to be a good boy,” “I want to help people,” “I want to do zazen more,” “I don’t care about human problems”... *[he laughs]* Always those things come up. And then very naturally, how many hours should I do it, in order to get the “good boy”? So very naturally it goes on and on, desires coming up. Don’t you think so? So where is the peace? You are completely doing the same things as you do usually. 
+But if you really realize how *wonderful* zazen is, you are exactly creating more desire to experience something more: “I want to be a good boy,” “I want to help people,” “I want to do zazen more,” “I don’t care about human problems”... *[he laughs]* Always those things come up. And then very naturally, how many hours should I do it, in order to get the “good boy”? So very naturally it goes on and on, desires coming up. Don’t you think so? So where is the peace? You are completely doing the same things as you do usually. 
 
-But why do you do zazen? I don’t know why; because consciously or unconsciously you want to be peaceful, don’t you? *[He laughs.]* Well, even if you don’t know, unconsciously or consciously you want to be present in peace and harmony, right now, right here. That’s all you have to do. For this, why don’t you just sit?
+But why do you do zazen? I don’t know why, but because consciously or unconsciously you want to be peaceful, don’t you? *[He laughs.]* Well, even if you don’t know, unconsciously or consciously you want to be present in peace and harmony, right now, right here. That’s all you have to do. For this, why don’t you just sit?
 
 So [...] all you have to is harmonizing your mind, and the body, and breath. And then you can realize the two feelings. [First,] being present exactly beyond your like or dislike – you really appreciate your presence, realizing how valuable you are, [how valuable] your presence is. Second: strong vitality comes up, constantly. Both don’t bother each other; [they are] exactly keeping in balance. That is called peace, or tranquility. This is really helping people, and helping you. 
 
-But at that time, if you expect rewards from zazen, it is exactly not religious practice, because it is just like same things as you do in your everyday life. Do something, and then what? Do something, and then what? I get [the two things], good things, and then what? Always *what*, *what*, *what*? 
+But at that time, if you expect these rewards from zazen, it is exactly not religious practice, it is just like the same things as you do in your everyday life. Do something, and then what? Do something, and then what? I get [the two things], good things, and then what? Always *what*, *what*, *what*? 
 
 It keeps you busy. In a sense, it’s fun. But in a sense it’s a cause of trouble. So you never find peace. 
 
-But zazen is exactly to realize *who you are*. Not losing the energy, not losing the vitality, not losing yourself as you really are.
+But zazen is exactly to realize *who you are*. Not losing the energy, not losing the vitality, not losing yourself as you really are. That’s all you have to do. That is important for us. For this: whatever you experience, forget it! Okay? All you have to do is to carry it forever. Just like the water of the Ganges river: just going. That is really great power, supporting your life, behind your life. You don’t see it – but it’s really great help. That is called security: *spiritual security*. 
 
-That’s all you have to do. That is important for us. For this: whatever you experience, forget it! Okay? All you have to do is to carry it forever. Just like the water of the Ganges river: just going. That is really great power, supporting your life, behind your life. You don’t see it – but it’s really great help. That is called security: *spiritual security*. 
-
-But in the human world, always we can see something: if you do something, then you can get [some] power. Or mentally or physically or materialistically, you can get [some] power. But that power is always you get the power, next moment it disappears. Don’t you think so? Always it disappears. And then next you can get more; and next moment it disappears. *What are you doing*, finally?
+But in the human world, always we can see something: if you do something, then you can get [some] power. Or mentally or physically or materialistically, you can get power. But that power is always you get the power, next moment it disappears. Don’t you think so? Always it disappears. And then next you can get more; and next moment it disappears. *What are you doing*, finally?
 
 But zazen is not like this. 
 
-So wherever you can get power, physically or mentally: that’s fine. Don’t worry about that. All you have to do is just carry the zazen. Just like that. Through which you can get any kind of powers. You can get it, but the power you can get is not important; that is secondary. Helping so much [...] So, you can get it. But don’t worry about this; don’t hang around this. Appreciate it! Appreciate those experiences. But don’t hang around. All you have to do is just to carry your zazen. 
+So wherever you can get power, physically or mentally: that’s fine. Don’t worry about that. All you have to do is just carry the zazen. Just like this. Through which you can get any kind of powers. You can get it, but the power you can get is not important; that is secondary. Helping so much... [well,] you can get it. But don’t worry about this; don’t hang around this. Appreciate it! Appreciate those experiences. But don’t hang around. All you have to do is just to carry your zazen. 
 
 That means experience that perfect harmony. You can experience harmony, and you can help others, and you can help *you*. 
 
