@@ -77,7 +77,7 @@ Next, in the lower back, push it forward, a little hard, and then [adjust a litt
 
 So, push the lower back first, and [adjust a little]. And straighten your [...] upper back, and your head. And keep your neck in parallel with the wall, first. And then, without moving your neck, pull your chin in, [so that you] feel like [you’re] pushing the ceiling with the top of the back of your head. And then very naturally your back becomes taut. Just like sticking a straight stick from the top of your head to the bottom. 
 
-And then, very naturally your eyes cast on the floor, and looking at a certain point on the floor – a little wide area. Don’t pick up *[unintelligible]* from the floor. Just cast down your eyes. And then this area is almost in the same distance as your sitting height. So very naturally your eyes open just slightly – not wide, not closed. If you close your eyes, you really enjoy “innate visualizations.” [...] If your open your eyes too much, that is also trouble: your mind scatters. So not wide open, not closed. But in the beginning of zazen if it is difficult to take care of your mind, at that time you can close your eyes – for a while. Okay? For a while. And then as soon as possible, you should open your eyes. 
+And then, very naturally your eyes cast on the floor, and looking at a certain point on the floor – a little wide area. Don’t pick up [stains] from the floor. Just cast down your eyes. And then this area is almost in the same distance as your sitting height. So very naturally your eyes open just slightly – not wide, not closed. If you close your eyes, you really enjoy “innate visualizations.” [...] If your open your eyes too much, that is also trouble: your mind scatters. So not wide open, not closed. But in the beginning of zazen if it is difficult to take care of your mind, at that time you can close your eyes – for a while. Okay? For a while. And then as soon as possible, you should open your eyes. 
 
 So let’s have this posture, and cast down your eyes on the floor, your eyes open just slightly. And at that time, your nose and navel are in a vertical line; and ears and shoulders in the same straight line. That means you cannot lean forward, you cannot lean backward. You cannot lean to the right or to the left. Exactly straight up. Just like a mountain. 
 
@@ -227,5 +227,66 @@ Okay. That’s all.
 
 [Listen to Part 4](https://www.youtube.com/watch?v=Nro0SBmLJck)
 
-*[Q&A to be transcribed.]*
+Do you have questions about zazen? Any questions?
 
+**Question:** Is there any mantra or anything that you use during meditation? 
+
+**Katagiri Roshi:** No. No mantra. Okay? *[He laughs.]* That’s pretty hard, but... nothing brought into your zazen. So all you have to do is just take best care of your zazen, using the physical body, and mind. That’s all you have to do. If you bring something extra, so-called *mantra*, so-called statements given by Jesus or Buddha, et cetera, that is extra. *Extra* means here is one thing; something extra here. 
+
+If you have an *extra*, you can see this finger objectively, you cannot be exactly subjective. Do you understand? If you do zazen, you must be zazen. You must be zazen. But if you bring a mantra or whatever it is, it’s extra. So through the mantra you can touch the zazen: “Ha ha, good zazen.” *[He laughs.]* But that is already you stir up the water to make it dirty. Do you understand?
+
+#### 4 - 1:37
+
+**Question:** Could you go over the eyes again? They are staring at an area, not a spot? Is that what you said? 
+
+**Katagiri Roshi:** Don’t stare at one point on the floor. For instance tiny things; if you stare at it for long, you can make a visualization of light: blue light, green light, sometimes animal face, sometimes human face comes up, on the floor. It’s very natural. So don’t glare at one point. 
+
+So that’s why I told you, just cast your eyes down on the floor, looking a little broad area, in the same distance as your sitting height. That’s pretty good. Because when you see the visualization of animal face or human face from the floor [stains], that means indication of your eye nerve exhausting, completely exhaust. So you can see the light. Do you understand what I mean? If you exhaust physically and mentally, well, very naturally you can see something. 
+
+So in zazen it very clearly comes up, in many ways. Light, or sometimes voice coming in. *[He laughs.]* Sometimes you’re really sensitive, too sensitive – sensitive to the sound, sensitive to the quietness. That is already your nerves are exhausted. Don’t use your nerves too much. Just let go of your nerves, your external and internal organs. That is pretty hard, but through zazen, if you just follow this way of zazen, you can do it. 
+
+But sometimes you can close your eyes, for a while. Because open eyes is a way of living. If you open your eyes, this is a philosophy: how much you be involved in the human world. If you open your eyes wide, that’s too much, you’re involved too much in the world. *[He laughs.]* Politics, or whatever it is. So you cannot get out. On the other hand, if you really hate the human world and you try to withdraw, that is also trouble. That is closing eyes. If you withdraw, you can become alone, but still you have lots of problems because already you have had lots of preconceptions in your head. So if you become alone, you really enjoy your “visualizations.” Nobody interrupts you; that is a problem, though. Nobody tells you; nobody there. You can be just alone, and then you can play with your own [preconceptions]. That is a problem.
+
+So that’s why open your eyes just slightly. That means contacting with object outside, external world. Just slightly. And then it gives you suggestions: “Hey, what are you thinking?” So you can come back to yourself. That’s why this is just slightly open. 
+
+#### 4 - 5:48
+
+**Question:** What is *shikantaza*?
+
+**Katagiri Roshi:** *Shikantaza*. *Shikan* means... I don’t know how to translate... *Shikan* is in this case a noun and also and adverb. *Shikan* means *wholeheartedly* or *wholeheartedness*. Just like smoke going straight up in the sky without moving, because there is no wind. Just straight up. That is the state of your effort. 
+
+**Questioner:** It’s not like a certain type of meditation? 
+
+**Katagiri Roshi:** Well... *[He laughs.]* Well, if you say “that is *shikantaza*,” that is a type. What do you mean, “a certain type of...”
+
+**Questioner:** I was just reading a book on Buddhism that said that the Sōtō sect practices *shikantaza* and the Rinzai practices *koans*, and I just wasn’t sure what it meant. 
+
+**Katagiri Roshi:** *Shikantaza* is a type of... yes. Well, *koan* is another Zen practice. But *shikantaza* is, if you want to say [so], that is a type of meditation. But it is not a particular type of meditation separate from other meditation; it is because this *shikantaza* is exactly... I don’t know... *essence* of practice of zazen, meditation. Even if you don’t use anything, or even if you don’t have any idea of zazen, or whoever you are – clever person or poor person, stupid, whoever you are – if you do zazen like this, you can do it, exactly. Even though you don’t pass any *koan*, even if you don’t know *koans*. Even if you don’t know Buddhism. Even if you don’t know what life is. But why don’t you sit like this? This is exactly the way of realizing who you are, touching directly who are you. That is *shikantaza*. 
+
+Okay, any others?
+
+#### 4 - 8:14
+
+**Question:** Roshi? From sitting, oftentimes I get real tired, and my knees get real sore. I find myself fixating on the discomfort. Is it best to move, or to try to stay with that and let it pass? 
+
+**Katagiri Roshi:** No, I don’t say yes, I don’t say no. *[He laughs, and the audience laughs.]*
+
+If I say “yes,” very naturally your zazen is regulated by “Katagiri says ‘yes’.” So pretty easily you become lazy, because Katagiri says, “I can move it.” So you cannot practice patience. You know? 
+
+But if I say “don’t move,” you say, “Well...” *[Laughter.]* “I don’t like it.” *[He laughs.]* You hate me. Well, it’s okay to hate me, but you don’t want to do zazen, anyway. 
+
+So whatever I say, it’s not correct. Don’t you think so? *[They laugh.]*
+
+So what I want to tell you is, “Do your best.” Do your best. Under all circumstances, do your best. That’s all you have to do. 
+
+Anyway, human life is very strange – funny, you know? *[He chuckles.]* We want to get certain rules and certain “frames”: about zazen, breathing... That’s interesting. But zazen... to the minimum you have to have certain information, rules, et cetera. But right in the middle of the rule, if you do zazen, many things come up! You don’t know how to take care of it. So very naturally you want to make a rule: how to deal with this one, or B, and C, and A. And then gradually you make rules... *lots of* rules. Katagiri says “do this, and when you deal with A, you can move it.” So if you see the A, very naturally you can move it. If you see the B: *forget it*. So, just forget it.
+
+So there is no sense of subjectivity. *Who* is doing zazen? *You* do zazen. [It’s] not *regulations* doing zazen! *[He laughs.]* But if I make rules – always like this, giving rules to you – who is doing zazen? No sense of subjectivity. 
+
+That is really a trap. And human beings really like it! But if you fall into this, you really struggle and you suffer. But on the other hand, you like it! Just like ants – always they like very much honey. They climb the honey bottle, and fall into the honey. They cannot get out. 
+
+So that is human beings. Very strange. But on the other hand, it’s fun. *[He laughs.]*
+
+Any other questions?
+
+#### end of recording
