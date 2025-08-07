@@ -28,37 +28,33 @@ I think I have to say the same sentence in a different way:
 
 > *Sanzen gakudō* is the great matter of one’s whole life. 
 
-I think “the great matter of one’s whole life” is not only [in Dōgen’s works]; you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, Chapter Two, “Skillfulness,” I think [it says] that “the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter.” It is the same meaning as Dōgen mentions here. *Sanzen gakudō* is translated according to this book as “the study of the Way through the practice of zazen” – *sanzen gakudō* is the great matter of one’s whole life. 
+I think “the great matter of one’s whole life” is not only [in Dōgen’s works]; you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, in Chapter Two, “Skillfulness,” I think [it says] that “the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter.” It is the same meaning as Dōgen mentions here. *Sanzen gakudō* is translated according to this book as “the study of the Way through the practice of zazen” – *sanzen gakudō* is the great matter of one’s whole life. 
 
-*Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
+*Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the Way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 
 *The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 
-So *gakudō* is to study universal life beyond the conscious and unconscious worlds. This is *gakudō*. 
+So *gakudō* is to study the universal life beyond the conscious and unconscious worlds. This is *gakudō*. 
 
-*Sanzen* is to surrender one’s body and mind to *zen*, or tranquility. *Zen* sometimes means *samadhi*, one-pointedness; sometimes it is translated as *tranquility*; sometimes it is translated as *meditation*. But anyway, *san* means “to surrender oneself to.” To surrender, or to visit, or to be present... to go toward. This is *san*. So *sanzen* means to surrender one’s life to *zen* or tranquility. 
+*Sanzen* is to surrender one’s body and mind to *zen*, or tranquility. *Zen* sometimes means *samadhi*, one-pointedness; sometimes it is translated as *tranquility*; sometimes it is translated as *meditation*. But anyway, *san* means “to surrender oneself to.” To surrender, or to visit, or to be present... to go toward. This is *san*. So *san-zen* means to surrender one’s life to *zen* or tranquility. 
 
-*Zen* or tranquility means dimension of being in which there is no individual consciousness, so-called consciousness or unconsciousness. So [no] subtle signs of ideas, conscious world or unconscious world. 
+*Zen* or tranquility means [the] dimension of being in which there is no individual consciousness, so-called consciousness or unconsciousness. So [no] subtle signs of ideas, conscious world or unconscious world. 
 
-In Japanese, tranquility is called *jakujō*. *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means if you are there, you are *exactly* there; nothing else except you. So that is very tranquil. Just like being present in the wilderness. There are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfectly tranquil. That is the meaning of *jaku*. So, completely nothing around you. 
+In Japanese, tranquility is called *jakujō*. *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means if you are there, you are *exactly* there; nothing else except *you*. So that is very tranquil. Just like being present in the wilderness: there are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfect tranquility. That is the meaning of *jaku*. So, completely nothing around you. 
 
-And also *jō* of *jakujō* means literally “to express in detail.” So literally [...] *jō* of *jakujō* is also the same meaning of stillness or tranquility, but it is a little different from the *jaku* of *jakujō*. *Jō* is “tranquil and still which penetrates every aspect of everydayness.” 
+And also *jō* of *jakujō* means literally “to express in detail.” So literally [...] *jō* of *jakujō* is also the same meaning of stillness or tranquility, but it is a little different from the *jaku* of *jakujō*. *Jō* is “[tranquility and stillness] which penetrates every aspect of everydayness.” 
 
-So *jaku* is kind of the essence of beings, how they exist. Everything exists exactly in peace, in harmony, in tranquility. But it is not something *abstract*, because it penetrates every aspect of everydayness. If you see a tree, if you see winter, if you see fine days – whatever you see, all sentient beings exist just exactly tranquil. You can see perfect tranquility through the form [of beings], every form of beings – trees, birds, and weather, et cetera. So that’s why *jō* of *jakujō* is tranquility which penetrates every aspect of everydayness. 
+So *jaku* is kind of the essence of beings, how they exist. Everything exists exactly in peace, in harmony, in tranquility. But it is not something *abstract*, because it penetrates every aspect of everydayness. If you see a tree, if you see winter, if you see fine days – whatever you see, all sentient beings exist just exactly tranquil. You can see perfect tranquility through the form [of beings], every form of beings – trees, birds, and the weather, et cetera. So that’s why *jō* of *jakujō* is tranquility which penetrates every aspect of everydayness. 
 
-So *jaku* is no one or nothing with which you want to talk; that is, according to [what Buddha said] or according to the Buddha’s teaching, we say, “Heaven and earth is the same and one root as my existence, your existence.” [Or] “I and heaven and earth are the same and one root.” Exactly that is called tranquility, exactly tranquility. Tranquility is no ideas, nothing to think, so you cannot think of it. Before you think of the universe, or you – whatever – the whole world, all existence exactly exists in perfect peace and harmony. That is called “I and heaven and earth are the one and the same root.” 
+So *jaku* is no one or nothing with which you want to talk; that is, according to [what Buddha said] or according to [Buddhist] teaching, we say, “Heaven and earth is the same and one root as my existence, your existence.” [Or] “I and heaven and earth are the same and one root.” That is called tranquility, exactly tranquility. Tranquility is no ideas, nothing to think. So you cannot think of it. Before you think of the universe, or you – whatever – the whole world, all existence exactly exists in perfect peace and harmony. That is called “I and heaven and earth are the one and the same root.” 
 
 The *jō* of *jakujō* [is], according to Buddha’s teaching, we say *hachimen reirō* (八面玲瓏). That means a clear and immaculate jewel with octagonal spheres. “Octagonal” [here] doesn’t mean eight angles or eight dimensions of the jewel or ball, [it means] many angles there. 
 
-So existence is just like a huge ball or jewel which is clear and immaculate. That is *jaku*, exactly: perfect quiet. But on the other hand that ball has many aspects, many angles: that is called “octagonal spheres.” (That is *jō*.) That means many myriad, myriad aspects of human life, every day. Getting up in the morning; washing your face; having your breakfast; studying; working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate. 
-
-(*Transcriber’s Note:* For more detail on *hachimen reirō*, see the Sōtōshū’s *Dōgen’s Shōbōgenzō, Volume VIII*, page 358, “crystal clear on all eight sides.”)
+So existence is just like a huge ball or jewel which is clear and immaculate. That is *jaku*, exactly: perfect quiet. But on the other hand that ball has many aspects, many angles: that is called “octagonal spheres.” (That is *jō*.) That means many myriad, myriad aspects of human life, every day. Getting up in the morning; washing your face; having your breakfast; studying; working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate. [^1]
 
 This is the meaning of *sanzen*. So it’s very difficult to translate *sanzen* into English. If you say “the study of the Way through the practice of zazen,” it is true... but it is pretty difficult to express the real spirit of the practice. So I want to use this original term *sanzen*, so through this original term you can see the real spirit of practice.
 
-So let’s [look at] the meaning of *sanzen gakudō*, okay? *Sanzen* is you have to surrender your whole life to *zen* or *tranquility*, which is exactly the Way. 
-
-So *sanzen* is the same meaning as *gakudō*. What do we learn? The Way; it is the Way. 
+So let’s [look at] the meaning of *sanzen gakudō*, okay? *Sanzen* is you have to surrender your whole life to *zen* or *tranquility*, which is exactly the Way. So *sanzen* is the same meaning as *gakudō*. What do we learn? The Way; it is the Way. 
 
 But what is the Way? That is universal life. What is universal life? How do we learn that universal life beyond [the] conscious and unconscious world? 
 
@@ -70,7 +66,7 @@ So, “*sanzen gakudō* is the great matter of one’s whole life” [is my tran
 
 The “great” [is] *maha* in Sanskrit. *Maha* doesn’t mean something limited by human consciousness or human ideas. *Great* means *boundless*, or *immense*. 
 
-And also we say “one’s whole life.” This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life. 
+And also we say “one’s *whole* life.” This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life. 
 
 Because, what do you have to learn if you want to live in your spiritual life? You have to learn or study something more than your consciousness can see or your consciousness cannot see – [something] beyond this. [...] That means you have to learn the whole world. In the whole world, there are countless, countless beings [that] exist. So, the whole span of your lifetime is not good enough to learn all sentient beings in the whole world – because it’s very short! But we have to learn the *whole* world, *all* sentient beings. *How?* We have to spend this life and the other life and the other life... life after life. This is the meaning of the “one’s whole life” here. 
 
@@ -336,6 +332,10 @@ So always there is some... Even though you have a memorial service for a particu
 But actually, we cannot ignore that specific event. We have to face that specific event...
 
 #### 1:16:44 end of recording
+
+### Footnotes
+
+[^1]: For more detail on *hachimen reirō*, see the Sōtōshū’s *Dōgen’s Shōbōgenzō, Volume VIII*, page 358, “crystal clear on all eight sides.”
 
 ---
 
