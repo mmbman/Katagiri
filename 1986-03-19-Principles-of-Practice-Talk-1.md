@@ -50,7 +50,9 @@ So *jaku* is no one or nothing with which you want to talk; that is, according t
 
 The *jō* of *jakujō* [is], according to Buddha’s teaching, we say *hachimen reirō* (八面玲瓏). That means a clear and immaculate jewel with octagonal spheres. “Octagonal” [here] doesn’t mean eight angles or eight dimensions of the jewel or ball, [it means] many angles there. 
 
-So existence is just like a huge ball or jewel which is clear and immaculate. That is *jaku*, exactly: perfect quiet. But on the other hand that ball has many aspects, many angles: that is called “octagonal spheres.” (That is *jō*.) That means many myriad, myriad aspects of human life, every day. Getting up in the morning; washing your face; having your breakfast; studying; working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate. [^1]
+So existence is just like a huge ball or jewel which is clear and immaculate. That is *jaku*, exactly: perfect quiet. But on the other hand that ball has many aspects, many angles: that is called “octagonal spheres.” (That is *jō*.) That means many myriad, myriad aspects of human life, every day. Getting up in the morning; washing your face; having your breakfast; studying; working. Many aspects appear in one sphere, in one situation – one and the same situation which is called *perfect*, clear, and immaculate.
+
+(*Transcriber’s Note*: For more detail on *hachimen reirō*, see the Sōtōshū’s *Dōgen’s Shōbōgenzō, Volume VIII*, page 358, “crystal clear on all eight sides.”)
 
 This is the meaning of *sanzen*. So it’s very difficult to translate *sanzen* into English. If you say “the study of the Way through the practice of zazen,” it is true... but it is pretty difficult to express the real spirit of the practice. So I want to use this original term *sanzen*, so through this original term you can see the real spirit of practice.
 
@@ -332,10 +334,6 @@ So always there is some... Even though you have a memorial service for a particu
 But actually, we cannot ignore that specific event. We have to face that specific event...
 
 #### 1:16:44 end of recording
-
-### Footnotes
-
-[^1]: For more detail on *hachimen reirō*, see the Sōtōshū’s *Dōgen’s Shōbōgenzō, Volume VIII*, page 358, “crystal clear on all eight sides.”
 
 ---
 
