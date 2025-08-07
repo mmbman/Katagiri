@@ -74,17 +74,19 @@ Because, what do you have to learn if you want to live in your spiritual life? Y
 
 So, in this case, to learn the Buddha Way – to learn the Way – is not a small matter which [can] be learned at the university or in a workshop, et cetera. No; you cannot do it. The matter of learning the Way or studying the Way by surrendering yourself to the total tranquility is not a small matter – it’s really *boundless*, a *huge* matter, which you have to spend your life after life, you have to spend the immense long span of your time. 
 
-This is the reason why Buddha is born in this world, the *Saddharma Pundarika Sutra* or *Lotus Sutra* says. Yes it is. [It is] why *you* were born; the same reason applies to the reason why you were born. Why were you born in this world? Because you are Buddha, we are Buddha. If so, the advent of your existence is due to seeing this great matter in your whole life. Life after life, we have to learn. 
+This is the reason why Buddha is born in this world, the *Saddharma Pundarika Sutra* or *Lotus Sutra* says. Yes it is. [It is] why *you* were born; the same reason applies to the reason why you were born. Why were you born in this world? Because you are Buddha, we are Buddha. If so, the advent of your existence is due to seeing this great matter in your *whole* life. Life after life, we have to learn. 
 
 This is the purpose of practice, the purpose of spiritual life. 
 
-So what is the purpose of spiritual life? It is not the kind of individual experience which we usually believe, that spiritual life is accompanied by mysterious or [miraculous] experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. This is [the] purpose of spiritual life. 
+So what is the purpose of spiritual life? It is not the kind of individual experience [where] we usually believe that spiritual life is accompanied by mysterious or [miraculous] experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. 
 
-That’s why in the *Prajñāpāramitā Sutra* we say we have to attain *anuttara-samyak-sambodhi*, the complete, perfect, supreme enlightenment. [This is] in the *Prajñāpāramitā* we chant every day. And then, you can attain wisdom, *prajnaparamita*. In order to attain *anuttara-samyak-sambodhi*, perfect supreme enlightenment, that means you have to learn something more than you think or you cannot think. This is something very profound. 
+This is [the] purpose of spiritual life. That’s why in the *Prajñāpāramitā Sutra* we say we have to attain *anuttara-samyak-sambodhi*: the complete, perfect, supreme enlightenment. [This is] in the *Prajñāpāramitā* we chant every day. And then, you can attain *wisdom*, *prajnaparamita*. 
+
+So in order to attain *anuttara-samyak-sambodhi*, perfect supreme enlightenment, that means you have to learn something more than you think or you cannot think. This is something very profound. 
 
 Even though you don’t understand this, we are struggling [toward] attaining this. That’s why we practice. That’s why we live in this world. 
 
-You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dōgen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life, is very important because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is [the] real reality [which] your life is. 
+You cannot [...] commit suicide in [a] simple way of thinking. You cannot commit suicide by your will, by your thinking, because in a deep sense we are constantly seeking for [this] something profound. And then we are really struggling, we are making every possible effort to live in this world with others, consciously or unconsciously. So from this point, I think we cannot say our practice is [an] easy way or hard way. Dōgen Zenji says in this chapter [that] you shouldn’t neglect it or treat it lightly, because the purpose of practice, the purpose of spiritual life, is very important because it’s coming up from the bottom of your life. Whether you can see it or you cannot see it, this energy is coming up from the bottom of your life. This is real reality [which] your life is. 
 
 So you shouldn’t neglect it or treat it lightly. That’s why this is “the great matter of your *whole* life.” 
 
@@ -92,29 +94,27 @@ So you shouldn’t neglect it or treat it lightly. That’s why this is “the g
 
 That’s why next [Dōgen] says:
 
-> In China there are the excellent examples of former Zen masters who cut off their arms or fingers. [...]
+> In China there are the excellent examples of former Zen masters who cut off their arms or fingers. Long ago the Buddha Sakyamuni renounced both his home and his kingdom – another fine trace of the practice of the Way. 
 
-I think this is [referring to] the Second Patriarch, Eka Daishi Zen Master (Dazu Huike, 大祖慧可, c. 487–593), who expressed his strong aspiration for becoming a monk. But Bodhidharma didn’t immediately accept his will or desire, so Eka Zen Master kept standing outside in winter. And finally he wanted to express how strong his intention was, so he cut off his arm. 
+“In China there are the excellent examples of former Zen masters who cut off their arms or fingers”: I think this is [referring to] the Second Patriarch, Eka Daishi Zen Master (Dazu Huike, 大祖慧可, c. 487–593), who expressed his strong aspiration for becoming a monk. But Bodhidharma didn’t immediately accept his will or desire, so Eka Zen Master kept standing outside in winter. And finally he wanted to express how strong his intention was, so he cut off his arm. 
 
-We can say this example seems to be cruel or hard, in terms of usual common sense. But for Eka Daishi, for the Second Patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not [cold]. [It is] beyond any ideas of understanding that situation through our common sense, because he is realizing there is [an] important matter he has to seek for. That is *sanzen gakudō*. 
+We can say this example seems to be cruel or hard, in terms of usual common sense. But for Eka Daishi, for the Second Patriarch, it’s not hard. It’s not easy. It’s not cruel. It’s not [cold]. [It is] beyond any ideas of understanding that situation through our common sense. Because he is realizing there is [an] important matter he has to seek for: that is *sanzen gakudō*. So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing this or that. No one. But it’s coming up. When you have a very strong spirit coming up, naturally you cannot stop doing. 
 
-So very naturally, that desire, the spirit of *sanzen gakudō*, is coming up from the bottom of his life. No one forces him to do this or to do that, or to stop doing this or that. No one. But it’s coming up. When you have a very strong spirit coming up, naturally you cannot stop doing. 
-
-So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. For him it is not hard practice, or not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
+So very naturally, beyond [any] idea of practicing hard or practicing easy, et cetera, he just devotes himself to do this. For him it is not hard practice, and not easy practice. Only when that situation is seen from human common sense we put the name on it: “hard practice,” or “easy practice,” we can say. But for him, [it is] completely beyond hard or easy. [Instead] it is natural, pretty natural. 
 
 That’s why Dōgen Zenji says here, “In China there are the excellent examples of former Zen masters who cut off their arms or fingers.”
 
 And also he says:
 
-> Long ago the Buddha Sakyamuni renounced both his home and his kingdom – another fine trace of the practice of the Way. Men of the present day, however, say that one need only practice that which is easily practiced. Their words are very mistaken and far removed from the Way.
+> Men of the present day, however, say that one need only practice that which is easily practiced. Their words are very mistaken and far removed from the Way.
 
-This is laziness; this is the nature of human beings. Unconsciously we try to justify the nature of human beings based on laziness, so very naturally, we say that we need only practice that which is easily practiced. *Or*, somebody says we need hard practice. But why do you emphasize the need of hard practice, or why are you emphasizing the need of easy practice? You don’t yet realize how important [are the] things you have to seek for, so very naturally, you are always arguing. But if you really touch something important, energy is coming up naturally. Whatever people say, you just do it. 
+This is laziness; this is the nature of human beings. Unconsciously we try to justify the nature of human beings based on laziness. So very naturally, we say that we need only practice that which is easily practiced. *Or*, somebody says we need hard practice. But why do you emphasize the need of hard practice, or why are you emphasizing the need of easy practice? You don’t yet realize how important [are the] things you have to seek for. So very naturally, you are always arguing. But if you really touch something important, energy is coming up naturally. Whatever people say, you just do it. 
 
-But [even if] what you *just do* doesn’t hurt anybody, [still,] lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you [their idea].
+But what you *just do* doesn’t hurt anybody. [Still,] lots of criticism comes up. It is natural; [...] because [if] a hundred people look at you, very naturally each of them gives you [their idea].
 
 That’s why here Dōgen Zenji says it like this: “Their words are very mistaken.” [They are]. 
 
-So, if you see the example of what the ancestors did, like the Second Patriarch, maybe we say it’s impossible for us to do this in the modern age. But I don’t mean you should imitate that example. But I [also] don’t mean that you should ignore that example. Because that example happened in the natural way for the people who really realized something very important: the great matter of his or her whole life. At that time, naturally you can do it, beyond hard or easy. 
+So, if you see the example of what the ancestors did, like the Second Patriarch, maybe we say it’s impossible for us to do this in the modern age. I don’t mean you should imitate that example. But I [also] don’t mean that you should ignore that example. Because that example happened in the natural way for the people who really realized something very important: the great matter of his or her whole life. At that time, naturally you can do it – beyond hard or easy. 
 
 #### 39:04
 
