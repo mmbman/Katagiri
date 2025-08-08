@@ -120,23 +120,23 @@ So, if you see the example of what the ancestors did, like the Second Patriarch,
 
 And also, Dōgen Zenji says:
 
-> If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious. 
+> If you devote yourself to one thing exclusively and consider it to be practicing, even lying down will become tedious. 
 
-That means, you can practice hard ... making the most of your spare moments of lying down...
+That means, you can practice hard ... making the most of your spare moments of lying down ...
 
 *[Tape change.]*
 
-... “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.” So you really [want to] go on and on, making the most of your spare moments. 
+... “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.” So you really go on and on, making the most of your spare moments. 
 
 When I was at Eiheiji monastery, my position was one of the clerks. The task of the clerk in Eiheiji monastery is a very difficult one for the monks, because they can’t find any chance to do zazen and to participate in the other activities. Because it’s pretty busy, so you have to exactly devote yourself to taking care of your task. 
 
 But *I* wanted to participate in the ceremonies and other activities, and zazen. 
 
-Well, if you try to find [it], you can find the opportunity to do this. So I did it. Not always, because the task always forces you to do this instead of doing something else, so very naturally you cannot do it. But if you try to find the opportunity to do this or that, very naturally you can do it. So I did it. 
+Well, if you try to find [it], you can find the opportunity to do this. So I did it. Not always, because the task always forces you to do this instead of doing something else, so very naturally you cannot do it. But if you try to find the opportunity to do this or that, very naturally you can do it. 
 
-And many people said, “You are crazy”; “you are stupid.” But, well, I just kept doing it. Because I was very moved by the spirit of zazen mentioned by Hashimoto Roshi, so I did it. 
+So I did it. And many people said, “You are crazy”; “you are stupid.” But, well, I just kept doing it. Because I was very moved by the spirit of zazen mentioned by Hashimoto Roshi, so I did it. 
 
-I didn’t want to do something strange apart from the other monks; I was not against others’ doing. So I tried to find the opportunity to do zazen and other activities. While the other monks, my friends, slept in their bed, took a nap, et cetera, [...] I went to zazen and other activities. 
+I didn’t want to do something strange apart from the other monks; I was not against others’ doing. So I tried to find the opportunity to do zazen and other activities. While the other monks, my friends, slept in bed, took a nap, et cetera, [...] I went to zazen and other activities. 
 
 So, I think that is what Dōgen Zenji mentions here: “If you devote yourself to one thing exclusively and consider it to be training, even lying down will become tedious.”
 
@@ -144,14 +144,14 @@ So, I think that is what Dōgen Zenji mentions here: “If you devote yourself t
 
 That’s very natural too. If you become very tedious [in] taking care of one thing in a day, all day is completely tedious. 
 
-For instance, I really experienced this when I was in my temple. I was tedious for a certain period of time: I didn’t want to get up in the morning. Even though my master got up in the morning, I didn’t. On purpose. *[He laughs.]* So my life all day was completely tedious. All day didn’t go smoothly; always something cloudy. So I became very lazy. 
+For instance, I really experienced this when I was in my temple. I was tedious for a certain period of time: I didn’t want to get up in the mornings. Even though my master got up in the morning, I didn’t. On purpose. *[He laughs.]* So my life all day was completely tedious. All day didn’t go smoothly; always something cloudy. So I became very lazy. 
 
 So that is what Dōgen Zenji mentions here: “If one thing becomes tedious, all things become tedious.”
 
 > You should know that those who like easy things are, as a matter of course, unworthy of the practice of the
 Way.
 
-[For] “unworthy of the practice of the Way,” originally it says, “you are not an appropriate *container* of the Way.” [It] means you are incompetent as an appropriate practitioner of the Way. You are a great container of the dharma, but it doesn’t appear; so that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That [is] the practice: make it alive! 
+[For] “unworthy of the practice of the Way,” originally it says, “you are not an appropriate *container* of the Way.” [It] means you are incompetent as an appropriate practitioner of the Way. But you are a great container of the dharma – but it doesn’t appear. So that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That [is] the practice: make it alive! 
 
 So [...] your body and mind is a great dharma container, but it doesn’t work. At that time you are a container but your container doesn’t work. That’s the point Dōgen Zenji mentions here. 
 
@@ -169,19 +169,19 @@ So this is [the] purpose of practice. Tomorrow I would like to talk about *bodhi
 
 **Question:** Is there a cognition?
 
-**Katagiri Roshi:** Yes, it’s a cognition, but... that cognition is – what would you say – the very inception of cognition, the very beginning of the cognition which occurs. At that time, the very beginning of cognition is not cognition, because it is the first stage of cognition, so you cannot say *cognition*. The first stage of cognition is very touchy, very touchy – you don’t know what it is. If you say *cognition*, it’s already your conscious world. But *before* you say cognition, it’s not cognition. Is that clear? It’s very touchy, very touchy. 
+**Katagiri Roshi:** Yes, it’s a cognition, but... that cognition is – what would you say – the very inception of cognition, the very beginning of the cognition, which occurs. So at that time the very beginning of cognition is not cognition, because it is the first stage of cognition. So you cannot say *cognition*. The first stage of cognition is very touchy, very touchy – you don’t know what it is. If you say *cognition*, it’s already your conscious world. But *before* you say cognition, it’s not cognition. Is that clear? It’s very touchy, very touchy. 
 
 Just like when you get up in the morning. When you wake up, you don’t know the first moment of waking up. You don’t know. You can know something *after* the first moment of the waking up. 
 
-So it’s a cognition, but it’s not cognition. *[He laughs.]* That is, I’d say, beyond the conscious or unconscious world. So you cannot say it is unconscious world, no. It is a conscious world, because you can cognize. But it is not the world of cognitions. 
+So it’s a cognition, but it’s not cognition. *[He laughs.]* That is, I’d say, beyond the conscious or unconscious world. So you cannot say it is [an] unconscious world, no. It is a conscious world, because you can cognize. But it is not the world of cognitions. 
 
 **Questioner:** Also, is that basic cognition... is that also called *ignorance*?
 
-**Katagiri Roshi:** Yes, that’s right. Yes, that is... well, tomorrow maybe I can talk about this, a little bit more about it. It’s connected with *ignorance*. 
+**Katagiri Roshi:** Yes, that’s right. Yes. That is... well, tomorrow maybe I can talk a little bit more about it. It’s connected with ignorance. 
 
 #### 50:26
 
-**Question:** [...] Do you think that the Second Patriarch *really* cut off his arm, or that somebody spiced up the story [to tell] it through the ages... Do we really know that, or is that just... ?
+**Question:** Hojo-san? Do you think that the Second Patriarch *really* cut off his arm, or that somebody spiced up the story [as it was told] through the ages? Do we really know that, or is that just... ?
 
 **Katagiri Roshi:** Yes, I think it’s possible. Yes, I believe [it]. Yes. But [...] it’s not necessary for you to imitate. *[He laughs.]* 
 
@@ -191,27 +191,27 @@ But in a different way, you can do it. A different form coming up. Is that clear
 
 #### 51:30
 
-**Question:** When you were lazy at your temple, your master, and talked about sleeping in on purpose. [Is that like] rationalization, or that you’re preserving you body, ...
+**Question:** When you were lazy at your temple, [...] and talked about sleeping in on purpose. [Is that like] rationalization, or that you’re preserving you body, ...
 
-**Katagiri Roshi:** *[Chuckles.]* Yes, that’s right. Rationalization, emotional, *[he laughs,]* in many ways. That’s the reason there.
+**Katagiri Roshi:** *[Chuckles.]* Well, yes, that’s right. Rationalization, emotional, *[he laughs,]* in many ways. That’s the reason there.
 
 **Questioner:** ... saving ourselves...
 
-**Katagiri Roshi:** Yes, that’s right. Protecting ourselves. In many ways, we protect ourselves, justify ourselves. That’s constantly coming up. 
-
-So it’s very difficult to have application to ... certain circumstances based on peace and harmony. It’s very difficult. 
+**Katagiri Roshi:** Yes, that’s right. Protecting ourselves. In many ways, we protect ourselves, justify ourselves. That’s constantly coming up. So it’s very difficult to have appropriate application to [such a circumstance] based on peace and harmony. It’s very difficult. 
 
 **Questioner:** Is the fear of going overboard, is that still protecting yourself?
 
 **Katagiri Roshi:** “Overboard”?
 
-**Questioner:** Yeah. The fear of going overboard, like going too far, ... Is that still ...
+**Questioner:** Yeah. The fear of going overboard, like going too far, ... is that still ...
 
-**Katagiri Roshi:** Yes, still you are protecting yourself, *[he laughs,]* that’s why you feel “overboard,” something like that. If you do this, we always think, maybe people think something, criticizing me, saying such-and-such, et cetera. So always consciousnessly or unconsciousnessly we protect ourselves. So the *I* comes first. It very strongly comes. 
+**Katagiri Roshi:** Yes, still you are protecting yourself, *[he laughs,]* that’s why you feel “overboard,” something like that. If you do this, we always think, “maybe people think something criticizing me, saying such-and-such,” et cetera. So always consciously or unconsciousnessly we protect ourselves. So the *I* comes first. It really strongly comes. 
 
 **Someone:** Are you saying, Hojo-san, that we don’t need to protect ourselves?
 
-**Katagiri Roshi:** That is already you protecting yourself. *[He laughs, and people laugh.]* So whatever you say, you know, “we don’t need to protect ourselves,” it is already you come first and look at this, and always discuss. You come first, and then you say, “I need to protect” or “I don’t need to protect.” Beyond this, you are protecting, anyway, constantly. 
+**Katagiri Roshi:** That is already you protecting yourself. *[He laughs, and people laugh.]* So whatever you say, you know – “we don’t need to protect ourselves” – it is already you come first and look at this and always discuss. You come first, and then you say, “I need to protect” or “I don’t need to protect.” 
+
+Beyond this, anyway, you are protecting, constantly. 
 
 **Someone:** Hojo-san? Is that what you mean by *[inaudible]*? The same as *[inaudible]*?
 
@@ -223,11 +223,11 @@ So it’s very difficult to have application to ... certain circumstances based 
 
 **Someone:** *[Inaudible]*
 
-**Katagiri Roshi:** Yes, that is natural, natural way. It’s coming up. 
+**Katagiri Roshi:** Yes, that is a natural way. It’s coming up. 
 
-But in terms of human consciousness, if you see that scene, the event, immediately you say it is not protecting himself, et cetera. But for him, that event happens beyond protecting or not protecting. 
+But in terms of human consciousness, if you see that event, immediately you say it is not protecting himself, et cetera. But for him, that event happens beyond protecting or not protecting. 
 
-**Someone:** But despite that it goes beyond the rest of his life, in terms of working and things, he’s not going to be as useful as other people, he’s going to have to depend on other people to help him. He has only one arm, and there’s a lot of consequences to that kind of behavior, outside of the realm of this wonderful spiritual [...] 
+**Someone:** But despite that it goes beyond the rest of his life, in terms of working and things, he’s not going to be as useful as other people, he’s going to have to depend on other people to help him – he has only one arm. And there’s a lot of consequences to that kind of behavior, outside of the realm of this wonderful spiritual [...] 
 
 **Katagiri Roshi:** I beg your pardon, would you say that again for me? 
 
@@ -239,11 +239,9 @@ In a rational sense, it doesn’t make sense for us. But it makes sense for him.
 
 But in a rational light, in the common sense, it doesn’t make sense. 
 
-**Someone:** Is there anything you can do to [...] beyond protecting or not protecting?
+**Someone:** Is there anything you can do to *[unintelligible]* beyond protecting or not protecting?
 
-**Katagiri Roshi:** Very naturally, it protects his life. Naturally, if the Second Patriarch did in that way, then the Second Patriarch’s life blooms in the future, you know? So even though, up to now, still his life is protected. 
-
-So from the bottom, it’s really, life comes up again. 
+**Katagiri Roshi:** Very naturally, it protects his life. Naturally, if the Second Patriarch did in that way, then the Second Patriarch’s life blooms in the future, you know? So even though, up to now, still his life is protected. So from the bottom, it’s really, life comes up again. 
 
 For instance, if you experience despair, you know? Despair is really the bottom of human life, in which we believe that there is nothing to protect you. And then, does that means you should die? No, you cannot die. Very naturally from that despair of your life, your life blooms in a different way. 
 
