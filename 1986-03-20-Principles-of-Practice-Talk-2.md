@@ -17,15 +17,13 @@ title: "Principles of Practice, Talk 2: Bodhicitta"
 
 **Katagiri Roshi:** Yesterday I [talked about] the purpose of the practice, or the purpose of spiritual life. The purpose of spiritual life is to actualize *sanzen gakudō*, which means to surrender one’s body and mind to tranquility. *Tranquility* means the Way; to surrender one’s body and mind to tranquility is to study or to learn the Way. 
 
-The Way manifests in two ways. One is it manifests itself as the absolute – in other words, the ultimate identity of existence, the absolute self – which is completely, absolutely tranquil, still. But it is not something still [like] stagnant water; it is always *active*. So the Way appears as every aspect of everydayness. Tranquility penetrates every aspect of everydayness. That is the Way. 
+The Way manifests in two ways. One is it manifests itself as the absolute – in other words, the ultimate identity of existence, the absolute itself – which is completely, absolutely tranquil, still. But it is not something still [like] stagnant water; it is always *active*. So the Way appears as every aspect of everydayness. Tranquility penetrates every aspect of everydayness. That is the Way. 
 
-That is the purpose of practice – the purpose of spiritual life, we usually say. 
+That is the purpose of practice – the purpose of spiritual life, we usually say. So today I would like to talk about what attitude we should take to the practice, so-called *sanzen gakudō*.
 
-So today I would like to talk about what attitude we should take to the practice, so-called *sanzen gakudō*.
+Yesterday I mentioned that *sanzen* usually is translated as “the practice,” but originally *sanzen* is something more than “the practice.” I mentioned *sanzen* is “to surrender yourself, to surrender your body and mind” to something: to *zen*, to tranquility. This is *sanzen*. 
 
-Yesterday I mentioned that *sanzen* usually is translated as “the practice,” but originally [in Japanese] *sanzen* is something more than “the practice.” I mentioned *sanzen* is to “surrender yourself, to surrender your body and mind” to something: to *zen*, to tranquility. This is *sanzen*. 
-
-So I would like to talk about what attitude we should take to the practice of *this* kind, in terms of three points. One is *bodhicitta*, bodhi-mind. The second is *faith*. Third is *direct transmission* of the teaching – direct touch of dharma.
+So I would like to talk about what attitude we should take to the practice of *this* kind, in terms of three points. One is *bodhicitta*, *bodhi-mind*. The second is *faith*. Third is *direct transmission* of the teaching – direct touch of dharma.
 
 So let me [talk about] *bodhicitta* today. 
 
@@ -37,21 +35,19 @@ In *Gakudō-yōjinshū*, “Points to Watch in the Buddhist Training,” page 48
 >
 > (From *Zen Master Dōgen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria.)
 
-This is number one of the *Gakudō-yōjinshū*; the title is “The Need to Awaken to the Bodhi-Mind,” or to arouse bodhi-mind.
+This is number one of the *Gakudō-yōjinshū*; the title is “The Need to Awaken to the Bodhi-Mind,” or “The Need to Arouse Bodhi-Mind.”
 
-So here are three points. First of all, you have to arouse the bodhi-mind. In order to arouse the bodhi-mind you have to have the insight of *impermanence*; you have to [see into impermanence]. And if you [see into] the truth of impermanence, you naturally are free from selfish mind. 
-
-There are three points there: *arousing bodhi-mind*; the *insight of impermanence*; and *forsaking the selfish mind*. 
+So here are three points. First of all, you have to arouse the bodhi-mind. In order to arouse the bodhi-mind you have to have the insight of *impermanence*; you have to [see into impermanence]. And if you [see into] the truth of impermanence, you naturally are free from selfish mind. There are three points there: *arousing bodhi-mind*; the *insight of impermanence*; and *forsaking the selfish mind*. 
 
 There is a problem, that it is difficult for us to see [clearly the] relation between *bodhicitta* – arousing bodhi-mind – and the insight of impermanence. [In other words,] why we have to practice the insight of impermanence in order to awaken the bodhi-mind – it’s a little bit difficult for us to see that point. And also, [that] if you realize impermanence, naturally you can be free from egoism – this is also a little difficult to understand. So I want to [explain] as best as I can about this point. 
 
-*Bodhicitta* is the short word [for] the mind of *anuttara-samyak-sambodhi* in the *Prajñāpāramitā Sutra*. We say “the complete, perfect, supreme enlightenment”: that is a translation from *anuttara-samyak-sambodhi* in Sanskrit. *Anuttara-samyak-sambodhi* is perfect, complete, supreme enlightenment; that means a state of perfect enlightened being. Trees, birds, all sentient beings, all are in the state of perfect enlightened being. In other words, all are enlightened being. According to the Buddha Shakyamuni’s teaching, all are Buddha. 
+*Bodhicitta* is the short word [for] the mind of *anuttara-samyak-sambodhi* in the *Prajñāpāramitā Sutra*. We say “the complete, perfect, supreme enlightenment”: that is a translation from *anuttara-samyak-sambodhi* in Sanskrit. *Anuttara-samyak-sambodhi* is perfect, complete, supreme enlightenment; that means a state of perfect enlightened being. Trees, birds, all sentient [beings], all are in the state of perfect enlightened being. In other words, all are enlightened being. According to the Buddha Shakyamuni’s teaching, all are Buddha. All are Buddha.
 
-So “arousing the bodhi-mind” means arousing or awakening to the enlightened being, awakening to the truth that all are in the state of enlightened being, or, awaken to the truth that all are Buddha. This is to arouse the bodhi-mind or to awaken to the bodhi-mind. 
+So “arousing the bodhi-mind” means arousing or awakening to the enlightened being, awakening to the truth that all are in the state of enlightened being – or, awakening to the truth that all are Buddha. This is to arouse the bodhi-mind or to awaken to the bodhi-mind. 
 
 That’s why Dōgen Zenji also says, “The bodhi-mind is known by many names but they all refer to the one-mind of the Buddha.” So “one-mind of the Buddha.” The *one-mind of the Buddha* means the Buddha only.
 
-The [word] *bodhicitta* – *citta* is the mind, but [this] mind is not individual mind, this mind is universal mind, universal life, open to all kinds of beings. That is called Mind, with a capital M! This is the Mind of the bodhi-mind. And this mind is exactly a state of enlightenment, because this mind is only one-mind, penetrating to all sentient beings. So this is one-mind. 
+The [word] *bodhicitta* – *citta* is the mind, but [this] mind is not individual mind, this mind is universal mind, universal life, open to all kinds of beings. That is called Mind – with a capital M! This is the Mind of the bodhi-mind. And this mind is exactly a state of enlightenment, because this mind is only one-mind, penetrating to all sentient beings. So this is one-mind. 
 
 So that one-mind is, when you realize it, called Buddha. So, the one-mind of the Buddha. 
 
@@ -61,7 +57,7 @@ So bodhi-mind is to realize the one-mind of the Buddha. In other words, we have 
 
 Usually *bodhi-mind* is translated in English [as] “the way-seeking mind.” 
 
-I think *way-seeking mind* means kind of aspiration for seeking something... aspiration for the big mind. That is the way-seeking mind. The aspiration for the Way, or aspiration for the Big Mind. So constantly we try to keep this aspiration for the Big Mind and the Way – based on the truth [that] all are Buddha. 
+I think *way-seeking mind* means kind of aspiration for seeking something... aspiration for the Big Mind. That is the way-seeking mind: the aspiration for the Way, or aspiration for the Big Mind. So constantly we try to keep this aspiration for the Big Mind and the Way – based on the truth [that] all are Buddha. 
 
 In the *Record of Things Heard*, Book 2, Number 14, Dōgen Zenji [talks] about *Bodhicitta*:
 
@@ -69,15 +65,15 @@ In the *Record of Things Heard*, Book 2, Number 14, Dōgen Zenji [talks] about *
 >
 > (From *Record of Things Heard: From the Treasury of the Eye of the True Teaching*, translated by Thomas Cleary.)
 
-So *to arouse* bodhi-mind is [that] you must be continually mindful of the truth that we are Buddha. Under all circumstances – walking, sitting, standing, reading, wherever you may go, or whatever kind of situation occurs in your life, favorable situation or unfavorable condition – we have to continually be mindful of this truth that we *all* are Buddha. “We” doesn’t mean only human beings. *All* are Buddha. 
+So *to arouse* bodhi-mind is [that] you must be continually mindful of the truth that we are Buddha. Under all circumstances – walking, sitting, standing, reading, wherever you may go, or whatever kind of situation occurs in your life – favorable situation or unfavorable condition – we have to continually be mindful of this truth that we *all* are Buddha. “We” doesn’t mean only human beings. *All* are Buddha. 
 
-That is pretty difficult for us. Because we can practice the truth we are Buddha when we are under favorable conditions, but it’s very difficult for us to practice bodhi-mind under unfavorable conditions. But Dōgen Zenji [says] that constantly we have to do it. 
+That is pretty difficult for us. Because we can practice the truth we are Buddha when we are under favorable conditions, but it’s very difficult for us to practice bodhi-mind under unfavorable conditions. But Dōgen Zenji [says that] constantly we have to do it. 
 
-This is not only the Buddhist practice: whatever you do, if you are really seriously seeking for something. Just like this example Dōgen Zenji mentions, if you try to steal a jewel or a big amount of money from the bank. All day you have to think of it: how to steal it. So your life is completely occupied: money, jewel – constantly. 
+This is not only Buddhist practice: whatever you do, if you are really seriously seeking for something. Just like this example Dōgen Zenji mentions, if you try to steal a jewel or a big amount of money from the bank. All day you have to think of it: how to steal it. So your life is completely occupied: money, jewel – constantly. 
 
-That’s Dōgen Zenji says, “Though various different events come up, he goes along seeking an opening, his mind occupied with his quest.” This is called arousing the bodhi-mind. 
+That’s why Dōgen Zenji says, “Though various different events come up, he goes along seeking an opening, his mind occupied with his quest.” This is called arousing the bodhi-mind. 
 
-Then Dōgen Zenji says next:
+And then Dōgen Zenji says next:
 
 > “In this way, when the aspiration to seek the Way has become sincere, either during the period of sole concentration on sitting, or when dealing with illustrative examples of the people of olden times, or when meeting the teacher, when one acts with true aspiration, though [his aim] be high he can hit it, though it be deep he can fish it out.”
 
@@ -85,19 +81,19 @@ And also Dōgen Zenji says:
 
 > “With this mind so forcefully earnest, there can be no failure of attainment.”
 
-So that is bodhi-mind. Constantly you have to be mindful of this truth, we are Buddha, under all circumstances. 
+So that is bodhi-mind. Constantly you have to be mindful of this truth, that we are Buddha, under all circumstances. 
 
-This is called, according to the *Vimalakirti Sutra*, the *straightforward mind*. Robert Thurman translated that “straightforward mind” as the *positive thought*. Very positive – direct. Constantly, directly, there is a strong, steadfast aspiration for seeking for the truth, toward which your effort is directed constantly. Your effort should be directed toward the truth [that] we are Buddha, under all circumstances, without swaying away to the right or to the left, constantly aiming at that truth. That is *positive thought*. That is called *straightforward mind* in Chinese, we say, but in [a] Tibetan textbook he translates it as *positive thought*. Yes, it is positive thought, because your effort should be directed straightly, without going zig-zag. Straightly you have to aim at that one, under all circumstances. This is so-called *straightforward mind*. 
+This is called, according to the *Vimalakirti Sutra*, the *straightforward mind*. Robert Thurman translated that “straightforward mind” as *the positive thought*. Very positive – direct. Constantly, directly, there is strong, steadfast aspiration for seeking for the truth, toward which your effort is directed constantly. Constantly your effort should be directed toward the truth [that] we are Buddha; under all circumstances, without swaying away to the right or to the left, constantly aiming at that truth. That is *positive thought*. That is called *straightforward mind* in Chinese, we say, but in [a] Tibetan textbook he translates it as *positive thought*. Yes, it is positive thought, because your effort should be directed straightly, without going zig-zag. Straightly you have to aim at that one, under all circumstances. This is so-called *straightforward mind*. 
 
-So in the *Vimalakirti Sutra*, or in general Buddhism, we usually use *bodhicitta* as well as “direct, straightforward mind” – almost the same meaning. So *Bodhicitta* is [to] constantly direct our mind, our bodies, toward the truth [that] we are Buddha. It’s not so easy... but we have to do it. This is the purpose of the practice, the purpose of the spiritual life. 
+So in the *Vimalakirti Sutra* or in general Buddhism, we usually use *bodhicitta* as well as “direct, straightforward mind” – almost the same meaning. So *bodhicitta* is [to] constantly direct our mind, our bodies, toward the truth [that] we are Buddha. It’s not so easy. But we have to do it. This is the purpose of the practice, the purpose of the spiritual life. 
 
 But when we face difficulties, very naturally we forget this, because it is pretty easy for us to burn out – to burn our emotions, to be very emotional, very critical, but without insight of the truth. 
 
-So that’s why it’s not so easy, it’s not so easy. Intellectually even though we understand the truth, we are Buddha, actually it’s very difficult to practice, because emotions, our habitual customs cannot accept straightly. So always we make some problem under unfavorable conditions. But if you want to practice, if you want to accomplish the purpose of spiritual life, constantly we have to seek for this one. 
+That’s why it’s not so easy, it’s not so easy. Intellectually even though we understand the truth that we are Buddha, actually it’s very difficult to practice, because emotions, our habitual customs cannot accept straightly. So always we make some problem under unfavorable conditions. But if you want to practice, if you want to accomplish the purpose of spiritual life, constantly we have to seek for this one. 
 
-So the spiritual world is quite different from the usual world. Whatever happens in the spiritual world, we try to keep all things in peace and harmony, instead of stirred up. But in the usual world, we stir [things] up. In other words, “Open it, open everything. If you don’t feel [good], scream it. If you like it, express your joy, pleasure.” Something like that. It’s alright to open everything, but I don’t think it is a perfect way of living in peace. Very naturally if you do it, in many ways we stir up our lives and others’ lives, so it’s very difficult to keep all in peace and harmony. 
+So the spiritual world is quite different from the usual world. Whatever happens in the spiritual world, we try to keep all things in peace and harmony, instead of stirred up. But in the usual world, we stir [things] up. In other words... what would you say... “Open everything. If you don’t feel [good], scream it. If you like it, express your joy, pleasure.” Something like that. It’s alright to open everything, but I don’t think it is a perfect way of living in peace. Very naturally if you do it, in many ways we stir up our lives and others’ lives, so it’s very difficult to keep all in peace and harmony. 
 
-But in the spiritual world, we try to keep all things in peace and harmony. That’s pretty hard. It’s not so easy. That’s why every day we have to continually practice. [We have] to practice this on an everyday basis. 
+But in the spiritual world, we try to keep all things in peace and harmony. That’s pretty hard; it’s not so easy. That’s why every day we have to continually practice. [We have] to practice this on an *everyday* basis. 
 
 #### 28:00
 
