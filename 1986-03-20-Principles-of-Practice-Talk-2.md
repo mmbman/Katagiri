@@ -103,45 +103,43 @@ In Number 14 of Book 2 [of *Record of Things Heard*], Dōgen Zenji also says:
 
 > And to arouse this determination, it is necessary to earnestly contemplate the impermanence of the world.
 
-“This determination” is to continue to practice arousing bodhi-mind, arousing the truth we are Buddha. So, “it is necessary to earnestly contemplate the impermanence of the world.” ...
+“This determination” is to continue to practice arousing bodhi-mind, arousing the truth we are Buddha. So, “it is necessary to earnestly contemplate the impermanence of the world...”
 
 > “This task is not something which is to be considered as a temporarily prescribed method of contemplation. And it is not that you should invent something nonexistent to think about. It is the truth in reality right before our eyes.”
 
 This is the insight of impermanence. It’s not an idea we can try to think of. There is no particular pattern we can be mindful of, so-called *impermanence*. No. Impermanence is something *real*, right in front of you. In other words, your body’s so-called five *skandhas* are nothing but impermanent. [They are] transient. 
 
-Still we can see impermanence objectively: five *skandhas*. We understand intellectually. But we don’t touch directly how impermanent each of the five *skandhas* are. We don’t. We are always looking at impermanence objectively. 
+Still we can see impermanence objectively: five *skandhas*; we understand intellectually. But we don’t touch directly how impermanent each of the five *skandhas* are. We don’t. We are always looking at impermanence objectively. 
 
-So that’s why Dōgen Zenji says, “This task is not something which is to be considered as a temporarily described method of contemplation. It is not that you should invent something non-existent to think about. It is the truth in reality right before your eyes.” 
+So that’s why Dōgen Zenji says, “This task is not something which is to be considered as a temporarily [described] method of contemplation. It is not that you should invent something non-existent to think about. It is the truth in reality right before your eyes.” 
 
-[...] Impermanence means the truth that all are moving. Usually we say *change*, continuous change. So anyway, all are moving. Without exception, all are moving – including [both] physical and mental state of beings, all are moving. But all are not moving separately – all are moving interpenetrated, interconnecting with each other. This is moving, constantly moving. 
+[...] *Impermanence* means the truth that all are moving. Usually we say *change*, continuous change. So anyway, all are moving. Without exception, all are moving – including [both] physical and mental state of beings, all are moving. But all are not moving separately – all are moving interpenetrated, interconnecting with each other. This is moving, constantly moving. 
 
-For instance, if I see the world, immediately the world looks at me. So I cannot see the world just in terms of *my* ideas. If I see the winter, immediately the winter looks at me. So very naturally, I can handle the world which I have seen, but on the other hand there is a world I cannot handle, because I am a being watched by the world. So how can I deal with it? I don’t know. How does the world, winter, look at me? I don’t know. But this is exactly [that] the moment when I look at the world, the world looks at me, simultaneously. 
-
-In other words, that is the teaching of *interdependent co-origination*, we say. In other words, *everything*, without exception, cannot exist without [...] connecting with you. 
+For instance, if I see the world, immediately the world looks at me. I cannot see the world just in terms of *my* ideas. If I see the winter, immediately the winter looks at me. So very naturally, I can handle the world which I have seen, but on the other hand there is a world I cannot handle, because I am a being watched by the world. So how can I deal with it? I don’t know. How does the world, winter, look at me? I don’t know. But this is exactly [that] the moment when I look at the world, the world looks at me, simultaneously. In other words, that is the teaching of *interdependent co-origination*, we say. In other words, *everything*, without exception, cannot exist without connecting with you. 
 
 So even though you have never been to Japan, Japan exists. As long as Japan exists, it is connected with you. Even though you don’t see, you don’t cognize Japan right now, it is connected with you. That’s why we say, “Japan exists.” 
 
-In other words, there is nothing which exists without relating with your recognition, cognition. So always, all are related with you. Japan, and Nicaragua, and the planets which you have never been to, all the air, skies, all are connected with you. 
+In other words, there is nothing which exists without relating with your cognition. So always, all are related with you. Japan, and Nicaragua, and the planets which you have never been to, all the air, skies, all are connected with you. 
 
-So from this point, all [that the world holds] is moving means *you* are moving. Why? Because *moving* means to dichotomize things in two, separate things in two. And then they can look at each other, simultaneously. 
+So from this point, all [that the world holds is] moving means *you* are moving. Why? Because *moving* means to dichotomize things in two, separate things in two. And then they can look at each other, simultaneously. 
 
-For instance, I look at myself. And then if I look at myself, I can think who I am. And then next I can get the result, and then I try to judge the result which I have seen. And then next I can evaluate. And then next I can feel what I can feel, like or dislike – something like that. In that process of cognition, I am always looking at myself objectively. Is that clear? We always look at ourselves objectively, at a little distance. It’s very quick.
+For instance, *I* look at *myself*. And then if I look at myself, I can think who I am. And then next I can get the result, and then I try to judge the result which I have seen. And then next I can evaluate. And then next I can feel – what? I can feel like or dislike – something like that. In that process of cognition, I am always looking at myself objectively. Is that clear? We always look at ourselves objectively, at a little distance. It’s very quick.
 
-That’s why Yogacara [is] always looking at the mind in four ways: subject, and object, and also the third one is corroborating the subject and the object. And the fourth one is corroborating the third one. In other words, the third one corroborates the existence of the subject and the object – so-called, “This is Katagiri.” But on the other hand, the fourth one is corroborating the third. In other words, trying to get the proof, what the result is, always. Temporarily Yogacara divided the functioning of mind like this, in four ways. But practically speaking, constantly, countlessly, in many ways, the mind functions like that. 
+That’s why Yogachara [is] always looking at the mind in four ways: subject, and object, and also the third one is corroborating the subject and the object. And the fourth one is corroborating the third one. In other words, the third one corroborates the existence of the subject and the object – so-called, “Oh, this is Katagiri.” But on the other hand, the fourth one is corroborating the third. In other words, trying to get the proof, what the result is, always. Temporarily Yogachara divided the functioning of mind like this, in four ways. But practically speaking, countlessly, in many ways, the mind functions like that. 
 
 So that is called *dualism*, *dichotomy*. That is called *moving*. Mind is vibrating. 
 
-So if I see the world, immediately my mind moves. To see the world means the vibration of the mind. My mind is vibrating, and then I can see the world. And then, the world simultaneously is vibrated. And then my mind is vibrated. 
+So if I see the world, immediately my mind moves. To see the world means the vibration of the mind. My mind is vibrating, and then I can see the world. And then, the world simultaneously *is vibrated*. And then my mind is vibrated. 
 
-So simultaneously, always there is a vibration of the mind between the world and I. Between I and I, always. This is always looking at something objectively. 
+So simultaneously, always there is a vibration of the mind – between the world and I, between the [eye] and I, always. This is always looking at something objectively. 
 
 #### 39:36
 
-So the vibration of the mind is also vibrating in many ways. Some vibration of the mind is very coarse. Some vibration of the mind is very fine. But among the coarse nature of the vibration [is] still the coarser of the coarse vibration of the mind – *[he laughs]* – this is really [the] usual attachment towards self. And the finer of the coarse vibration of the mind is attachment to... well, objects, dharma[s]. If you do zazen, you seem to be free from the self and also objects, but when you are out of the meditation, you pretty easily attach to the dharma[s], objects. [Sensuous] objects, so-called red or yellow, like or dislike, and something like that.
+So the vibration of the mind is also vibrating in many ways. Some vibration of the mind is very coarse. Some vibration of the mind is very fine. But among the coarse nature of the vibration [is] still the coarser of the coarse vibration of the mind – *[he laughs]* – this is really [the] usual attachment towards self. And the finer of the coarse vibration of the mind is attachment to... well, object[s], dharma[s]. If you do zazen, you seem to be free from the self and also object, but when you are out of the meditation, you pretty easily attach to the dharma[s], objects. [Sensuous] objects, so-called red or yellow, like or dislike, and something like that.
 
 *[Tape change.]*
 
-... [Various *isms*,] existentialism, something like that. Those kind of things are called *dharma attachment*. [It’s] the finer of the coarse vibration of the mind. And then you can create some defilements. If you attach to your *ism* – well, the *ism* itself is fine, but you create a real problem. 
+... [Various *isms*,] existentialism, something like that. Those kind of things are called *dharma attachment*. It’s the finer of the coarse vibration of the mind. *Then* you can create some defilements. If you attach to your *ism* – well, the *ism* itself is fine, but you create a real problem. 
 
 And also, among the fine vibration of the mind, still there are the coarser of the fine vibration of the mind, and also the finer of the fine vibration of the mind. You create some problem: a *big* question, created by the finer of the fine vibration of the mind. This is completely... we don’t know what it is. 
 
