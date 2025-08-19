@@ -386,6 +386,12 @@ Summary not yet available.
 
 <br/>
 
+##### [*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1)
+
+Summary not yet available.
+
+<br/>
+
 ##### [*The Awakening of Faith* – Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
 
 Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by another question.
