@@ -4,7 +4,7 @@ title: "Annotated Fukanzazengi"
 
 #### Annotations by Kikan Michael Howard
 
-#### Updated August 6, 2025
+#### Updated August 19, 2025
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
 
@@ -92,9 +92,9 @@ This document is a work in progress. I will update this page as I transcribe tal
 >
 > KR: ... and learn the backward step that turns your light inwardly to illuminate yourself
 
-- “Turn the light and shine it inward” is *ekō henshō* (回光返照). This key phrase is translated and understood in slightly different ways. 
+- “Turn the light and shine it inward” is *ekō henshō* (回光返照). This key phrase seems to be translated and understood in slightly different ways. 
 - According to Katagiri Roshi, “the backward step” means to “return to the very inception of the moment.” It implies “cutting off the root of discriminative thought.” It does not mean “to withdraw,” nor “to escape from.” See [“Principles of Practice, Talk 4: Faith”](1986-03-22-Principles-of-Practice-Talk-4) and [“Principles of Practice, Talk 5: Direct Transmission”](1986-03-23-Principles-of-Practice-Talk-5). 
-- The Sōtōshū’s *Shōbōgenzō Volume 8: Introduction and Supplementary Notes* states that “turn the light around and shine it back (*ekō henshō*)” is “a common idiom used in reference to Buddhist practice as the investigation of one’s own mind, as opposed to the external world.” This kind of statement may be easy to misunderstand as saying something like “shutting out the world,” which may be why Katagiri Roshi clarifies that the backward step is “not [to] withdraw” and also “not escaping from.” On the other hand, this is indeed described as “coming back to oneself.” For a good example, see “*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1” (in progress). The point seems to be that when we return to ourself, the whole world is present. 
+- The Sōtōshū’s *Shōbōgenzō Volume 8: Introduction and Supplementary Notes* states that “turn the light around and shine it back (*ekō henshō*)” is “a common idiom used in reference to Buddhist practice as the investigation of one’s own mind, as opposed to the external world.” This kind of statement may be easy to misunderstand as saying something like “focusing internally” or even “shutting out the world,” which may be why Katagiri Roshi clarifies that the backward step is “not [to] withdraw” and also “not escaping from.” On the other hand, this is indeed described as “coming back to oneself.” For a good example, see [“*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1”](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1), where Katagiri Roshi adds, “If I say [participate in ourselves] ‘internally,’ simultaneously ‘externally’ is there. So, beyond internally or externally, participate in you, and learn you as you are, directly.”
 - Note that “turning the light around to shine within” immediately leads to the next line: “Body and mind of themselves will drop away, and your original face will manifest.”
 - “The backward step” is closely related to *prajna* (“wisdom”). See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where the backward step is discussed as the function of *prajna*.
 - In [“Principles of Practice, Talk 5: Direct Transmission”](1986-03-23-Principles-of-Practice-Talk-5), the backward step is also considered as *reflection*, in relation to *ignorance*.
