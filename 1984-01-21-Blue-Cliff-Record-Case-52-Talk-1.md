@@ -5,6 +5,10 @@ title: "Blue Cliff Record Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross
 
 #### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
+### Summary
+
+Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. Related to this, he comments on Zen Master Dogen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
+
 ### Transcript
 
 <p align="center"><b>This transcript is in draft stage.</b></p>
@@ -303,48 +307,45 @@ That’s why “to be undefiled doesn’t mean that you try forcefully to exclud
 
 > Being undefiled cannot be turned toward or discriminated at all.
 
-If you look to the left, it’s not [a] real thing, undefiled. [If] you just do the zazen forcefully... If you force yourself, your consciousness already works. So very naturally that is called *turning toward*. Look around – this way, that way – pretty quickly, [so] quickly you don’t notice. But if you do zazen, you really can see it.
+If you look to the left, it’s not [the] real thing, undefiled. You just do zazen forcefully. If you force yourself, your consciousness already works. So very naturally that is called *turning toward*. Looking around – this way, that way. Pretty quickly – [so] quickly you don’t notice. But if you do zazen, you really can see it.
 
-But at that time, it’s very difficult to point out, because the nature of your life, or zazen, everything is completely undefiled, vastness. Or in other words, it’s always developing, changing. So you cannot pick up anything. All you can do is to tune in or to be right in the rhythm, or stream of water. 
+But at that time, it’s very difficult to point out, because the nature of your life or zazen [is that] everything is completely undefiled, vastness. Or in other words, it’s always developing, changing. So you cannot pick up anything. All you can do is to tune in or to be right in the rhythm, or stream of water. 
 
-It’s just like being on a jet airplane. If you slip out of the airplane, you die. *[He laughs.]* You have to be always constantly on the airplane. At that time, you don’t know the speed of time. Or you don’t know where you are. You feel good. Or beyond you feel good or you don’t feel good, you are there. Don’t you think so? If you are there, the plane is going, the speed of time is going, and the whole universe is going with you.
+It’s just like being on a jet airplane. If you slip out of the airplane, you die. *[He laughs.]* You have to be always constantly on the airplane. At that time, you don’t know the speed of time, or you don’t know where you are. You feel good. Or beyond you feel good or you don’t feel good, you are there. Don’t you think so? If you are there, the plane is going, the speed of time is going, and the whole universe is going with you.
 
-But if you look around, immediately fear comes up. Don’t you think so? I alway experience [this] in the airplane. *[He laughs.]* Outwardly, externally, I am very calm. *[Laughter.]* I don’t mind; anytime, I am ready to die. I don’t think so... inside is burning. Always looking around, this way, that way: “Oh, anytime.” And then the airplane gets in the air pocket, *[noise]*, like this. My heart is beating! *[He laughs.]*
+But if you look around, immediately fear comes up. Don’t you think so? I alway experience [this] in the airplane. *[He laughs.]* Outwardly, externally, I am very calm. *[Laughter.]* “Never mind; anytime, I am ready to die.” I don’t think so! Inside is burning. Always looking around, this way, that way! “Oh, anytime.” And then the airplane gets in the air pocket, *[noise]*, like this. My heart is beating! *[He laughs.]*
 
 So very naturally, very quickly, your mind is moving. At that time, it’s very difficult to know something undefiled – vastness, constant development. You cannot see it, because you’re stuck there.
 
-So, that’s why here it says, “Being undefiled cannot be turning toward or discriminated at all.” Anyway, not [to] discriminate, or not to prefer. No. With your affection, your senses, whatever – you cannot prefer.
+So, that’s why here it says, “Being undefiled cannot be turning toward or discriminated at all.” Anyway, not [to] discriminate, or not to prefer. No. With your affection, your senses, whatever, you cannot prefer.
 
 So, this is buddha-nature, or buddha-dharma. And this koan [is] teaching us just like this.
 
-Let’s participate in ourselves internally... [no,] not “internally”. If I say “internally,” simultaneously “externally” is there. *[He laughs.]* So, beyond internally or externally, participate in you, and learn you as you are, directly. Not imaginary, not turning toward, not with affective preference – anyway, constantly you do it.
+Let’s participate in ourselves internally... [no,] not “internally”. If I say “internally,” simultaneously “externally” is there. *[He laughs.]* So, beyond internally or externally, participate *in you*, and learn you as you are, directly. Not imaginary, not turning toward, not with affective preference – anyway, constantly you do it.
 
-Because your existence is *yours*. Just like the trees. But not yours! There is a huge vastness of existence, life force there, life energy there. So, behind you or inside you, your body, your name, one tree, your tree, teaches you the name of the tree, but simultaneously the rhythm of the vastness of existence there.
+Because your existence is *yours*. Just like the trees. But not yours! There is a huge vastness of existence, life force there, life energy there. Behind you or inside you, your body, your name. One tree, your tree, teaches you the name of the tree, but simultaneously the rhythm of the vastness of existence is there.
 
 So that is you. That is you. So you have to participate in that one.
 
-That’s why if you do zazen, just the sitting zazen is pretty good. But if I give something sweet to you, you immediately turn toward. Alright? You understand? I am not criticizing any other kind of zazen. But beyond this, I want to give you... well, give you a chance to participate in real zazen, real you – beyond a sense of turning toward, or having affective preferences.
+That’s why if you do zazen, just the sitting zazen is pretty good. But if I give something sweet to you, you immediately turn toward. Alright? You understand? I am not criticizing any other kind of zazen. But beyond this one, I want to give you... well, give you a chance to participate in real zazen, real you, beyond a sense of turning toward, or having affective preferences.
 
-This zazen is pretty hard to continue to do, but it’s pretty good for us. Because our everyday life is really to give you lots of chances to turn toward, and to get [a feeling of] good or bad. Everyday life is just like this. Nothing gives you this kind of chance just to sit down, to spin with yourself. No. That’s why it’s pretty hard to do this. But it’s *very* good medicine for us.
+This zazen is pretty hard to continue to do, but it’s pretty good for us! Because our everyday life is really to give you lots of chances to turn toward, and to get [a feeling of] good or bad. Everyday life is just like this. Nothing gives you this kind of chance just to sit down, to spin with yourself. No. That’s why it’s pretty hard to do this. But it’s *very* good medicine for us.
 
-Well, in the Rinzai, Rinzai always gives you a koan, and hits your back, and tries to [get you] to attain enlightenment, okay? And then this is fine. This is fine. But I don’t know. And then, [there are] kind of two different kinds of way to take care of human life. Either one of them – if you like, that’s fine. I am not criticizing *anything*. But for the long range, [a] different personality comes up. A very different personality comes up, for the long run. You cannot see a certain personality for a short period of time. No. If you take care of your life in a certain way for the long run, you can develop a certain type. 
+Well, Rinzai always gives you a koan, and hits your back, and tries to [get you] to attain enlightenment, okay? And then this is fine. This is fine. But I don’t know. And then, [there are] kind of two different kinds of way to take care of human life. Either one of them – if you like, that’s fine. I am not criticizing *anything*. But for the long range, [a] different personality comes up. A very different personality comes up, for the long run. You cannot see a certain personality for a short period of time. No. If you take care of your life in a certain way for the long run, you can develop a certain type. 
 
-But a certain type maybe must be sometimes understood by somebody. Okay? *[He chuckles.]* But the type of personality which is understood by somebody is not real freedom. Because still there is a bottom. But personality is completely bottomless. You have to build up your personality which is bottomless.
+The certain type must be maybe sometimes understood by somebody. Okay? *[He chuckles.]* But the type of personality which is understood by somebody is not real freedom. Because still there is a bottom. But personality is completely bottomless. You have to build up your personality which is *bottomless*.
 
-It’s interesting. But it is not something you can try to get forcefully. Every day, you have to do it. Every day.
-Every day you have to *be* there. Okay?
+It’s interesting! But it is not something you can try to get forcefully. Every day, you have to *do it*. Every day you have to *be* there. Okay? But it’s pretty hard. That’s why *Prajnaparamita* says, “Don’t be afraid. Don’t lose heart. With an undisturbed series of your mind or thoughts, you just move.”
 
-But it’s pretty hard. That’s why *Prajnaparamita* says, “Don’t be afraid. Don’t lose heart. With an undisturbed series of your mind or thoughts, you just move.”
+That’s pretty interesting. This is *to dwell in dharma*, dwelling in you as you are, participating in you as you are. Because it’s nothing! If you become one, there is nothing special. So it’s very calm, smooth, [your life].
 
-That’s pretty interesting. This is *to dwell in dharma*, dwelling in you as you are. Participating in you as you are. Because it’s nothing! If you become one, there is nothing special. So it’s very calm, smooth, [more light].
-
-That’s why people are very surprised, very confused, very afraid. “Is that alright? This is our practice? In my whole life, I have to do this?” Surprise. 
+That’s why people are very surprised, very confused, very afraid. “Is that alright? This is our practice? In my whole life, I have to do this?” Surprise! 
 
 *[Some laughter.]*
 
-But the Buddha says to Subhuti, “Don’t be afraid. Don’t lose heart.” Because you have to participate in yourself as you are, constantly, wherever you may be. Who you are, who you have to participate in: that self is vast. So in the vastness, what do you do? Do you have to turn toward a certain direction to get something? Oh, of course. But, nothing to get.
+But the Buddha says to Subhuti, “Don’t be afraid. Don’t lose heart.” Because you have to participate in yourself as you are constantly, wherever you may be. Who you are, who you have to participate in: that self is vast. So in the vastness, what do you do? Do you have to turn toward a certain direction to get something? Oh, of course. But, nothing to get!
 
-I tell you very often, your life is just like in the huge vastness of the oceans. You are thrown away right in the middle of the huge oceans. But your head is always turning toward and creating certain affective preferences, constantly. But practically, you have to participate in you as you are from moment to moment, right now, right here. Just like a full presence of water exists right now, right here. Full presence of you right in the middle of the ocean, right now, right here. You have to do it. What do you do? Just swim. Just swim. 
+I tell you very often, your life is just like in the huge vastness of the oceans. You are thrown away right in the middle of the huge oceans. But your head is always turning toward and creating certain affective preferences, constantly. But practically, you have to participate in you as you are from moment to moment, right now, right here. Just like a full presence of water exists right now, right here. Full presence of you right in the middle of the ocean, right now, right here. You have to do it. What do you do? Just swim! Just swim. 
 
 That’s pretty hard. That’s why you are afraid, you fear, you lose heart. Nothing to get. But all you have to do is, without losing heart, without being afraid, or upset so much, without being in panic, anyway, we have to just move. With an undisturbed series of thoughts or mind.
 
@@ -352,9 +353,7 @@ That is called to take care of life on the basis of emptiness.
 
 At that time, your life really works pretty well.
 
-That’s why Joshu Zen Master says... well, he doesn’t use such a big term, “I have explained like this.” He says, “Let the donkeys cross. Let the horses cross.” That means, when you are right in the middle of *kinhin*, let the *kinhin* cross. Next moment, [in] the zazen, let the zazen cross. 
-
-When the thoughts come up right in the middle of *kinhin*, let the thoughts cross. But we don’t let the thoughts cross. We are stuck there. We are stuck in thought.
+That’s why Joshu Zen Master says... well, he doesn’t use such a big term [as] I have explained like this. He says, “Let the donkeys cross. Let the horses cross.” That means, when you are right in the middle of *kinhin*, let the *kinhin* cross. Next moment, [in] the zazen, let the zazen cross. When the thoughts come up right in the middle of *kinhin*, let the thoughts cross. But we don’t let the thoughts cross. We are stuck there. We are stuck in thought.
 
 So he uses just a simple word, pointing out everyday life. But this is a great important teaching Buddha mentions constantly in his life.
 

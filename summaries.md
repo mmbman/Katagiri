@@ -382,7 +382,7 @@ Summary not yet available.
 
 #####  [*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 2](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2)
 
-Summary not yet available.
+Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. Related to this, he comments on Zen Master Dogen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
 
 <br/>
 
