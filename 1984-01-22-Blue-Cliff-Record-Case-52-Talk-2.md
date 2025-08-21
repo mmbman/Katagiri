@@ -186,19 +186,19 @@ Another example is pretty contemporary. Maybe this is familiar with your experie
 
 > I am a 40 year old woman who grew up in Chicago and I am now experiencing the peace, beauty, and challenges of our small Wisconsin farm. As a child and a teenager I was a very religious Catholic. I remember going to church when it was deserted and prostrating myself before the altar, hoping to experience the ecstatic union with God that many mystics had described. While I was studying nursing at Loyola University, one day I was in the midst of reading... 
  
-Do you know this book... “Tail Hard De-chardin”?
+Do you know this book... “Tail-hard De-chardin”?
 
 **Someone:** Teilhard de Chardin.
 
 **Katagiri Roshi:** Oh. You know that, huh? *[Laughter.]*
 
-“...reading *that* book...” 
+“... [in the midst of] reading *that* book...” 
 
 *[Laughter.]*
 
 *[Tape change.]*
 
-> ... and suddenly I experienced an indescribable insight, which inevitably led me to shed the [absolutist] dogma of the church. I remember realizing at that moment that I need not fear a hell in some self-conscious afterlife after my death. [The] ephemeral I was already living a life of its own in the countless number of people who have crossed my path, and will be passed on in its bits and pieces long after my death.
+> ... and suddenly [...] I experienced an indescribable insight, [which] inevitably led me to shed the [absolutist] dogma of the church. I remember realizing at that moment that I need not fear a hell in some self-conscious afterlife after my death. [The] ephemeral *I* was already living a life of its own in the countless number of people who have crossed my path, and will be passed on in its bits and pieces long after my death [...]
 > 
 > However, Catholicism had permeated so much of my life up to that point, and with its letting go, I was now like a seed cast to the wind. Even after 20 more years of searching, trying to make sense of the universe and feel a sense of inner peace and joy, I still had not found a peace to take root and grow and blossom. 
 > 
@@ -206,19 +206,19 @@ Do you know this book... “Tail Hard De-chardin”?
 > 
 > I have never in my life experienced anything of that nature. I didn’t know what was happening, nor what to do with it. I wanted to cling to it, hold on. And then, I tried to just let it be, knowing, feeling it would pass. And of course, it did. 
 >
-> But I never forget those three days. I knew that this simple enlightenment from within was what I was looking for all these years, and it showed me how much I could be and see. Since then I haven’t again experienced the fullness and intensity of that state, but neither have I feared the thought of my own death again. 
+> But I never forget those three days. I knew that this simple enlightenment from within was [...] what I was looking for all these years, and it showed me how much I could be and see. Since then I haven’t again experienced the fullness and intensity of that state, but neither have I feared the thought of my own death again. 
 >
-> In my continuing search for a way to attain that state of being and seeing, I bought a book on Buddhism last year. From there I delved into scholarly pursuit, and after sampling a wide range of Buddhist schools of thought, many frustratingly intricate and esoteric to me, I was struck by the simplicity of Zen. What writers had to say about its practice and effects range something true within me. 
+> In my continuing search for a way to attain that state of being and seeing, I bought a book on Buddhism last year. From there I delved into scholarly pursuit, and after sampling a wide range of Buddhist schools of thought, many frustratingly intricate and esoteric to me, I was struck by the simplicity of Zen. What writers had to say about its practice and effects rang something true within me. 
 >
-> I have just recently begun to sporadically practice zazen in a chair, because my legs refused to even come close to crossing. 
+> I have just recently begun to sporadically practice zazen in a chair, because my legs refuse to even come close to crossing... 
 
 *[Laughter.]*
 
-> ... And at times I have little difficulty for about 25 minutes. I have attempted to give the fullness of my attention to my daily tasks without clinging to wandering thoughts. With not a great deal of success so far. 
+> ... and at times I have little difficulty for about 25 minutes. I have attempted to give the fullness of my attention to my daily tasks, without clinging to wandering thoughts. With not a great deal of success so far. 
 
 *[He chuckles.]*
 
-> My husband often has frustrated me with his controlling egoistical and critical mind...
+> My husband often has frustrated me with his controlling egoistical and critical manner...
 
 *[Laughter.]*
 
@@ -228,71 +228,69 @@ Do you know this book... “Tail Hard De-chardin”?
 
 ... et cetera. 
 
-Well, this example, what I want to tell you is, she experienced something wonderful through prayer to God. But anyway those experiences were very important for her, but finally, where she should return to? So finally what she has to do is to return to simplicity, simple life. That simplicity is very important for us.
+Well, this example, what I want to tell you is, she experienced something wonderful through prayer to God. Those experiences were very important for her, but finally, where she should return to? So finally what she has to do is to return to simplicity, simple life. That simplicity is very important for us.
 
-Simplicity is, anyway, just like Seppō. Gānto took away all his experience. It doesn’t mean Seppō’s careers were something wrong. That is alright. But it is not *real* spiritual life, because real spiritual life is to let you be present constantly in peace and harmony without looking around. Well, the experience running through the six senses – feeling good, feeling not good, or just like lightning and thunder – whatever experience, experience or experience which you are taking in the position of a form. Form is always changing. Just like a dance; form of dance. 
+Simplicity is just like Seppō. Gānto took away all his experiences. It doesn’t mean Seppō’s careers were something wrong; that is alright. But it is not *real* spiritual life, because real spiritual life is to let you be present constantly in peace and harmony without looking around. Well, the experience running through the six senses – feeling good, feeling not good, or just like lightning and thunder – whatever experience – [is] experience which you are taking in the possession of a form. Form is always changing – just like a dance, a form of dance. Experience is just like a dance – so demonstrate it, and disappear next moment. 
 
-Experience it just like a dance – so demonstrate it, and disappear next moment. But still there is real reality there, from which all forms bloom. That is simplicity. Simplicity is not something particular. Simplicity is within an individual – the performer himself or herself.
+But still there is a real reality there, from which all forms bloom. That is simplicity. Simplicity is not something particular; simplicity is within an individual – the performer himself or herself.
 
-So that’s why Gānto took all his careers, and let him look at the root from which all experience and careers blooms, by which human beings are pretty easy to be stuck and hold on to, cling to. Emphasizing strongly this is a spiritual life, and then you should believe this, you should depend on like this. Well that is a *part* of spiritual life. But real spiritual life is you yourself; real spiritual life is really something directly connected with *you* as a *person*, who exists now. You cannot deal with yourself by the teaching, by some wonderful poem composed by somebody. You know? 
+That’s why Gānto took all his careers, and let him look at the root from which all experience and careers bloom, by which human beings are pretty easy to be stuck and hold on to, cling to. Emphasizing strongly this is a spiritual life, and then you should believe this, you should depend on, like this. Well, that is a *part* of spiritual life. But real spiritual life is you yourself; real spiritual life is really something directly connected with *you* as a *person*, who exists now. You cannot deal with yourself by the teaching, by some wonderful poem composed by somebody. You know? 
 
-Even the teaching composed by then taught by the buddhas and patriarchs, it doesn’t help you actually. It helps you indirectly in many ways, but finally what you have to do is to digest the teaching within you. What does your food digest? The you. Digestion is very important for us. So that’s why Gānto taking away Seppō’s experience means that Gānto wanted to let digest all his experiences, until they become blood and energy, life energy. 
+Even the teaching composed by then taught by the buddhas and patriarchs: it doesn’t help you, actually. It helps you indirectly in many ways, but finally what you have to do is to digest the teaching [within] you. [Why] does your food digest? [You]. Digestion is very important for us. So that’s why Gānto taking away Seppō’s experience means that Gānto wanted to let [Seppō] digest all his experiences, until they become blood and energy, life energy. 
  
-So if experience becomes completely digested and blood and energy, there is no form, no colors. Anyway, just living. 
+If experience becomes completely digested and [becomes] blood and energy, there is no form, no colors. Anyway, just living. 
  
 So that’s why Gānto wanted him to digest those experiences. For this, he took away all things. That’s why he said, “If you want to teach the Buddha’s teaching for all sentient beings, you have to show, say and act from the bottom of your heart.” *Yours*, not others’. 
 
 So that is simplicity. It’s really simplicity. Because we have to just stand up. Like a tree on the mountain. 
 
-But it’s pretty hard just standing up in the mountain, because around the trees there are severe weather, and snow, and lots of criticism there, and give and take, pros and cons, and war and peace, and justice, and many things around. But accepting all things, nevertheless, the tree is always aiming at the huge tortoise. Without looking around [at the] small stuff and the big stuff – whale, and the hippopotamus, et cetera. Snakes and frogs... anyway the tree never looks around. Just standing up there, in sunny days and severe winter weather. That’s why if you look at it, it’s very beautiful. Very exquisite, which is unexplainable. Because tree is tree, but behind the tree, the whole huge world is alive within the tree. 
+But it’s pretty hard just standing up on the mountain, because around the trees there are severe weather, and snow, and lots of criticism there, and give and take, pros and cons, and war and peace, and justice, and many things around. But accepting all things, nevertheless, the tree is always aiming at the huge tortoise. Without looking around [at the] small stuff and the big stuff – whales, and the hippopotamus, snakes and frogs... anyway the tree never looks around. Just standing up there, in sunny days and severe winter weather. That’s why if you look at it, it’s very beautiful. Very exquisite, which is unexplainable. Because tree is tree, but behind the tree, the whole huge world is alive within the tree. 
 
-So that is the simplicity. Simplicity is not [an] egoistic way of life. Simplicity is you must [be] you as you are, simultaneously that way of life is completely backed by the rhythm of universal life. That’s why it is very simple and exquisite, very exquisite. Because that way of life which you do is very precious, having a very precious quality. 
+So that is the simplicity. Simplicity is not [an] egoistic way of life. Simplicity is you must [be] you as you are, simultaneously that way of life is completely backed by the rhythm of universal life. That’s why it is very simple and exquisite, very exquisite. Because that way of life which you do [has] a very precious quality. 
 
-Somebody who has eyes can see that, but people who don’t have their own eyes cannot see it. That’s all. But he himself, whatever happens, whoever looks at you, this person is always standing up straight, under all circumstances, without looking around so much, anyway, and [facing] everyday life. That is called simplicity. 
+Somebody who has eyes can see that, but people who don’t have their own eyes cannot see it; that’s all. But he himself, whatever happens – whoever looks at you, this person is always standing up straight, under all circumstances – without looking around so much, anyway – and dealing with everyday life. That is called simplicity. 
 
-So finally she comes back to simplicity. She doesn’t know what simplicity is. So she felt a little bit what simplicity was through sitting. It’s very true. 
+So finally she comes back to simplicity. She doesn’t know what simplicity is. She felt a little bit what simplicity was through sitting. It’s really true. 
 
-So that’s what I want to tell you. Simplicity is completely no bottom of the bucket. No bottom of personality, no bottom of capability you have. That is simplicity. Very simple. If you’re stupid, you have to take best care of yourself as stupid, anyway. *[Laughter.]* But if you look around [...] immediately criticism comes up and you put yourself down by yourself. 
+So that’s what I want to tell you. Simplicity is completely no bottom of the bucket. No bottom of personality, no bottom of capability you have. That is simplicity. Very simple. If you’re stupid, you have to take best care of yourself as stupid, anyway. *[Laughter.]* But if you look around, immediately criticism comes up and you put yourself down by yourself. 
 
-So what is the Joshu, what is the stone bridge? Joshu said that stone bridge is Buddha. For Joshu, Chao Chou, Buddha as a stone bridge is not something fancy. You can experience so-called spiritual life. 
+So what is Joshu, what is the stone bridge? That stone bridge is Buddha. For Joshu, Chao Chou, Buddha as a stone bridge is not something fancy. You can experience so-called spiritual life – well, that is alright. But it is nothing but the log bridge appearing; next moment it disappears. Then you come back to the daily routine, daily life. In daily life [there are] many beings, many occurrences there, so it’s pretty easy for us to look around. But the important point is wherever you may go, there is always the big tortoise, so-called buddha-nature or truth. 
 
-Well, that is alright. But it is nothing but the log bridge appearing; next moment disappears. Then you come back to the daily routines, daily life. In daily life [there are] many, many beings, many occurrences there. So it’s pretty easy for us to look around. But the important point is wherever you may go, there is always the big tortoise, so-called buddha-nature or truth. 
+So that is [a] simple way of life. Just standing. Under each circumstance of pain, suffering, *gassho*, washing your face, we have to just stand up straight, without looking around so much. And that is called simplicity. 
 
-So that is [a] simple way of life. Just standing. Under each circumstance of pain, suffering, *gassho*, washing your face, we have to just stand up straight, and without looking around so much. And that is called simplicity. 
-
-And this simplicity is not something you can get in your hand and evaluate and judge it, but this simplicity is something you have to raise. You have to raise it. You have to raise it thousands, hundred of thousands, millions, myriad times in your daily life. This moment, you have to just raise this simplicity. In the sitting, in the washing your face; next moment: where is the truth? You don’t know. But “it’s omnipresent” means next moment it’s there. So all you have to do is raise, you have to raise this simplicity of life. 
+And this simplicity is not something you can get in your hand and evaluate and judge it, this simplicity is something you have to raise. You have to raise it thousands, hundred of thousands, millions, myriad times in your daily life. This moment, you have to just raise this simplicity; in the sitting, in the washing your face. Next moment: where is the truth? You don’t know. But “it’s omnipresent” means next moment it’s there. So all you have to do is you have to raise this simplicity of life. 
 
 That is called *bodhi-mind*, the way-seeking mind. If you can raise this bodhi-mind from moment to moment, a hundred times, a thousand times, myriad times, you become a bodhisattva. That is called bodhisattva. 
 
 But we don’t see this, because we are always seeking for a certain result of experience. 
 
-Result is fine, but result comes from *later*. If you stand up, if you take care of [life] like this, and then result comes. But we don’t do it. We always expect result *first*; before you do. *[He chuckles.]* That’s completely reversed. 
+Result is fine, but result comes *later*. If you stand up, if you take care of [life] like this, then result comes. But we don’t do it; we always expect result *first*, before you do. *[He chuckles.]* That’s completely reversed. 
 
 #### 59:50
 
-For instance, in Japan, every year, school teachers and company workers have a kind of yearly custom – to have a strike. *[Laughter.]* To raise the money, to raise the salary wages. 
+For instance, in Japan, every year, school teachers and company workers have a kind of yearly custom – to have a strike. *[Laughter.]* To raise the salary wages. 
 
-That’s fine! But, I don’t know [about] this one. Of course you cannot ignore how much you can get, how much wages you can have. Well, before you work, you should negotiate with the companies – of course, you have to do. But every year, yearly you have a strike like this. And what is work? What is labor? Labor is completely pushed away, and thinking money. You know? 
+That’s fine! But, I don’t know [about] this one. Of course you cannot ignore how much wages you can get. Well, before you work, you should negotiate with the companies – of course, you have to do. But every year, yearly you have a strike like this, and what is the work? What is the labor? Labor is completely pushed away, and thinking money. You know? 
 
 So in order to [get] the money, you work. You are enslaved by money, and *then* you work. That is the opposite! You have to work. If you have to work, you have to take best care of the work itself, and then salary wages come naturally. But we don’t do it! Reality will be reversed. We always do something like this. 
 
-So if you emphasize so much a strike or position of the money, so very naturally your life becomes reversed. You don’t see something real – the big tortoise. 
+So if you emphasize so much a strike or position of the money, very naturally your life becomes reversed. You don’t see something real – the big tortoise. 
 
-Well, the same applies to the United States. But Americans strike very calm and gentle *[he laughs]* without screaming, just carrying a [sign] and just walk in front of the department and bus depots... Very quiet. You are very gentlemanly. Japanese strike are very hostile. Very hostile; fighting always. Screaming. You would be deaf, because it’s so noisy. 
+Well, the same applies to the United States. But Americans strike very calm and gentle *[he laughs]*, without screaming. Just carrying a [sign] and just walking in front of the department and bus depots... Very quiet. You are very gentlemanly. Japanese strikes are very hostile; fighting always. Screaming. You would be deaf, because it’s so noisy. 
 
-In the [...] station, which is a terminal station in Tokyo. [...] I went back last October. And then... you know former minister Tanaka? He got something, big money; you know that story. So he was in court, and finally the Japanese could see the result, what he had to do. And then next, the government always tried to commit communist, always emphasized he must be impeached from the cabinet, et cetera. So right in front of the station: big speakers. *Big* speakers. One, two, three cars with two big speakers, talking. It was rush hour time – many people there. *[He laughs.]* I just stood waiting for the bus. *[noise]* I became a deaf. When I came in the bus, my ears kind of, you know, the same problem as being on the plane going down to the land? Your ears funny. Just like this. So it’s really noisy. 
+In the [Seibu] station, which is a terminal station in Tokyo... I went back last October. And then... you know the former minister Tanaka? He got something, big money; you know that story. So he was in court, and finally the Japanese could see the result, what he had to do. And then next, the government always tried to *[unintelligible]*, always emphasized he must be impeached from the cabinet, et cetera. So right in front of the station: big speakers, *big* speakers. One, two, three cars with two big speakers, talking. It was rush hour time – many people there. I just stood waiting for the bus; I became a deaf. When I came in the bus, my ears kind of, you know, the same problem as being on the plane going down to land? Your ears funny; just like this. So it’s really noisy. This is kind of not a big area; Japan is very crowded, buildings and people. If people talk through the big speakers here, it doesn’t bother you so much, because it’s huge. But Japan is very crowded; tiny, nevertheless [there are many] buildings, people, cars. 
 
-This kind of not big areas. Japan was very crowded; buildings and people. Well, if people talk through the big speakers here, it doesn’t bother you so much, because it’s huge. But Japan is very crowded. Tiny; nevertheless [there are many] buildings, people, cars. Don’t expect Japan [to be as beautiful as] your imagination. *[Laughter.]* I’m not criticizing Japan, but you should know the real Japan. *[Laughter.]*
+Don’t expect Japan [to be as beautiful as] your imagination. *[Laughter.]* I’m not criticizing Japan, but you should know the real Japan. *[Laughter.]*
 
 Do you have some questions? 
 
 #### 1:05:35
 
-Oh. This morning, before the breakfast, I told you [about] one of the customs in monastery – but not in the monastery, even out of the monastery. That is [a] way of becoming intimate with the teacher and disciple. At New Year, we offer a set of two pieces of mochi, round mochi, in the shrine, on the altar, and perform the three morning services: praying for his health and also his [dharma]. So even though you are not in the monastery, we do always, while his teacher or her teacher is alive. That’s a very good custom for us. 
+Oh. This morning, before the breakfast, I told you [about] one of the customs in monastery – but not in the monastery, even out of the monastery – that is [a] way of becoming intimate with the teacher and disciple. At New Year, we offer a set of two pieces of mochi, round mochi, on the altar, and perform the three morning services: praying for his health and also his [dharma]. So even if you are not in the monastery, we do always, while his teacher or her teacher is alive. That’s a very good custom for us. 
 
 **Question:** Hojo-san, when you say his *dharma*, do you mean the teaching, or the ...
 
-**Katagiri Roshi:** Teaching. [Lineage.]
+**Katagiri Roshi:** Teaching. Lineage.
 
 **Questioner:** *[Unintelligible.]*
 
@@ -300,31 +298,33 @@ Oh. This morning, before the breakfast, I told you [about] one of the customs in
 
 Because if you become a priest, the most important priest task is to continue to carry the dharma lineage, without cutting off, without disconnect. That is a main task of a priest’s life. Forever, priest’s task is to try to convey or transmit the dharma lineage. Dharma lineage is to carry the sublimity of existence; emphasizing the sublimity of existence, handed down from Buddha Shakyamuni to Dōgen and to your teachers, et cetera. So we have to carry this. We have to continue and transmit to the next generation. That is the dharma. 
 
-So when we perform the services for three days at New Year, praying for that means you pray for the teacher’s health, and also the transmitting the teacher’s dharma to the next generation is to pray for your health simultaneously. And also to pray for your great inspiration for carrying dharmas to the next generation. 
+So when we perform the services for three days at New Year, praying for that means you pray for the teacher’s health, and also [praying for] transmitting the teacher’s dharma to the next generation is to pray for your health simultaneously. And also to pray for your great inspiration for carrying dharmas to the next generation. 
 
-I told you before, if you become a buddha, you can see everything [...] as a buddha. But if you cannot, it is very difficult to see everything [as a] buddha. So that’s why while the teacher is alive, you don’t understand so well what the Buddha taught. Because you’re not mature, so sometimes [you really] complain, very often. In my case, I very often complained, and was upset and criticizing the teacher. But after his death, and simultaneously my life was getting mature, then I understood. 
+I told you before, if you become a buddha, you can see everything as a buddha. But if you cannot, it is very difficult to see everything [as a] buddha. So that’s why while the teacher is alive, you don’t understand so well what the Buddha taught. Because you’re not mature, so sometimes [you really] complain, very often. In my case, I very often complained, and was upset and criticizing the teacher. But after his death, and simultaneously my life was getting mature, *then* I understood. At that time it’s too late, because the teacher died. That’s one of the regrets that human beings possess very often. 
 
-At that time it’s too late, because the teacher died. That’s one of the regrets that human beings possess very often. 
-
-So when you want to see, at that time, no one can see. When you want to practice from your heart, at that time, no opportunity to practice from your heart. 
+So when you want to see, at that time, no one [to] see. When you want to practice from your heart, at that time, no opportunity to practice from your heart. 
 
 You know, some people say, “when I have time I want to practice.” Or, “when I feel good from zazen and Zen teaching, then I want to practice.” Well, it’s alright if you think so, but it’s pretty difficult to get exactly mature opportunity to let you practice exactly. Let’s read the *Record of Things Heard*; Dōgen Zenji talks about that point too. 
 
-So even if you feel this is not a real opportunity, if the opportunity is here, practically, well, let’s jump in. That is pretty good for us. 
+So even if you feel this is not a real opportunity, [still] if the opportunity is here, practically, well, let’s jump in. That’s pretty good for us. 
 
 #### 1:11:36
 
-**Question:** Hojo-san, I read that Joshu Zen Master’s lineage died out only after a couple more people in his lineage. Do you know if that’s right? I think it’s in that back of that book.
+**Question:** Hojo-san, I read that Joshu Zen Master’s lineage died out only after a couple more people in his lineage. Do you know if that’s right? I think it’s in the back of that book.
 
-**Katagiri Roshi:** Mm-hmm. Joshu’s lineage is Rinzai line, and [Segi] Nangaku Ejo (Nanyue Huairang), and you know Baso Zen Master (Mazu Daoyi). So Zen Master has many disciples, among them there are three famous Zen Masters. One is Hyakujo [Nehan] (Baizhang Niepan), who established first the regulation of monastic life in China. And next is Kisu Zen Master (Guizong Zhichang), who flourished [in] the 8th century, who is also pretty famous for his very strict way to teach. And the third one was Nansen Zen Master. You know pretty well, Nansen was the Zen teacher who cut off the cat’s head in order to cut off the delusion of the monks, and thinking of whether the cat has a buddha-nature or not. Do you know that? Well, that’s three Zen Masters. And then Joshu Zen Master was a disciple of this Nansen. 
+**Katagiri Roshi:** Mm-hmm. Joshu’s lineage is Rinzai line, and Nangaku Ejo (Nanyue Huairang), and you know Baso Zen Master (Mazu Daoyi). So [Baso] Zen Master has many disciples, among them there are three famous Zen Masters. One is Hyakujō [Ekai] (Baizhang Huaihai), who established first the regulation of monastic life in China. And next is Kisu Zen Master (Guizong Zhichang), who flourished [in] the 8th century, who is also pretty famous for his very strict way to teach. And the third one was Nansen Zen Master (Nanquan Puyuan). You know pretty well, Nansen was the Zen teacher who [killed] the cat in order to cut off the delusion of the monks, and thinking of whether the cat has buddha-nature or not. Do you know that? Well, [those] three Zen Masters. And then Joshu Zen Master was a disciple of this Nansen. 
 
-So Joshu really practiced very hard, I can imagine, because Nansen had very much his own peculiar way – very peculiar, strict way. So Joshu was very [suffering]. For instance, if you read *Mumonkan*, *Gateless Gate*, Number 19, there is a koan. Joshu Zen Master asked Nansen about the meaning of the Way, the Buddha Way. That means what is the truth, the Buddha Way. And then Nansen says, the daily life, daily mind. He said everyday mind; so [Joshu] asked what [is] everyday mind, always. So in this koan of the *Gateless Gate*, you can read what is everyday mind. So Joshu practiced very hard, thinking about everyday mind, because he became a monk at 60 years old. He cannot have any energy to [go] far away, far out; or he didn’t have any energy to get a certain fantastic religious experience, and thinking something else apart from his life. His life was really rooted in everyday life. So that’s why he anyway asked these kind of questions. 
+So Joshu really practiced very hard, I can imagine, because Nansen had very much his own peculiar way – very peculiar, strict way. So Joshu was very [suffering]. For instance, if you read *Mumonkan*, *Gateless Gate*, Number 19, there is a koan [where] Joshu Zen Master asked Nansen about the meaning of the Buddha Way. That means what is the truth, the Buddha Way. And then Nansen says [...] everyday mind. So [Joshu] asked what [is] everyday mind, always. So in this koan of the *Gateless Gate*, you can read what is everyday mind. 
 
-So what is the Way? What is the Buddha’s teaching? What is the truth? Truth is everyday mind. That is a really difficult koan for us. But it’s pretty easy, [a] simple, simple way – but we don’t understand that one. 
+So Joshu practiced very hard, thinking about everyday mind, because he became a monk at 60 years old. He cannot have any energy to [go] far away, far out; or he didn’t have any energy to get a certain fantastic religious experience, and thinking something else apart from his life. His life was really rooted in everyday life. So that’s why he anyway asked these kind of questions. 
 
-That’s why Dōgen Zenji also [talked] about everyday mind. So-called, “everyday mind means everyday mind throughout this world and the other world.” “When everyday mind comes, the whole world comes. When everyday mind goes, the whole world goes.” So that means when you die, the whole world dies. When you are born in this world, the whole world becomes born. Just like this. This is everyday mind. That’s quite different from what you have thought, you know? Everyday mind is very calm, smooth stream of life. Not very fancy. Not up and down. Very stable, secure, always, under every circumstance. 
+So what is the Way? What is the Buddha’s teaching? What is the truth? Truth is everyday mind. That is a really difficult koan for us. But it’s pretty easy; [a] simple way – but we don’t understand that one. 
 
-Look at the weather, severe winter. Well, severe winter is severe winter, so according to your emotion, you don’t like it. That’s very common. But on the basis of these emotions, there is a very secure everyday mind. At that time you can accept severe winter as it really is, telling us [a] wonderful world, as a buddha. But emotions, our human bodies, or our karmic life doesn’t accept. We don’t like it. So very naturally we are tossed away by this karmic life. That is a problem. That’s why we are constantly going away. But [...] wherever you may go, on the basis if there is a very secure and calm stream of life, you can accept severe weather as it is.
+That’s why Dōgen Zenji also [talked] about everyday mind. So-called, “everyday mind means everyday mind throughout this world and the other world.” “When everyday mind comes, the whole world comes. When everyday mind goes, the whole world goes.” So that means when you die, the whole world dies. When you are born in this world, the whole world becomes born. Just like this. This is everyday mind. That’s quite different from what you have thought, you know? Everyday mind is very calm, smooth stream of life. Not very fancy. Not up and down. Very stable, secure, always. 
+
+Under every circumstance. Look at the weather, severe winter. Well, severe winter is severe winter, so according to your emotion, you don’t like it. Well, that’s very common. But on the basis of this emotion, there is a very secure everyday mind. At that time you can accept severe weather as it really is, telling us [a] wonderful world, as a buddha. 
+
+But emotions, our human bodies, or our karmic life doesn’t accept. We don’t like it. So very naturally we are tossed away by this karmic life. That is a problem. That’s why we are constantly going away. But [...] wherever you may go, [...] if there is a very secure and calm stream of life, you can accept severe weather as it is.
 
 #### 1:18:09 end of recording
 
