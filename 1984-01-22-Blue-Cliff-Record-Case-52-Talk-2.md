@@ -48,31 +48,33 @@ That is a very common way of teaching which occurs in the *Blue Cliff Record*...
 
 > Thus Hsueh Tou says, “He doesn’t set up the solitary and dangerous; in that his path is lofty.” Others may tower up like ten-mile-high walls to display the extraordinary spiritual effects of the Buddha Dharma...
 
-It’s very common, very fancy: in order to show, in order to make the people understand what the spiritual life is. Communicating with divinity or truth, you know? Naturally people use really fancy words; they build big mansions, they build the ten mile high walls. Very fancy. 
+It’s very common. Very “fancy”: in order to show, in order to make the people understand what the spiritual life is. Communicating with divinity or truth, you know? Naturally people use really fancy words; they build big mansions, they build the ten mile high walls. Very fancy. 
 
 So that is very common [...]
 
 >  — but though they are solitary and dangerous, lofty and steep, this is not as good as not setting up the solitary and dangerous, and simply acting ordinary, naturally turning smoothly. Chao Chou doesn’t establish anything, yet he is established himself; ...
 
-That’s interesting. He doesn’t establish something particular, on purpose, but he [is] being there, present there. But there is something which is being established. Just like yesterday I told you: just one tree standing straight in the mountains, covered with snow, in the sunny days. It doesn’t demonstrate something showy; but just standing. But it’s really marvelous, and very instructive there. 
+That’s interesting. He doesn’t establish something particular, on purpose, he [is] just being there, present there, but there is something which is being established. 
 
-So just like this. That’s why “Chao Chou doesn’t establish anything, yet he is established himself; ...”
+Just like yesterday I told you: just one tree standing straight in the mountains, covered with snow in the sunny days. It doesn’t demonstrate something showy, but just standing. But it’s really marvelous, and very instructive there. 
+
+Just like this. That’s why “Chao Chou doesn’t establish anything, yet he is established himself; ...”
 
 > ... he doesn’t make anything high, yet he is high himself. When capacity goes beyond solitary and dangerous, only then do we see profound wonders.
 
-Well, if you see just nature, nature is not fancy. But just to see just full presence of nature as it is – it doesn’t show something lofty, or something particular, but there is something which is unexplainable, so-called profound subtlety and wondrousness. That’s why you are very impressed by nature and the wilderness, et cetera.
+Well, if you see just nature, nature is not fancy. But just to see just full presence of nature as it is – it doesn’t show something lofty, or something particular, but there is something, which is unexplainable, so-called profound subtlety and wondrousness. That’s why you are very impressed by nature and the wilderness, et cetera.
 
-So that’s why this is the meaning of the first line, “He doesn’t set up the solitary and dangerous; in that his path is lofty.”
+This is the meaning of the first line, “He doesn’t set up the solitary and dangerous; in that his path is lofty.”
 
 The note says:
 
 > You must get to this realm before you realize.
 
-Well, you can’t imitate. Only the person who can reach at this spiritual level, he can use like this. But otherwise, no one can imitate.
+Well, you cannot imitate. Only the person who can reach at this spiritual level, he can use like this, but otherwise, no one can imitate.
 
 > The words are still in our ears. This goes back to his own provisions.
 
-There are lots of skillful methods: using the stick, using the sharp words, something blowing, sometimes screaming, et cetera, in Zen – scaring you. But for Joshu Zen Master, all skillful method goes back to his method. Nothing to use special. So “this goes back to his own provisions.” 
+There are lots of skillful methods: using a stick, using sharp words, [sometimes giving a blow], sometimes screaming, et cetera, in Zen – scaring you. But for Joshu Zen Master, all skillful methods go back to his method; nothing special to use. So “this goes back to his own provisions.” 
 
 #### 10:16
 
@@ -82,15 +84,15 @@ The note says,
 
 > He cuts off the essential crossing place and doesn’t let profane or holy pass. [Shrimps or clams, snails or oysters aren’t worth asking about.] People of power don’t come by twos and threes.
 
-“He cuts off the essential crossing place...”: That means cutting off the root of delusion, life and death, and the body mind or nirvana, enlightenment, et cetera. Well, I will explain later. 
+“He cuts off the essential crossing place...”: That means cutting off the root of delusion, life and death, and the bodhi-mind, or nirvana, enlightenment, et cetera. Well, I will explain later. He cuts off this...
 
-“... and doesn’t let profane or holy pass.” While you call yourself holy or profane, it means you still have a certain bottom, so-called profane or holy. But Joshu always cut off the root of profane or holy. 
+“... and doesn’t let profane or holy pass.” While you call yourself holy or profane, it means you still have a certain bottom, so-called “profane” or “holy”. But Joshu always cut off the root of profane or holy. 
 
-“People of power don’t come by twos and threes.” Yesterday I told you, we are always looking around immediately, and checking and analyzing, synthesizing always. It’s very difficult for us to settle down, to settle yourself in the self under all circumstances. We are immediately look around. So “people of power don’t come by twos and threes” means looking around. Trying to fill up the satisfaction of human desires, immediately. How to make a living in a better way, in order to get the higher position, or whatever kind of a desire you have. 
+“People of power don’t come by twos and threes.” Yesterday I told you, we are always looking around immediately, and checking, and analyzing, synthesizing always. It’s very difficult for us to settle down, to settle yourself in the self, under all circumstances. We are immediately look around. So “people of power don’t come by twos and threes” means looking around. Trying to fill up the satisfaction of human desires, immediately. How to make a living in a better way, in order to get a high position, or whatever kind of a desire you have. 
 
-But for Joshu, always he’s aiming at the vast tortoise. Even though in the ocean there are big whales, or even though there are huge, you know... crocodiles... *[Laughter.]* Crocodile doesn’t live in the ocean. *[He laughs.]* Uh... hippopotamus? *[Laughter.]* That’s wonderful: in the ocean, a hippopotamus, huge hippopotamus swimming in the ocean. Crocodiles. 
+But for Joshu, always he’s aiming at the big tortoise. Even though in the ocean there are big whales, or even though there are huge, you know... crocodiles... *[Laughter.]* Crocodile doesn’t live in the ocean. *[Laughter.]* Uh... hippopotamus? *[Laughter.]* That’s wonderful: in the ocean, a hippopotamus; huge hippopotamus swimming in the ocean. Crocodiles. 
 
-But, he never looks around, he never pays attention to them. Just a big, huge, vast tortoise. That is called truth. You know?
+But, he never looks around, he never pays attention to them. Just a big, huge, vast tortoise. That is called truth.
 
 #### 14:02
 
@@ -98,27 +100,21 @@ But, he never looks around, he never pays attention to them. Just a big, huge, v
 
 Hsueh Tou took the Zen Master of Kuan Hsi who was a disciple of Rinzai Zen Master as an example, so here it says, “His contemporary the elder of Kuan Hsi is worth a laugh.” Almost the same koan here. The commentary says:
 
-> ... a monk asked Kuan Hsi, “I’ve long heard of Kuan Hsi (‘Pouring Mountain Stream’)...
+> A monk asked Kuan Hsi, “I’ve long heard of Kuan Hsi (‘Pouring Mountain Stream’)...
 
 That’s the meaning of Kuan Hsi: “Pouring Mountain Stream.” So,
 
-> I’ve long heard of Kuan Hsi. Now that I’ve come here I only see a hemp-soaking pool.
+> I’ve long heard of Kuan Hsi (‘Pouring Mountain Stream’). Now that I’ve come here I only see a hemp-soaking pool.
 
-A hemp-soaking pool is a very small pool with a little amount of water, which is just good enough to soak the very thin hemp. Do you understand? *[He chuckles.]* That is, here it says, “I only see a hemp soaking pool.” But according to rumor, or according to his imagination, “the pouring mountain stream,” he imagined how big it is. “But now that I’ve come here I only see a hemp soaking pool.”
+A hemp-soaking pool is a very small pool, with a little amount of water which is just good enough to soak the very thin hemp. Do you understand? *[He chuckles.]* That is, here it says, “I only see a hemp-soaking pool.” But according to rumor, or according to his imagination, “the pouring mountain stream,” he imagined how big it is. “But now that I’ve come here I only see a hemp-soaking pool.”
 
 > Hsi said, “You just see the hemp-soaking pool; you don’t see the pouring mountain stream.” The monk said, “What is the pouring mountain stream?” Hsi said, “Swift as a whistling arrow.”
  
-It’s very [quick]. *[He makes a shooting sound.]* “Zoop!” You know; very quick stream. 
+It’s very [quick]. *[He makes a shooting sound.]* “Zoop!” You know; a very quick stream. 
 
-So that is the same story that Kuan Hsi has, but his answer is quite different from Joshu. Joshu said, “Let the asses cross, let the horses cross.” That means everyday life. You know, everyday life, and whatever happens, he just lets all things cross. But according to Kuan Hsi, Kuan Hsi says, “swift as a whistling arrow.” Very sharp. 
+So that is the same story that Kuan Hsi has, but his answer is quite different from Joshu. Joshu said, “Let the asses cross, let the horses cross.” That means everyday life. You know, everyday life, and whatever happens, he just lets all things cross. But Kuan Hsi says, “swift as a whistling arrow.” Very sharp. That is Kuan Hsi himself; you have to see Kuan Hsi like this. Kuan Hsi means the buddha-nature. What is a buddha? You see just a little pool, but you have to see the big stream, so-called Buddha. What is the Buddha? According to him, Buddha is “swift as a whistling arrow.” Very quick. Very sharp. 
 
-That is Kuan Hsi himself; you have to see Kuan Hsi like this. Kuan Hsi means the buddha-nature. What is a buddha? You see just a little pool? But you have to see the big stream, so-called Buddha. What is the Buddha? 
-
-According to him, Buddha is “swift as a whistling arrow.” Very quick. Very sharp. 
-
-So that is this [line], “His contemporary the Elder of Kuan Hsi is worth a laugh.” So his answer is worthy of laughter. 
-
-#### 18:06
+That is this [line], “His contemporary the Elder of Kuan Hsi is worth a laugh.” So his answer is worthy of laughter. 
 
 > Though he knew how to say “Whistling Arrow,” his effort was in vain.
 
@@ -126,55 +122,51 @@ Well, I don’t mean Kuan Hsi was put down by Hsueh Tou, but anyway there are va
 
 Well, which is better, which is good – it depends on the individual. If your eyes open, you can see something profound. If you don’t, you cannot see it, you just see something fancy. But if you keep your eyes open, if you open your heart, and have good ears and good eyes, you can see something really profound. It is very quiet, not showy. But it’s really deep. 
 
-Okay.
-
 #### 19:20
 
 I want to tell you two examples. One happened in ancient times in the history of Buddhism. The second one is another case, which we can see in the contemporary world. 
 
-So the first one, I want to tell you the example of Seppō Zen Master in the Zen history. Seppō Zen Master (Xuefeng Yicun, 雪峰义存, 822–908) was the fourth generation from the Sekitō Zen Master (Shítóu Xīqiān, 石頭希遷, 700–790). Both were very famous Zen teachers in history. 
+So the first one, I want to tell you the example of Seppō Zen Master in Zen history. Seppō Zen Master (Xuefeng Yicun, 雪峰义存, 822–908) was the fourth generation from the Sekitō Zen Master (Shítóu Xīqiān, 石頭希遷, 700–790). Both were very famous Zen teachers in history. 
 
 One day he took a trip with Gānto Zen Master (Yantou Quanhuo, 巖頭全豁, 828–887). Gānto Zen Master was also a disciple of Tokusan Zen Master (Deshan Xuanjian, 德山宣鑒, 780-865). Ganto and Seppō are in the relation of the dharma brothers, but Seppō was 60 years younger than Gānto. But Gānto was a great Zen teacher in those days. 
 
-So one day Seppō took a trip with him, and they couldn’t travel at all because they had a big snowstorm. So they stayed at the temple for a couple of days. And Gānto always slept, without doing anything. But Seppō always did sitting zazen every day. Just like Bodhidharma, always sitting every day. But Gānto didn’t; Gānto always slept in a bed. In his heart, Seppō was not comfortable at this, because he was always seeking for something. So, one day he woke him up. “Gānto, please wake up. I don’t feel comfortable. My heart is not peaceful, so please get up, please get up.” And then Gānto says, “What’s happened? Never mind, go to sleep!” *[Laughter.]* But he said, “No I couldn’t go to sleep. So wake up, wake up! My heart is not comfortable, so wake up!” So he said finally, “I expected you to be a great Zen teacher guiding all-sentient beings in the future. But what are you talking about? The reality what you are talking would be completely reversed. Don’t say it’s stupid. Something is stupid. So go to sleep!” *[He laughs.]*
+So one day Seppō took a trip with him, and they couldn’t travel at all because they had a big snowstorm. So they stayed at a temple for a couple of days. And Gānto always slept, without doing anything. But Seppō always did sitting zazen every day. Just like Bodhidharma, always sitting every day. But Gānto didn’t; Gānto always slept in a bed. In his heart, Seppō was not comfortable at this, because he was always seeking for something. So, one day he woke him up: “Gānto, please wake up. I don’t feel comfortable. My heart is not peaceful, so please get up, please get up.” And then Gānto said, “What’s happened? Never mind, go to sleep!” *[Laughter.]* But [Seppō] said, “No I can’t go to sleep. So wake up, wake up! My heart is not comfortable, so wake up!” So [Gānto] said finally, “I expected you to be a great Zen teacher guiding all sentient beings in the future. But what are you talking about? The reality you are talking would be completely reversed. Don’t say something stupid. So go to sleep!” *[He laughs.]*
 
-And then nevertheless Seppō Zen Master was not comfortable, so he continued to wake him up. Finally he said, “Well, if so, you should tell me one by one what you have had through Zen practice. And then I will check it, and if it is necessary I give it back to you, but if it is not necessary I will take away from you.” So Seppō Zen Master started to talk about his career, what he has experienced. 
+And then nevertheless Seppō Zen Master was not comfortable, so he continued to wake him up. Finally [Gānto] said, “Well, if so, you should tell me one by one what [experiences] you have had through Zen practice. And then I will check it, and if it is necessary I will give it back to you, but if it is not necessary I will take away from you.” So Seppō Zen Master started to talk about his career, what he has experienced. 
 
-The first he said, “When I listened to a lecture of emptiness, “form is emptiness,” given by famous Zen Master Kanshi (Tongan Guanzhi, 同安觀志), at that time I was very impressed by this, so I thought I had experience of enlightenment. So Gānto says, “That happened almost 30 years ago. It’s too late!” *[He laughs.]* “What are you talking about? You are talking about 30 years ago? It’s not necessary.” So it’s stupid. Anyway, Gānto took it away took it away from Seppō. 
+The first he said [was], “When I listened to a lecture [on] ‘form is emptiness’ given by the famous Zen Master Kanshi (Tongan Guanzhi, 同安觀志), at that time I was very impressed by this, so I thought I had experience of enlightenment.” So Gānto says, “That happened almost 30 years ago. It’s too late!” *[He laughs.]* “What are you talking about? You are talking about 30 years ago? It’s not necessary.” So it’s stupid. Anyway, Gānto took it away took it away from Seppō. 
 
-And next, Seppō says, “When I was at the Tōzan’s Zen temple (Dongshan Liangjie, 洞山良价, 807–869), I had a chance to listen to the poem composed by Tōzan Zen master when he had attained enlightenment.” That poem was pretty famous. “He said, ‘You shouldn’t search for it through others’” – “others” means outside. “‘If you do, the truth will become more remote from you. But when alone I proceed through myself, everywhere I go I meet him. Now he is not other than myself, yet I am not he. Only if you understand this will you identify with the *tathātā*.’” *Tathātā* means the truth. 
+Then next, Seppō says, “When I was at the Tōzan’s Zen temple (Dongshan Liangjie, 洞山良价, 807–869), I had a chance to listen to the poem composed by Tōzan Zen master when he had attained enlightenment.” That poem was pretty famous. “He said, ‘You shouldn’t search for it through others...’” – “others” means outside. “‘If you do, the truth will become more remote from you. But when alone I proceed through myself, everywhere I go I meet him. Now he is not other than myself, yet I am not he. Only if you understand this will you identify with the *tathātā*.’” *Tathātā* means the truth. 
 
-So you shouldn’t search it through others; you never find something true from outside. But on the other hand you cannot find it inside opposed to outside. Because the truth is always omnipresent. So not inside, not outside. Not somewhere. Omnipresent. So if you open your eyes, it’s there. If you don’t, no. It’s not there. If you become Buddha, you can accept all things as a buddha. But if you don’t, if you don’t see everything as a buddha you cannot accept everything as a buddha. 
+So you shouldn’t search for it through others; you never find something true from outside. But on the other hand you cannot find it inside opposed to outside. Because the truth is always omnipresent. So not inside, not outside. Not somewhere. Omnipresent. If you open your eyes, it’s there. If you don’t, no, it’s not there. If you become Buddha, you can accept all things as a buddha. But if you don’t see everything as a buddha you cannot accept everything as a buddha. 
 
-So that’s why he said, “You shouldn’t search it through others. If you do, the truth will become more remote from you.” It’s very natural, because [if you try to seek the truth] in a dualistic way, you cannot get it. 
+So that’s why he said, “You shouldn’t search for it through others. If you do, the truth will become more remote from you.” It’s very natural, because [if you try to seek the truth in a dualistic way], you cannot get it. 
 
-“But when alone I proceed through myself”: alone means I just stand up just like a tree on the mountain, covered with snow, and the severe weather. Just stand up straight there. That [is the meaning of] alone. “When alone I proceed through myself” – well, who stands up? The tree itself. At that time, the tree stands up? No, the tree stands up with the weather, and mountains, and snow. But snow, weather, sky, clouds are not different from the trees who stands up straight there. Exactly the same. 
+“But when alone I proceed through myself”: “alone” means I just stand up just like a tree on the mountain, covered with snow, and the severe weather. Just stand up straight there. That [is the meaning of] alone. “When alone I proceed through myself” – well, who stands up? The tree itself. At that time, the tree stands up? No, the tree stands up with the weather, and mountains, and snow. But snow, weather, sky, clouds are not different from the tree who stands up straight there. Exactly the same. So, “when alone I proceed through myself, everywhere I go I meet him.” Very naturally, there is the truth. There is a big tortoise. 
 
-So, “when alone I proceed through myself, everywhere I go I meet him.” Very naturally, there is the truth. There is a big tortoise. 
+[...] A tree just standing up straight in the mountain is a rhythm of universal life. So, it’s me. It’s tree. Truth is tree. Tree is a truth, truth is a tree. 
 
-[...] So exactly just standing up is just a tree, a tree just standing up straight in the mountain is a rhythm of universal life. So, it’s me. It’s tree. Truth is tree. Tree is a truth, truth is a tree. So everywhere I go I meet him.
+So “everywhere I go I meet him...” “Now he is not other than myself, but he is completely with me, yet I am not he.” But when I analyze, when I think of it, he is not me, because he doesn’t have particularly his own form or color or smell. It is just something omnipresent. But it’s there. That’s why here it says, “yet I am not he.” But he is with me. Only not with me, he is exactly me. 
 
-“Now he is not other than myself, but he is completely with me, yet I am not he.” But when I analyze, when I think of it, he is not me, because he doesn’t have particularly his own form or color or smell. It is just something omnipresent. But it’s there. That’s why here it says, “yet I am not he.” But he is with me. Only not with me, he is exactly me. “Only if you understand this will you identify with *tathātā*.” *Tathātā*, that is truth. That is exactly truth. 
+“Only if you understand this will you identify with *tathātā*.” *Tathātā*, that is truth. That is exactly truth. 
 
 So Seppō Zen Master was very impressed by this poem, so he said [it] to Gānto like this. 
 
-And then Gānto says, “Oh, it is not your stories, it is others’ stories. Depending on the others’ poem, enlightenment. It’s not yours.” So Gānto again took away his experience of enlightenment. 
+And then Gānto said, “Oh, it is not your story, it is others’ story. Depending on the others’ poem, enlightenment. It’s not yours.” So Gānto again took away his experience of enlightenment. 
 
-Next Seppō says, “Then finally I went to see Tokusan Zen Master” – who was Seppō’s teacher and also Gānto’s teacher – “and practiced over there for many years. And I asked Tokusan Zen Master, ‘Can I have a chance to attain enlightenment, even like me?’ So Tokusan Zen Master immediately took a stick gave a big blow, several times. And then Seppō says, “I feel good!” *[Laughter.]* I feel good, just like water washing running away from a bottomless bucket. You know, just *boom*, like this.” So he felt good. 
+Next Seppō said, “Then finally I went to see Tokusan Zen Master” – who was Seppō’s teacher and also Gānto’s teacher – “and practiced over there for many years. And I asked Tokusan Zen Master, ‘Can I have a chance to attain enlightenment, even [someone] like me?’ So Tokusan Zen Master immediately took a stick and gave a big blow, several times. And then Seppō said, “I feel good!” *[Laughter.]* I feel good, just like water running away from a bottomless bucket. You know, just *boom*, like this.” So he felt good. 
 
 And then Gānto says... *[he chuckles]*, “Whatever it is you experience, it is a delusion if it is coming through six senses.” It’s a delusion. Completely he took away that enlightenment too. 
 
 So Seppō was really wanting to cry. He didn’t know what to do. 
 
-Well, I understand Seppō’s feeling at that time. Completely he was crushed. And then he really, well, kind of a confession, okay? Confession, because he didn’t know. He really believed in his experience, because they were very important for him. So he said to Gānto like a confession, in front of Gānto, saying, “What shall I do from now on?” He’s kind of crying. His mind is really crying. “So what should I do from now on?” 
+Well, I understand Seppō’s feeling at that time. Completely he was crushed. And then he really, well, kind of a confession, okay? Confession, because he didn’t know. He really believed in his experiences, because they were very important for him. So he said like a confession in front of Gānto, saying, “What shall I do from now on?” He’s kind of crying; his mind is really crying. “So what should I do from now on?” 
 
-So Gānto says, “From now on, if you want to guide all sentient beings, if you want to [be a] great teacher for all sentient beings, from now on you should say something from your heart, the bottom of your heart.” And immediately Seppō really attained enlightenment.
+So Gānto says, “From now on, if you want to guide all sentient beings, if you want to [be a] great teacher for all sentient beings, from now on you should say something from the bottom of your heart.” And immediately Seppō really attained enlightenment.
 
 From your heart. Not something borrowing the words from others. Not something from the human six senses.
 
-So completely, what is enlightenment? What is Buddha? 
-
-Buddha is something you have to express, you have to say, you have to demonstrate Buddha through your body and mind. So Buddha is not something from a teacher. 
+So completely, what is enlightenment? What is Buddha? Buddha is something you have to express, you have to say, you have to demonstrate Buddha through your body and mind. So Buddha is not something from a teacher. 
 
 That’s interesting. So nothing. Then completely Seppō realized, because Gānto took away all careers which Seppō had had. So he was very impressed this one. 
 
@@ -182,11 +174,11 @@ So that is, here the note says,
 
 > He cuts off the essential crossing place and doesn’t let profane or holy pass.
 
-Well, whatever [it is]. If you attain enlightenment, if you experience something, if you feel good through the six senses, you really want to say this is holiness, holy spiritual experience. That is not exactly, because your life is completely tied up with this, so you cannot open yourself. You cannot be free from. The important point is, in spiritual life, you must be free from beginning to end. Whatever happens, you must be [free].  
+Well, whatever [it is]. If you attain enlightenment, if you experience something, if you feel good through the six senses, you really want to say this is holiness, a holy spiritual experience. [But it] is not exactly, because your life is completely tied up with this, so you cannot open yourself, you cannot be free from. The important point is, in spiritual life, you must be free from beginning to end. Whatever happens, you must be [free].
 
 So that’s [why] the note says, “He cuts off the essential crossing place.” Whatever you say – bodhi-mind, nirvana, enlightenment, buddhas – whatever you say, holy or profane – that is nothing but to set up, establish the bottom of the bucket. 
 
-That’s why then Joshu Zen Master is always hooking the giant tortoise, without looking around, [among] crocodiles and hippopotamus and big whales and whatever. Never. Just [...] huge. 
+That’s why then Joshu Zen Master is always hooking the giant tortoise, without looking around, [among] crocodiles and hippopotamus and big whales and whatever. Never. Just [the big one], huge. 
 
 #### 36:16
 
