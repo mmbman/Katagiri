@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross
 ---
 ## January 22, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -332,4 +332,4 @@ But emotions, our human bodies, or our karmic life doesn’t accept. We don’t 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
