@@ -3,11 +3,11 @@ title: "Blue Cliff Record Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross
 ---
 ## January 21, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-01-22-Blue-Cliff-Record-Case-52-Talk-2) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Summary
 
-Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. Related to this, he comments on Zen Master Dogen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
+Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. Related to this, he comments on Zen Master Dōgen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
 
 ### Transcript
 
@@ -363,4 +363,4 @@ So he uses just a simple word, pointing out everyday life. But this is a great i
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2) | [Next](1984-01-22-Blue-Cliff-Record-Case-52-Talk-2) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)

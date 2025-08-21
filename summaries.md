@@ -382,11 +382,17 @@ Summary not yet available.
 
 #####  [*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 2](1984-01-18-Blue-Cliff-Record-Case-51-Talk-2)
 
-Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. Related to this, he comments on Zen Master Dogen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
+Summary not yet available.
 
 <br/>
 
 ##### [*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1)
+
+Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. Related to this, he comments on Zen Master Dōgen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
+
+<br/>
+
+##### [*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 2](1984-01-22-Blue-Cliff-Record-Case-52-Talk-2)
 
 Summary not yet available.
 

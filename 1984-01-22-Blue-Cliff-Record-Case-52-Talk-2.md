@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross
 
 ### Transcript
 
-<p align="center"><b>This transcript is in rough draft stage.</b></p>
+<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="" target="_blank">Listen to this talk</a>
@@ -28,7 +28,7 @@ Let’s read the verse to this case:
 
 > He doesn’t set up the solitary and dangerous; in that his path is lofty.  
 
-“Solitary and dangerous” means a skillful method of the teacher coming from his own peculiarities, which no one can imitate. So that in this case from this point his skillful method is very solitary. No one can imitate it. On the other hand, “it’s dangerous” means it’s very severe, and very sharp. His words, his verbal explanation and his acts are very sharp, piercing people’s heart directly. So from this point it is called “dangerous,” but it’s not the usual meaning of danger.
+“Solitary and dangerous” means a skillful method of a Zen teacher coming from his own peculiarities, which no one can imitate. So that in this case from this point his skillful method is very solitary; no one can imitate it. On the other hand, “it’s dangerous” means it’s very severe and very sharp; his words, his verbal explanation and his acts are very sharp, piercing people’s heart directly. So from this point it is called “dangerous,” but it’s not the usual meaning of danger.
 
 But in this case Joshu, Chao Cho, doesn’t use such a skillful method. So that’s why first it says, “he doesn’t set up solitary and dangerous in that his path is lofty.”
 
@@ -38,13 +38,13 @@ In the commentary it says,
 
 Hsueh Tou is the Zen master who composed this verse. 
 
-Usually we want very naturally to set up something mysterious and mystical, and, what would you say, very smart and sharp. We want to show ourselves how smart we are, how mysterious our religious life is. So it’s very common. But for this, Joshu Zen master doesn’t show [us] in that way. So he just uses regular usual words and the usual attitude. He is just like a fool, an idiot.
+Usually we want very naturally to set up something mysterious and mystical, and, what would you say, very smart and sharp. We want to show ourselves how smart we are, how mysterious our religious life is. So it’s very common. But for this, Joshu Zen master doesn’t show [us] in that way. He just uses regular usual words and the usual attitude. He is “just like a fool, an idiot.”
 
 So that’s why the commentary says, “Chou doesn’t establish mysteries or marvels, and doesn’t set up the solitary and dangerous...” 
 
 > He isn’t like those in various places who say that only breaking up empty space, smashing Mount Sumeru to bits, producing dust on the bottom of the ocean and pounding waves on Mount Sumeru can be called the Path of the Patriarchal Teachers.
 
-That is a very common way of teaching which occurs in the *Blue Cliff Record*... particularly in the *Blue Cliff Record*, it’s really fancy words and methods there. But Joshu didn’t, because he became an abbot at 100 years old, and it says he lived to 119. So he was really soft and gentle – but waiting behind the softness and kindness, there is a really lofty personality there, and very sharp, and very instructive. 
+That is a very common way of teaching which occurs in the *Blue Cliff Record*... particularly in the *Blue Cliff Record*, it’s really fancy words and methods there. But Joshu didn’t, because he became an abbot at 100 years old, and it says he lived to 119. So he was really soft and gentle – but behind the softness and kindness, there is a really lofty personality there, and very sharp, and very instructive. 
 
 > Thus Hsueh Tou says, “He doesn’t set up the solitary and dangerous; in that his path is lofty.” Others may tower up like ten-mile-high walls to display the extraordinary spiritual effects of the Buddha Dharma...
 
@@ -254,59 +254,49 @@ So that is simplicity. It’s really simplicity. Because we have to just stand u
 
 But it’s pretty hard just standing up in the mountain, because around the trees there are severe weather, and snow, and lots of criticism there, and give and take, pros and cons, and war and peace, and justice, and many things around. But accepting all things, nevertheless, the tree is always aiming at the huge tortoise. Without looking around [at the] small stuff and the big stuff – whale, and the hippopotamus, et cetera. Snakes and frogs... anyway the tree never looks around. Just standing up there, in sunny days and severe winter weather. That’s why if you look at it, it’s very beautiful. Very exquisite, which is unexplainable. Because tree is tree, but behind the tree, the whole huge world is alive within the tree. 
 
-So that is the simplicity. Simplicity is not [an] egoistic way of life. Simplicity is you must [be] you as you are, simultaneously, that way of life is completely backed by the rhythm of universal life. That’s why it is very simple and exquisite, very exquisite. Because that way of life which you do is very precious, having a very precious quality. 
+So that is the simplicity. Simplicity is not [an] egoistic way of life. Simplicity is you must [be] you as you are, simultaneously that way of life is completely backed by the rhythm of universal life. That’s why it is very simple and exquisite, very exquisite. Because that way of life which you do is very precious, having a very precious quality. 
 
-So somebody who has eyes can see that, but people who don’t have their own eyes cannot see it. That’s all. But he himself, whatever happens, whoever looks at you, this person is always standing up straight, under all circumstances, without looking around so much, anyway, and [facing] everyday life. That is called simplicity. 
+Somebody who has eyes can see that, but people who don’t have their own eyes cannot see it. That’s all. But he himself, whatever happens, whoever looks at you, this person is always standing up straight, under all circumstances, without looking around so much, anyway, and [facing] everyday life. That is called simplicity. 
 
 So finally she comes back to simplicity. She doesn’t know what simplicity is. So she felt a little bit what simplicity was through sitting. It’s very true. 
 
 So that’s what I want to tell you. Simplicity is completely no bottom of the bucket. No bottom of personality, no bottom of capability you have. That is simplicity. Very simple. If you’re stupid, you have to take best care of yourself as stupid, anyway. *[Laughter.]* But if you look around [...] immediately criticism comes up and you put yourself down by yourself. 
 
-So, Joshu said, what is the Joshu, what is the stone bridge? That stone bridge is Buddha. For Joshu, Chao Chou, Buddha as a stone bridge is not something fancy. You can experience so-called spiritual life. 
+So what is the Joshu, what is the stone bridge? Joshu said that stone bridge is Buddha. For Joshu, Chao Chou, Buddha as a stone bridge is not something fancy. You can experience so-called spiritual life. 
 
-Well, that is alright. But it is nothing but the log bridge. Appearing; next moment disappears. Then you come back to the daily routines, daily life. In daily life many, many beings, many occurrences there. So it’s pretty easy for us to look around. 
+Well, that is alright. But it is nothing but the log bridge appearing; next moment disappears. Then you come back to the daily routines, daily life. In daily life [there are] many, many beings, many occurrences there. So it’s pretty easy for us to look around. But the important point is wherever you may go, there is always the big tortoise, so-called buddha-nature or truth. 
 
-But the important point is wherever you ma go, there is always the big tortoise, so-called buddha-nature or truth. 
+So that is [a] simple way of life. Just standing. Under each circumstance of pain, suffering, *gassho*, washing your face, we have to just stand up straight, and without looking around so much. And that is called simplicity. 
 
-So that is [a] simple way of life. Just standing. Under each circumstances of pain, suffering, *gassho*, washing your face, we have to just stand up straight, and without looking around so much. And that is called simplicity. 
+And this simplicity is not something you can get in your hand and evaluate and judge it, but this simplicity is something you have to raise. You have to raise it. You have to raise it thousands, hundred of thousands, millions, myriad times in your daily life. This moment, you have to just raise this simplicity. In the sitting, in the washing your face; next moment: where is the truth? You don’t know. But “it’s omnipresent” means next moment it’s there. So all you have to do is raise, you have to raise this simplicity of life. 
 
-And this simplicity is not something you can get in your hand and evaluate and judge it. But this simplicity is something you have to raise. You have to raise it. You have to raise it, what would you say, thousands, hundred of thousands, millions, myriad times in your daily life. This moment, you have to just raise this simplicity. In the sitting, in the washing your face, next moment: where is the truth? You don’t know. But “it’s omnipresent” means next moment it’s there. So all you have to do is raise, you have to raise this simplicity of life. 
-
-That is called bodhi-mind, the way-seeking mind. 
-
-If you can raise this bodhi-mind from moment to moment, a hundred times, a thousand times, myriad times, you become a bodhisattva. That is called bodhisattva. 
+That is called *bodhi-mind*, the way-seeking mind. If you can raise this bodhi-mind from moment to moment, a hundred times, a thousand times, myriad times, you become a bodhisattva. That is called bodhisattva. 
 
 But we don’t see this, because we are always seeking for a certain result of experience. 
 
-Result is fine, but result comes from *later*. If you stand up, if you take care of [life] like this, and then result comes. But we don’t do it. We always expect result *first*. Before you do. *[He chuckles.]* That’s completely reversed. 
+Result is fine, but result comes from *later*. If you stand up, if you take care of [life] like this, and then result comes. But we don’t do it. We always expect result *first*; before you do. *[He chuckles.]* That’s completely reversed. 
 
 #### 59:50
 
 For instance, in Japan, every year, school teachers and company workers have a kind of yearly custom – to have a strike. *[Laughter.]* To raise the money, to raise the salary wages. 
 
-That’s fine! But, I don’t know [about] this one. Of course you cannot ignore how much you can get, how much wages you can have. Well before you work, you should negotiate with the companies – of course, you have to do. But every year, yearly you have a strike like this. And what is work? What is labor? Labor is completely pushed away, and thinking money. You know? 
+That’s fine! But, I don’t know [about] this one. Of course you cannot ignore how much you can get, how much wages you can have. Well, before you work, you should negotiate with the companies – of course, you have to do. But every year, yearly you have a strike like this. And what is work? What is labor? Labor is completely pushed away, and thinking money. You know? 
 
 So in order to [get] the money, you work. You are enslaved by money, and *then* you work. That is the opposite! You have to work. If you have to work, you have to take best care of the work itself, and then salary wages come naturally. But we don’t do it! Reality will be reversed. We always do something like this. 
 
 So if you emphasize so much a strike or position of the money, so very naturally your life becomes reversed. You don’t see something real – the big tortoise. 
 
-Well, the same applies to the United States. But Americans strike very calm and gentle *[he laughs]* without screaming, just carrying a [sign] and just walk in front of the department and bus depots... Very quiet. You are very gentlemanly. Japanese strike are very hostile. Very hostile; fighting always. Screaming. You would be the deaf, because it’s so noisy. 
+Well, the same applies to the United States. But Americans strike very calm and gentle *[he laughs]* without screaming, just carrying a [sign] and just walk in front of the department and bus depots... Very quiet. You are very gentlemanly. Japanese strike are very hostile. Very hostile; fighting always. Screaming. You would be deaf, because it’s so noisy. 
 
-In the [...] station, which is terminal station in Tokyo. [...] I went back last October. And then... you know former minister Tanaka? He got something, big money. You know that story. So he was in court, and finally the Japanese could see the result, what he had to do. And then next, the government always tried to commit communist, always emphasized he must be impeached from the cabinet, et cetera. So right in front of the station: big speakers. *Big* speakers. One, two, three cars with two big speakers, talking. It was rush hour time – many people there. *[He laughs.]* I just stood waiting for the bus. *[noise]* I became a deaf. When I came in the bus, my ears kind of, you know, the same problem as being on the plane? Plane going down to the land? Your ears funny. Just like this. So it’s really noisy. 
+In the [...] station, which is a terminal station in Tokyo. [...] I went back last October. And then... you know former minister Tanaka? He got something, big money; you know that story. So he was in court, and finally the Japanese could see the result, what he had to do. And then next, the government always tried to commit communist, always emphasized he must be impeached from the cabinet, et cetera. So right in front of the station: big speakers. *Big* speakers. One, two, three cars with two big speakers, talking. It was rush hour time – many people there. *[He laughs.]* I just stood waiting for the bus. *[noise]* I became a deaf. When I came in the bus, my ears kind of, you know, the same problem as being on the plane going down to the land? Your ears funny. Just like this. So it’s really noisy. 
 
-This kind of not big areas. Japan was very crowded. Buildings and people. 
-
-Well, if people talk through the big speakers here, it doesn’t bother you so much, because it’s huge. But Japan is very crowded. Tiny – nevertheless buildings, people, cars. Don’t expect Japan [to be as beautiful as] your imagination. *[Laughter.]*
-
-I’m not criticising Japan, but you should know the real Japan. *[Laughter.]*
+This kind of not big areas. Japan was very crowded; buildings and people. Well, if people talk through the big speakers here, it doesn’t bother you so much, because it’s huge. But Japan is very crowded. Tiny; nevertheless [there are many] buildings, people, cars. Don’t expect Japan [to be as beautiful as] your imagination. *[Laughter.]* I’m not criticizing Japan, but you should know the real Japan. *[Laughter.]*
 
 Do you have some questions? 
 
 #### 1:05:35
 
-Oh. This morning, before the breakfast, I told you [about] one of the customs in monastery. But not in the monastery; even out of the monastery. That is [a] way of becoming intimate with the teacher and disciple. At New Year, we offer a set of two pieces of mochi, round mochi, in the shrine, on the altar, and perform the three morning services. Praying for his health and also his [dharma]. So even though you are not in the monastery, we do always, while his teacher or her teacher is alive. 
-
-That’s a very good custom for us. 
+Oh. This morning, before the breakfast, I told you [about] one of the customs in monastery – but not in the monastery, even out of the monastery. That is [a] way of becoming intimate with the teacher and disciple. At New Year, we offer a set of two pieces of mochi, round mochi, in the shrine, on the altar, and perform the three morning services: praying for his health and also his [dharma]. So even though you are not in the monastery, we do always, while his teacher or her teacher is alive. That’s a very good custom for us. 
 
 **Question:** Hojo-san, when you say his *dharma*, do you mean the teaching, or the ...
 
@@ -316,33 +306,33 @@ That’s a very good custom for us.
 
 **Katagiri Roshi:** Yes, *[unintelligible]*.
 
-Because if you become a priest, the most important priest task is to continue to carry the dharma lineage, without cutting off, without disconnect. So that is a main task of a priest’s life. Forever, priest’s task is to try to convey or transmit the dharma lineage. Dharma lineage is to carry the sublimity of existence. Emphasizing the sublimity of existence, handed down from Buddha Shakyamuni to Dōgen and to your teachers, et cetera. So we have to carry this. We have to continue and transmit to the next generation. That is the dharma. 
+Because if you become a priest, the most important priest task is to continue to carry the dharma lineage, without cutting off, without disconnect. That is a main task of a priest’s life. Forever, priest’s task is to try to convey or transmit the dharma lineage. Dharma lineage is to carry the sublimity of existence; emphasizing the sublimity of existence, handed down from Buddha Shakyamuni to Dōgen and to your teachers, et cetera. So we have to carry this. We have to continue and transmit to the next generation. That is the dharma. 
 
 So when we perform the services for three days at New Year, praying for that means you pray for the teacher’s health, and also the transmitting the teacher’s dharma to the next generation is to pray for your health simultaneously. And also to pray for your great inspiration for carrying dharmas to the next generation. 
 
-I told you before, if you become a Buddha, you can see everything [...] as a Buddha. But if you cannot, it is very difficult to see everything [as a] Buddha. So that’s why while the teacher is alive, you don’t understand so well what the Buddha taught. Because you’re not mature, so sometimes very complain, very often. In my case, I very often complained, and was upset and criticizing the teacher. But after his death, and simultaneously my life was getting mature, then I understand. At that time it’s too late, because the teacher died. 
+I told you before, if you become a buddha, you can see everything [...] as a buddha. But if you cannot, it is very difficult to see everything [as a] buddha. So that’s why while the teacher is alive, you don’t understand so well what the Buddha taught. Because you’re not mature, so sometimes [you really] complain, very often. In my case, I very often complained, and was upset and criticizing the teacher. But after his death, and simultaneously my life was getting mature, then I understood. 
 
-That’s one of the regrets that human beings possess very often. 
+At that time it’s too late, because the teacher died. That’s one of the regrets that human beings possess very often. 
 
 So when you want to see, at that time, no one can see. When you want to practice from your heart, at that time, no opportunity to practice from your heart. 
 
-You know, some people say, “when I have time I want to practice.” Or, “when I feel good from zazen and Zen teaching, then I want to practice.” Well, it’s alright if you think so, but it’s pretty difficult to get exactly mature opportunity to let you practice exactly. Let’s read the *Record of Things Heard*. Dōgen Zenji mentions about that point too. 
+You know, some people say, “when I have time I want to practice.” Or, “when I feel good from zazen and Zen teaching, then I want to practice.” Well, it’s alright if you think so, but it’s pretty difficult to get exactly mature opportunity to let you practice exactly. Let’s read the *Record of Things Heard*; Dōgen Zenji talks about that point too. 
 
-So even though you don’t feel this is not real opportunity, but if the opportunity is here, practically, well, let’s jump in. That is pretty good for us. 
+So even if you feel this is not a real opportunity, if the opportunity is here, practically, well, let’s jump in. That is pretty good for us. 
 
 #### 1:11:36
 
-**Question:** Hojo-san, I read that Joshu Zen Master’s lineage died out only after a couple more people, in his lineage. Do you know if that’s right? I think it’s in that back of that book.
+**Question:** Hojo-san, I read that Joshu Zen Master’s lineage died out only after a couple more people in his lineage. Do you know if that’s right? I think it’s in that back of that book.
 
-**Katagiri Roshi:** Mm-hmm. Joshu’s lineage is Rinzai line, and [Segi] Nangaku Ejo (Nanyue Huairang), and you know Baso Zen Master (Mazu Daoyi). So Zen Master has many disciples, among them there are three famous Zen Masters. One is Hyakujo [Nehan] (Baizhang Niepan), who established first the regulation of monastic life in China. And next is Kisu Zen Master (Guizong Zhichang), who flourished [in] the 8th century, who is also pretty famous for his very strict way to teach. And the third one was Nansen Zen Master. You know pretty well, Nansen was the Zen teacher who cut off the cat’s head in order to cut off the delusion of the monks, and thinking of whether the cat has a Buddha nature or not. Do you know that? 
+**Katagiri Roshi:** Mm-hmm. Joshu’s lineage is Rinzai line, and [Segi] Nangaku Ejo (Nanyue Huairang), and you know Baso Zen Master (Mazu Daoyi). So Zen Master has many disciples, among them there are three famous Zen Masters. One is Hyakujo [Nehan] (Baizhang Niepan), who established first the regulation of monastic life in China. And next is Kisu Zen Master (Guizong Zhichang), who flourished [in] the 8th century, who is also pretty famous for his very strict way to teach. And the third one was Nansen Zen Master. You know pretty well, Nansen was the Zen teacher who cut off the cat’s head in order to cut off the delusion of the monks, and thinking of whether the cat has a buddha-nature or not. Do you know that? Well, that’s three Zen Masters. And then Joshu Zen Master was a disciple of this Nansen. 
 
-Well, that’s three Zen Masters. And then Joshu Zen Master was a disciple of this Nansen. 
+So Joshu really practiced very hard, I can imagine, because Nansen had very much his own peculiar way – very peculiar, strict way. So Joshu was very [suffering]. For instance, if you read *Mumonkan*, *Gateless Gate*, Number 19, there is a koan. Joshu Zen Master asked Nansen about the meaning of the Way, the Buddha Way. That means what is the truth, the Buddha Way. And then Nansen says, the daily life, daily mind. He said everyday mind; so [Joshu] asked what [is] everyday mind, always. So in this koan of the *Gateless Gate*, you can read what is everyday mind. So Joshu practiced very hard, thinking about everyday mind, because he became a monk at 60 years old. He cannot have any energy to [go] far away, far out; or he didn’t have any energy to get a certain fantastic religious experience, and thinking something else apart from his life. His life was really rooted in everyday life. So that’s why he anyway asked these kind of questions. 
 
-So Joshu really practiced very hard, I can imagine, because Nansen had very much his own peculiar way – very peculiar, strict way. So Joshu was very [suffering]. For instance, if you read *Mumonkan*, *Gateless Gate*, Number 19, there is a koan. Joshu Zen Master asked Nansen about the meaning of the Way, the Buddha Way. That means what is the truth, the Buddha Way. And then Nansen says, the daily life, daily mind. He said everyday mind. So he asked what [is] everyday mind, always. So in this koan of the *Gateless Gate*, you can read what is everyday mind. So Joshu, anyway, practiced very hard, thinking about everyday mind, because he became a monk at 60 years old. He cannot have any energy to [go] far away, far out. Or he didn’t have any energy to get a certain fantastic religious experience, and thinking something else apart from his life. His life was really rooted in everyday life. So that’s why he anyway asked these kind of questions. 
+So what is the Way? What is the Buddha’s teaching? What is the truth? Truth is everyday mind. That is a really difficult koan for us. But it’s pretty easy, [a] simple, simple way – but we don’t understand that one. 
 
-So what is the Way? What is the Buddha’s teaching? What is the truth? Truth is everyday mind. That is a really difficult koan for us. But it’s pretty easy, simple, simple way – but we don’t understand that one. 
+That’s why Dōgen Zenji also [talked] about everyday mind. So-called, “everyday mind means everyday mind throughout this world and the other world.” “When everyday mind comes, the whole world comes. When everyday mind goes, the whole world goes.” So that means when you die, the whole world dies. When you are born in this world, the whole world becomes born. Just like this. This is everyday mind. That’s quite different from what you have thought, you know? Everyday mind is very calm, smooth stream of life. Not very fancy. Not up and down. Very stable, secure, always, under every circumstance. 
 
-That’s why Dōgen Zenji also [talked] about everyday mind. So-called, “everyday mind means everyday mind throughout this world and the other world.” “When everyday mind comes, the whole world comes. When everyday mind goes, the whole world goes.” So that means when you die, the whole world dies. When you are born in this world, the whole world becomes born. Just like this. This is everyday mind. That’s quite different from what you have thought, you know? Everyday mind is very calm, smooth stream of life. Not very fancy. Not up and down. Very stable, secure, always. Under every circumstance. Looking at the weather, severe winter. Well, severe winter is severe winter, so according to your emotion, you don’t like it. Well, that’s very common. But on the basis of these emotions, there is a very secure everyday mind. At that time you can accept severe winter as it really is, telling us [a] wonderful world, as a Buddha. But emotions, our human bodies, or our karmic life doesn’t accept. We don’t like it. So very naturally we are tossed away by this karmic life. That is a problem. That’s why we are constantly going away. But [...] wherever you may go, on the basis if there is a very secure and calm stream of life, you can accept severe weather as it is.
+Look at the weather, severe winter. Well, severe winter is severe winter, so according to your emotion, you don’t like it. That’s very common. But on the basis of these emotions, there is a very secure everyday mind. At that time you can accept severe winter as it really is, telling us [a] wonderful world, as a buddha. But emotions, our human bodies, or our karmic life doesn’t accept. We don’t like it. So very naturally we are tossed away by this karmic life. That is a problem. That’s why we are constantly going away. But [...] wherever you may go, on the basis if there is a very secure and calm stream of life, you can accept severe weather as it is.
 
 #### 1:18:09 end of recording
 
