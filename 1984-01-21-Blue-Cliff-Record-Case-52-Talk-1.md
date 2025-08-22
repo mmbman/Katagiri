@@ -127,11 +127,9 @@ The water is here, right now, right here, completely beyond your understanding i
 
 For instance, I tell you pretty often, a TV set is here. You don’t understand the TV set – but if a TV set is here, what do you do?
 
-Very naturally, you are [communicating with it]. Well, in many ways, people communicate with [it]:  “I don’t like a TV set” – this is also one of the communications you do. Or you say, “I like a TV set.” Or you say, “Mmm, no” – this is also one of the communications. And if you are really interested in it, next you have to push a button. Anyway, turn on the switch.
+Very naturally, you are [communicating with it]. Well, in many ways, people communicate with [it]:  “I don’t like a TV set” – this is also one of the communications you do. Or you say, “I like a TV set.” Or you say, “Mmm, no” – this is also one of the communications. And if you are really interested in it, next you have to push a button. Anyway, turn on the switch. This is communication. 
 
-This is communication. So if water is exactly right here, right now, you have to communicate. Because it is a part of your life.
-
-And also, if you try to communicate with water which exists right now, right here, that full presence of water is completely beyond your imagination, beyond the understanding of water in terms of chemistry.
+So if water is exactly right here, right now, you have to communicate, because it is a part of your life. And also, if you try to communicate with water which exists right now, right here, that full presence of water is completely beyond your imagination, beyond the understanding of water in terms of chemistry.
 
 In terms of chemistry, the water is drinkable. For this, water must be pure. Yes, it is – H2O, it’s drinkable. It must be drinkable. But in reality, the full presence of water tells you sometimes it’s not pure, but it’s drinkable, it still supports your life, anyway. 
 
