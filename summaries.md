@@ -388,7 +388,7 @@ Summary not yet available.
 
 ##### [*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1)
 
-Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. In relation to this, he comments on Zen Master Dōgen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
+Katagiri Roshi discusses stone bridges, single log bridges, and bridges that let everything cross. In relation to this he comments on Zen Master Dōgen’s *Yuibutsu yobutsu*, “Only Buddha and Buddha”.
 
 <br/>
 
