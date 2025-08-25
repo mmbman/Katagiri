@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 3: One Mind and Its Two Aspects"
 ---
 ## April 6, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-04-20-Awakening-of-Faith-Talk-5) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Summary
 
@@ -19,7 +19,7 @@ Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter 
 
 #### 0:00
 
-I want to get into Part Three, omitting Part One and Part Two. Because... well, sometimes I will explain Part One and Part Two, [but] particularly Part Three is very important: “Interpretation.” This is the main subject. More than half of this book is spent explaining the contents of this discourse. So I want to start to study from Part Three, “Interpretation.” This is a very logical explanation of Buddhism.
+I want to get into Part Three, omitting Part One and Part Two. Because... well, sometimes I will explain Part One and Part Two, [but] particularly Part Three is very important: “Interpretation”. This is the main subject. More than half of this book is spent explaining the contents of this discourse. So I want to start to study from Part Three, “Interpretation”. This is a very logical explanation of Buddhism.
 
 > Part Three  
 > Interpretation  
@@ -39,9 +39,9 @@ So the interpretation is divided into three chapters. One is “Revelation of th
 
 “Revelation of True Meaning” means, [logically] speaking, in this chapter, this author tried to explain the meaning of Mahayana teaching. I told you, Mahayana means *universal dynamic working*; this is Mahayana. [It’s] not Mahayana opposed to Hinayana. So the title of this book is *Awakening of Faith*, but strictly speaking, this is the awakening of *Mahayana* faith. 
 
-*Mahayana faith*, not faith *in* Mahayana. The original text says *Mahayana faith* in the Outline. [...] Here it says “The Awakening of Faith,” but sometimes in this translation it says “The Awakening of Faith in Mahayana.” *[Katagiri Roshi makes a sound that sounds a lot like “bleh,” but could be “but.”]* [But] it's not *in* Mahayana, [it’s] *Mahayana faith*, okay? Because faith must be dynamic working, reaching to the limits of phenomena, the limits of human knowledge. At that time, you can really touch the core of existence. So, [...] at that time it is called *dynamic working*, *truth*. 
+*Mahayana faith*, not faith *in* Mahayana. The original text says *Mahayana faith* in the Outline. [...] Here it says “The Awakening of Faith,” but sometimes in this translation it says “The Awakening of Faith in Mahayana.” *[Katagiri Roshi makes a noise that sounds a lot like “bleh,” but could be “but.”]* [But] it's not *in* Mahayana, [it’s] *Mahayana faith*, okay? Because faith must be dynamic working, reaching to the limits of phenomena, the limits of human knowledge. At that time, you can really touch the core of existence. So, [...] at that time it is called *dynamic working*, *truth*. 
 
-So [...] “Revelation of True Meaning” is [that] they try to explain the *real* meaning of Mahayana teaching. Or concretely speaking, particularly [...] in terms of our life, “revelation of the true meaning means” [...] what is the overall picture of your life. Simply speaking, you say reality: *real* reality. Real reality, the overall picture of reality; what is the overall picture of reality you are present in from moment to moment. That is “Revelation of *True* Meaning.” So this is the title of Chapter One.
+So [...] “Revelation of True Meaning” is [that] they try to explain the *real* meaning of Mahayana teaching. Or concretely speaking, particularly [...] in terms of our life, “revelation of the true meaning” means [...] what is the overall picture of your life. Simply speaking, you say reality: *real* reality. Real reality, the overall picture of reality; what is the overall picture of reality you are present in from moment to moment. That is “Revelation of *True* Meaning.” So this is the title of Chapter One.
 
 And then, this Chapter One is also divided into two sections. [The first] is called [...] “One Mind and Its Two Aspects.”
 
@@ -97,7 +97,7 @@ So-called *truth*...
 
 > ... and the other is the aspect of Mind in terms of phenomena.
 
-So, *phenomena* and *truth*: One-mind has two aspects. In other words, one piece of paper with two aspects: one is the absolute or truth, the other is phenomena. 
+So, *phenomena* and *truth*: one-mind has two aspects. In other words, one piece of paper with two aspects: one is the absolute or truth, the other is phenomena. 
 
 And also, 
 
@@ -125,7 +125,7 @@ That's why always there is a negative expression there: “no help,” “no lib
 
 *Nirvana* is final liberation, completely final liberation. So, [...] according to the universe, nirvana is kind of a black hole, you know? *[He chuckles.]* Enlightenment, delusions, sufferings, and pleasures: all stuff are completely sucked in and disappear. Nevertheless, you are really [working] there. 
 
-But if you experience nirvana, if you think [of] something like that, people are scared. If I say “nirvana is a black hole,” you are scared, *[he chuckles,]* you are afraid of that. But in terms of spiritual life, I don't think you disappear. You appear, *conspicuously*, more than before – very clearly. Your consciousness works very clearly, and you can act very clearly, stably. But no [perceptions], no ideas. Your everyday life really works. 
+But if you experience nirvana, if you think [of] something like that, people are scared. If I say “nirvana is a black hole,” you are scared, *[he chuckles,]* you are afraid of that. But in terms of spiritual life, I don't think you disappear. You appear *conspicuously*, more than before – very clearly. Your consciousness works very clearly, and you can act very clearly, stably. But no [perceptions], no ideas. Your everyday life really works. 
 
 So that's why [it says], “because these two aspects are mutually inclusive.”
 
@@ -143,11 +143,9 @@ This is a very important point. If you try to understand the people and things, 
 
 [...] And also... here it says, “[these] two aspects are mutually inclusive.” Well, temporarily I can say so, like this. [The] limits of suffering – limits of phenomena, the limits of knowledge, limits of pleasure, whatever you say – [the] limits of suffering is the beginning of *vastness*, the truth, exactly. The limits of suffering is the beginning of vastness or truth or one-mind, universe. So “limits of the suffering” means if you experience suffering through and through... [sometimes] you cannot cry; sometimes you can burst out laughing. *[He chuckles.]* Okay? So the limits of suffering is not suffering, completely not suffering. It's something else. So maybe laughing. And the limits of laughter becomes suffering, crying. Like this. Because the limits of joy is the beginning of vastness; because the end of the joy is completely extending everywhere, so that is vastness. That is called *beginning of the vastness*, so-called *truth*. 
 
-Everyone experiences this. For instance, in the 1960s and 70s in San Francisco, lots of things happened. I knew a couple of people who were really mental disordered. In a sense, one man suffered a lot. I don't know if he suffered in appropriate way or not, anyway, he suffered. And then several times he was in the hospital, and coming out, or getting in again, always back and forth, back and forth. And he seemed to be very sad. Very often, he cried. But when he was completely disordered, he became laughter. Completely he laughed. He didn't cry. 
+Everyone experiences this. For instance, in the 1960s and 70s in San Francisco, lots of things happened. I knew a couple of people who were really mental disordered. In a sense, one man suffered a lot. I don't know if he suffered in appropriate way or not, anyway, he suffered. And then several times he was in the hospital, and coming out, or getting in again, always back and forth, back and forth. And he seemed to be very sad. Very often, he cried. But when he was completely disordered, he became laughter. Completely he laughed. He didn't cry. Then that means he already [got] into [the] vastness of existence. But a point is: he didn't realize. He didn't realize vastness, or truth. He didn't realize the phenomenal world. He didn't realize end of the phenomenal world, end of the suffering, limits of suffering. He didn't realize. That is the point, alright? 
 
-Then that means he already [got] into [the] vastness of existence. But a point is: he didn't realize. He didn't realize vastness, or truth. He didn't realize the phenomenal world. He didn't realize end of the phenomenal world, end of the suffering, limits of suffering. He didn't realize. That is the point, alright? 
-
-That's why here it says we should *realize* this. When you view human life, the human world according to this teaching, and practice on an everyday basis, if you practice like this, very naturally, you can realize. You can realize, you can attain a certain stage of the spiritual life. At that time, [at the] end of the suffering, you can cry, [...] but [if you cry] through and through, completely cry, it turns into laughter – even though at that time you are not mentally disordered. Because you realize, you know pretty well, the relationship between the phenomenal world and the truth. 
+That's why here it says we should *realize* this. When you view human life, the human world according to this teaching, and practice on an everyday basis, if you practice like this, very naturally, you can realize. You can realize, you can attain a certain stage of the spiritual life. At that time, [at the] end of the suffering, you can cry, [...] but [if you cry] through and through, completely cry, it turns into laughter, even though at that time you are not mentally disordered. Because you realize, you know pretty well, the relationship between the phenomenal world and the truth. 
 
 In the Zen stories, I think [it was] Yakusan Zen Master... when Yakusan Zen Master looked at the moon at night, he became a great laughter on the top of the mountains, and that sound of laughter echoed... I don't know how many miles. *[He laughs.]* That story is really exaggerated... [...] Anyway, the sound of his laughter echoed 20 miles or 40 miles away. That expression is exaggerated, [but it] means the limit of laughter is completely beyond laughing, because it's penetrating all over. And the limit of suffering is completely vast, so you cannot cry.  
 
@@ -269,7 +267,7 @@ So that's why we don't discuss the one existence, one being, you know, as ontolo
 
 When my mother died, I was 14. I cried. I cried all night. All of a sudden: *[fwoosh]*, 180 degree turn over. [The] world becomes bright. That means [I realized my] mother [is] with me. But that is at the end of the crying. Crying, crying the whole night... and then something happened. So I didn't feel sad...
 
-So that means the limits of suffering, limits of crying and sadness, is not the sadness, it's vastness. So you don't know. So you experience something more than suffering or sadness. Do you understand what I mean? 
+So that means the limits of suffering, the limits of crying and sadness is not the sadness, it's vastness. So you don't know. So you experience something more than suffering or sadness. Do you understand what I mean? 
 
 For instance, zazen. Maybe some of you experience [that] you continue to do zazen with pain. Sometimes the pain is gone. I experience [that]. For a certain period of time, the pain is really awful. *[He laughs.]* But if you overcome this, pain is here, but pain doesn't bother you. 
 
@@ -323,7 +321,7 @@ Still a few minutes. Do you have a question?
 
 **Katagiri:** That's why I mentioned, no matter how often you experience that flash of lightning, through the nirvana or through zazen, anyway, you always offer that experience to the vastness of existence. That means that any kind of experience must be melted away in vastness. And then at that time, your experience [deepens]. 
 
-For instance, I mentioned the other [day] the three types of ripeness, according to the persimmon. The first stage of ripeness or maturity is the fruit on the branch. The first lightness or maturity is getting the degree from the university. That is the fruit on the branch. Next, the second maturity is [that] the persimmon must become ripe, become red. That means after graduation, you have to forget your titles and jump into human society, share your life with all sentient beings. At that time, you don't know what to do, because lots of cases come up. And then it is not mature yet. Through this real experience, the third maturity is the persimmon which is completely ripe and falls down to the ground and all the guts come out. That is called final maturity. This is called *liberation*, okay? *Freedom*. 
+For instance, I mentioned the other [day] the three types of ripeness, according to the persimmon. The first stage of ripeness or maturity is the fruit on the branch. The first [ripeness] or maturity is getting the degree from the university. That is the fruit on the branch. Next, the second maturity is [that] the persimmon must become ripe, become red. That means after graduation, you have to forget your titles and jump into human society, share your life with all sentient beings. At that time, you don't know what to do, because lots of cases come up. And then it is not mature yet. Through this real experience, the third maturity is the persimmon which is completely ripe and falls down to the ground and all the guts come out. That is called final maturity. This is called *liberation*, okay? *Freedom*. 
 
 That's why we say *nirvana*. That is *real* nirvana. *[He laughs.]* All the guts come out! So nothing to be arrogant, nothing to attach to. No corners. No corners of your body; all very smooth. That is [egolessness].
 
@@ -333,4 +331,4 @@ That's why we say *nirvana*. That is *real* nirvana. *[He laughs.]* All the guts
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-04-20-Awakening-of-Faith-Talk-5) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)

@@ -14,7 +14,7 @@ This series of transcripts is in draft stage.
 - *Talk 2 is missing*
 - [Talk 3: One Mind and Its Two Aspects](1984-04-06-Awakening-of-Faith-Talk-3)
 - *Talk 4 is missing*
-- Talk 5
+- [Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 - Talk 6
 - Talk 7
 - Talk 8

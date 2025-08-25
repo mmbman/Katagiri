@@ -167,7 +167,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 55 Talk 3
 
-1. *The Awakening of Faith* – Talk 5
+1. [*The Awakening of Faith* – Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 
 1. *Blue Cliff Record* Case 57 Talk 1
 

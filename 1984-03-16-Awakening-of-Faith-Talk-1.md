@@ -27,13 +27,13 @@ The title is *The Awakening of Faith*. But originally, I think I would like to s
 
 [In the word] *mahayana*, *maha* is “great,” *yana* is “vehicle.” In this book, *mahayana* is described [as] the essense of what is now, here, or the ultimate nature of what is here and now. Two meanings: one is what is the ultimate nature of what is here and now, and also the second meaning is “embracing.” So *maha* means the essence or ultimate nature of what is here, now, [and] that *maha* is to embrace all sentient beings. That is the meaning of *maha*. 
 
-And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle.” So *Maha-yana*, *yana* means “vehicle.” All sentient beings are carried on. That is *mahayana*. 
+And the function of the *maha* is a kind of vehicle to carry all sentient beings; that’s why we say “vehicle.” So *Maha-yana*, *yana* means “vehicle.” All sentient beings are carried on [it]. That is *mahayana*. 
 
 [...] 
 
 I have to say more [on] Mahayana *faith*, [as in] *Awakening of Faith*. This book is [a] teaching of Buddhist faith: not the usual Hinayana Buddhist faith, but Mahayana Buddhist faith. 
 
-Mahayana is kind of the essense of the Buddhist faith, or object of faith we believe in. Mahayana is the object of faith because *maha* means *essense of being* or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being which embraces all sentient beings and carries them. So it is very pure function. That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. 
+Mahayana is kind of the essense of the Buddhist faith, or [the] object of faith we believe in. Mahayana is the object of faith because *maha* means *essense of being* or ultimate nature of what is here and now, so that is really the object of our faith. But it is very pure, because the *maha* is the essense of being which embraces all sentient beings and carries them. So it is very pure function. That’s why the object of faith is something very pure, beyond human control, human speculation. Completely pure and clean. 
 
 That’s why the person who wants to believe in that – believe in this faith, believe in that object, [the] essense of being – very naturally [that] person becomes very pure. Because if you believe in or if you think of this essence of being, very naturally *you* must be pure and clean. [If] even for a moment you think so, you become very clean and pure. 
 
@@ -49,7 +49,7 @@ So first, let’s [look at] the structure of this book. This is a very common st
 
 The main subject consists of five parts:
 
-Part 1: The Reasons for Writing. So why did Ashvaghosha want to write this book? [There are] eight reasons there. 
+Part 1: The Reasons for Writing. Why did Ashvaghosha want to write this book? [There are] eight reasons there. 
 
 Part 2: Outline. [...] That outline is *one-mind*, its *two aspects*, its *three characteristics*. Already that outline is explanation of the Interpretation (Part 3), or Part 4 [and] Part 5. So Part 3, Part 4, and Part 5 explain about one-mind, its two aspects, and its three characteristics. 
 
@@ -59,9 +59,9 @@ So one-mind, and its *two aspects*. [...] In Part 3 there are [three chapters]. 
 
 *Three characteristics* means: one is *essence*, second is *attributes*, and [third is] *functioning*. So all sentient beings are based on three characteristics: one is *essence*, second is *attributes*, and third is *function*. 
 
-*Essence* is kind of a *discipline*. If all sentient beings exist in this world, there is a reason why [they] exist, so [there is a] discipline. Nothing exists at random with no reason. Nothing. There is always a reason why it exists. Even though evil or devils, right or wrong – and even if wind always breaks or destroys trees or houses, even if a tornado destroys human beings, houses, nature – still it has a reason why it exists. There is a discipline. So from this point, even the tornado is entitled to live in this world. You cannot destroy it. So that is a discipline. (*Transcriber’s Note:* Katagiri Roshi says ‘discipline’ here, but he might mean ‘principle’.)
+*Essence* is kind of a *discipline*. (*Transcriber’s Note:* Katagiri Roshi says ‘discipline’ here, but he might mean ‘principle’.) If all sentient beings exist in this world, there is a reason why [they] exist, so [there is a] discipline. Nothing exists at random with no reason. Nothing. There is always a reason why it exists. Even though evil or devils, right or wrong – and even if wind always breaks or destroys trees or houses, even if a tornado destroys human beings, houses, nature – still it has a reason why it exists. There is a discipline. So from this point, even the tornado is entitled to live in this world. You cannot destroy it. So that is a discipline. 
 
-And also, if all sentient beings exist in this world, it has always *attribute*. *Attribute* means *form*; it has always form, marks. And also, the marks [or] form are which people can see through the six senses. That is attributes. 
+And also, if all sentient beings exist in this world, it has always *attribute*. *Attribute* means *form*; it has always form, marks. And also, the marks [or] form are [that] which people can see through the six senses. That is attributes. 
 
 And also the *functioning*. So if all sentient beings have a form and marks, they always function. In many ways. 
 
@@ -87,11 +87,11 @@ Chapter 2: “The Causation of Evil Attachments.” Next it says, “the correct
 
 Chapter 3: “Analysis of the Types of Aspiration for Enlightenment.” So, how we practice. [...] This is [about] aspirations for enlightenment. So we should know what enlightenment is, [and how to accomplish [or] attain enlightenment. [...]
 
-Part 4: "On Faith.” So [Part 3,] “Interpretation,” is the most important [part] in this book. Very concretely it explains what [is the] meaning of the truth and how to practice, what are the obstacles for us in order to reach the truth. And Part 4 is our practice. Practice for [a] *determined* class of people – that means, who have *non-backsliding* faith, very strong faith. For those people, how we practice. But on the other hand, there are people who have *backsliding* faith, [an] “un-determined” class of people. So for those people, how we practice, how we awaken Mahayana faith. That is Part 4. 
+Part 4: "On Faith.” So [Part 3,] “Interpretation,” is the most important [part] in this book. Very concretely it explains what [is the] meaning of the truth and how to practice, what are the obstacles for us in order to reach the truth. And Part 4 is our practice. Practice for [a] *determined* class of people – that means, who have *non-backsliding* faith, very strong faith – for those people, how we practice. But on the other hand, there are people who have *backsliding* faith, [an] “un-determined” class of people – so for those people, how we practice, how we awaken Mahayana faith. That is Part 4. 
 
-And Part 5, we try to encourage all sentient beings also to reach Buddha’s way. So, *how*? So there is “Encouragement of Practice and the Benefit.” For instance, Buddha’s way, the essence of beings is very pure and clean, so even for a moment, let’s *think* of it. In other words, usually we say, “Let’s live in a positive way” – very often we say so. And buddha is very valuable and helpful for us. So let’s [...] have access to the Buddha’s teaching as best as we can. As much as possible, we try. Something like this. So that is encouragement. So, how we awaken Buddhist Mahayana faith. [...]
+And Part 5, we try to encourage all sentient beings also to reach Buddha’s way. So, *how*? So there is “Encouragement of Practice and the Benefit.” For instance, Buddha’s way, the essence of beings, is very pure and clean, so even for a moment, let’s *think* of it. In other words, usually we say, “Let’s live in a positive way” – very often we say so. And Buddha is very valuable and helpful for us. So let’s [...] have access to the Buddha’s teaching as best as we can. As much as possible, we try. Something like this. So that is encouragement. So, how we awaken Buddhist Mahayana faith. [...]
 
-The conclusion is the verse of *parinama*. *Parinama* is “dedication”. Dedication or *parinama* [is] *eko* in Japanese. *Eko* means turn the merits of your practice to another. If you do something, very naturally you can get a result, but that result is not something you should hold on to by yourself, you should *share it* with the people. So as best as we can, we should do something good every day, because if you do something good, that goodness guides you to have close access to the Buddha’s way, instead of doing something wrong. If you do something wrong, that activity keeps you away from the essence of being or ultimate nature of beings. Very naturally it keeps you away; [slipping] off, going far from that. That’s why, as best as we can, we should do something good. If we do something good, very naturally [...] you can find the way to have access to the Buddha Way. So that is *eko*, dedication; we say *parinama* [in Sanskrit]. 
+The conclusion is the verse of *parinama*. *Parinama* is “dedication.” Dedication or *parinama* [is] *eko* in Japanese. *Eko* means turn the merits of your practice to another. If you do something, very naturally you can get a result, but that result is not something you should hold on to by yourself, you should *share it* with the people. So as best as we can, we should do something good every day, because if you do something good, that goodness guides you to have close access to the Buddha’s way, instead of doing something wrong. If you do something wrong, that activity keeps you away from the essence of being or ultimate nature of beings. Very naturally it keeps you away; [slipping] off, going far from that. That’s why, as best as we can, we should do something good. If we do something good, very naturally [...] we can find the way to have access to the Buddha Way. So that is *eko*, dedication; we say *parinama* [in Sanskrit]. 
 
 So in Buddhism *parinama* is very beautiful human thought. We do something good and then we can get the result, but that result should be shared with all sentient beings. So very naturally, there is the practice of *egolessness*. If you do something good, very naturally people try to hold on. But, let it go. You can get enlightenment, but next, let it go. 
 
@@ -113,7 +113,7 @@ Do you have questions so far?
 
 **Person 2:** No? 
 
-**Katagiri Roshi:** No. I don’t mean this. But the term Mahayana is used very naturally opposed to Hinayana. So Mahayana is the understanding Buddha’s Way in a broad perspective. But in this case, the term *maha* doesn’t mean great opposed to small.
+**Katagiri Roshi:** No. I don’t mean this. But the term Mahayana is used very naturally opposed to Hinayana. So Mahayana is the understanding [of] Buddha’s Way in a broad perspective. But in this case, the term *maha* doesn’t mean great opposed to small.
 
 **Person 2:** Okay. Does *Hinayana* mean just, like, cultivating one’s own sort of psychological thing...
 
@@ -127,9 +127,7 @@ Do you have questions so far?
 
 In spiritual life, you cannot always stay in the strong spiritual faith. Even though you believe that you have strong spiritual faith, still within the faith you can see the up and down [slide]. Sometimes you don’t want, sometimes you want. Sometimes you have doubt. You become very skeptical. Apparently you do zazen strongly, you believe Buddhism, but still there is skeptical doubt. So doubt and skepticism, [...] this is kind of “backsliding” your faith. 
 
-More or less, we have this kind of backsliding faith. So in order to have a not-backsliding faith, we have to practice for a long time. 
-
-But basically, we are already living in the realm of un-backsliding faith, because we are already embraced by the essence of existence, beings. [Whether] you realize or you don’t realize, you are embraced by the universe. So from this point, wherever you may go, you are always at the stage of not-backsliding faith, already. 
+More or less, we have this kind of backsliding faith. In order to have a not-backsliding faith, we have to practice for a long time. But basically, we are already living in the realm of un-backsliding faith, because we are already embraced by the essence of existence, beings. [Whether] you realize or you don’t realize, you are embraced by the universe. So from this point, wherever you may go, you are always at the stage of not-backsliding faith, already. 
 
 But we don’t *see* it. That’s a problem for us. That’s why we have to notice, we have to realize it, and we have to practice it. 
 
@@ -231,13 +229,11 @@ So Buddhist belief is to believe [in] dharma. What do I mean, to believe in dhar
 
 What is the buddha? Buddha is a person who constantly has something good, helping. Even just his presence is very helpful. That is buddha. And historically, Buddha is Gotama Siddhartha – Shakyamuni Buddha – who existed in human history. That’s why believe, we trust this person, and that this person tells us all sentient beings, all of you, are buddha, exactly the same as Buddha Shakyamuni. He proved this, twenty-five hundred years ago. So we trust, we believe in this historical person Shakyamuni Buddha, and simultaneously, next, we believe in his teaching, so-called “we *are* buddha.” 
 
-So if you believe in the dharma, very naturally there is a practice, that is we take refuge in the buddha, and we exist in this human world as a human being, but simultaneously something more than a human being. That is “holiness” – something like that. But it’s not good enough, because we have to believe in his teaching, the teaching of his life. That is the teaching, *dharma*. 
-
-And next, we have to devote ourselves to the sangha, people who are always practicing the teaching and believing in the buddha. This is the sangha. [...] We take refuge in the people who exist and practice buddha [...] and buddha’s teaching. 
+So if you believe in the dharma, very naturally there is a practice, that is we take refuge in the buddha, and we exist in this human world as a human being, but simultaneously something more than a human being. That is “holiness” – something like that. But it’s not good enough, because we have to believe in his teaching, the teaching of his life. That is the teaching, *dharma*. And next, we have to devote ourselves to the sangha, people who are always practicing the teaching and believing in the buddha. This is the sangha. [...] We take refuge in the people who exist and practice buddha [...] and buddha’s teaching. 
 
 So that is the contents, quality of believing in dharma. That’s why [the] Triple Treasure is very important.
 
-So Buddhist faith is not to believe in something *divine*, or “holiness.” But you have to believe in holiness and also the teacher’s teaching, and also the people who practice buddha and holiness and also his teaching. So very vast. [...] Buddhist faith is very vast. 
+So Buddhist faith is not to believe in something *divine*, or “holiness.” But you have to believe in holiness and also the teacher’s teaching, and also the people who practice buddha and holiness and also his teaching. So, very vast. [...] Buddhist faith is very vast. 
 
 And Buddhist faith is very grounded in human life, because you have to believe [in] human beings who practice Buddha’s way, Buddha’s teaching. So that is the sangha. That’s why sangha is important. 
 
