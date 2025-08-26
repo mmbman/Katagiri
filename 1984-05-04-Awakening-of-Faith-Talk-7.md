@@ -15,11 +15,11 @@ title: "The Awakening of Faith – Talk 7"
 
 #### 0:00
 
-**Katagiri Roshi:** Page [34]. From [...] “Next, Suchness has two aspects.”
+**Katagiri Roshi:** Page [34], from “Next, Suchness has two aspects...”
 
 > Next, Suchness has two aspects if predicated in words. One is that it is truly empty, for [this aspect] can, in the final sense, reveal what is real. The other is that it is truly nonempty, for its essence itself is endowed with undefiled and excellent qualities.
 >
-> \1. Truly Empty
+> 1\. Truly Empty
 > 
 > [Suchness is empty] because from the beginning it has never been related to any defiled states of existence, it is free from all marks of individual distinction of things, and it has nothing to do with thoughts conceived by a deluded mind. 
 >
@@ -27,7 +27,7 @@ title: "The Awakening of Faith – Talk 7"
 >
 > In short, since all unenlightened men discriminate with their deluded minds from moment to moment, they are alienated [from Suchness]; hence, the definition “empty”; but once they are free from their deluded minds, they will find that there is nothing to be negated.
 >
-> \2. Truly Nonempty
+> 2\. Truly Nonempty
 >
 > Since it has been made clear that the essence of all things is empty, that is, devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called “nonempty”. And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
 >
@@ -55,7 +55,7 @@ In the *Madhyamaka*, [in] Chapter 24 and Number 8, 9, 10, Nāgārjuna [says],
 >
 > (From *Mūlamadhyamakakārikā* (“Root Verses on the Middle Way”) by Nāgārjuna. The translation may be from *Emptiness: A Study in Religious Meaning* by Frederick J. Streng.)
 
-So without understanding these two kinds... [The first is] the highest sense of the truth, that is the truth completely independent from the words. That is the highest sense of the truth. And the other truth is the truth manifested in the human world. That is, what would you say, the *secular* aspect of the truth. The other one is the *ultimate* aspect of the truth. Without understanding these two kinds of the truth, it is impossible to approach, to reach the nirvana, which means to have perfect freedom. 
+So without understanding these two kinds [there is no chance to know what the truth is]. [The first is] the highest sense of the truth, that is the truth completely independent from the words. That is the highest sense of the truth. And the other truth is the truth manifested in the human world. That is, what would you say, the *secular* aspect of the truth. The other one is the *ultimate* aspect of the truth. Without understanding these two kinds of the truth, it is impossible to approach, to reach the nirvana, which means to have perfect freedom. 
 
 #### 15:30
 
