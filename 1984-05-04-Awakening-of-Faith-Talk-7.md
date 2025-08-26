@@ -17,35 +17,45 @@ title: "The Awakening of Faith – Talk 7"
 
 **Katagiri Roshi:** Page [34]. From [...] “Next, Suchness has two aspects.”
 
-> Next, Suchness has two aspects if predicated in words. One is that it is truly empty, for this aspect can, in the final sense, reveal what is real. The other is that it is truly nonempty, for its essence itself is endowed with undefiled and excellent qualities.
+> Next, Suchness has two aspects if predicated in words. One is that it is truly empty, for [this aspect] can, in the final sense, reveal what is real. The other is that it is truly nonempty, for its essence itself is endowed with undefiled and excellent qualities.
 >
 > \1. Truly Empty
 > 
-> Suchness is empty because from the beginning it has never been related to any defiled states of existence, it is free from all marks of individual distinction of things, and it has nothing to do with thoughts conceived by a deluded mind. It should be understood that the essential nature of Suchness is neither with marks nor without marks; neither not with marks nor not without marks; nor is it both with and without marks simultaneously; it is neither with a single mark nor with different marks; neither not with a single mark nor not with different marks; nor is it both with a single and with different marks simultaneously. In short, since all unenlightened men discriminate with their deluded minds from moment to moment, they are alienated from Suchness; hence, the definition "empty"; but once they are free from their deluded minds, they will find that there is nothing to be negated.
+> [Suchness is empty] because from the beginning it has never been related to any defiled states of existence, it is free from all marks of individual distinction of things, and it has nothing to do with thoughts conceived by a deluded mind. 
+>
+> It should be understood that the essential nature of Suchness is neither with marks nor without marks; neither not with marks nor not without marks; nor is it both with and without marks simultaneously; it is neither with a single mark nor with different marks; neither not with a single mark nor not with different marks; nor is it both with a single and with different marks simultaneously. 
+>
+> In short, since all unenlightened men discriminate with their deluded minds from moment to moment, they are alienated [from Suchness]; hence, the definition “empty”; but once they are free from their deluded minds, they will find that there is nothing to be negated.
 >
 > \2. Truly Nonempty
 >
-> Since it has been made clear that the essence of all things is empty, i.e., devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called "nonempty". And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
+> Since it has been made clear that the essence of all things is empty, that is, devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called “nonempty”. And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
 >
 > (From *The Awakening of Faith*, translated by Yoshito S. Hakeda, 1967.)
 
-Now... In terms of the reality of all things, all beings, the truth independent from the words is described as inexplicable and unthinkable in the foregoing [portions]. In order to make the truth itself fresh in one’s mind. That is the portion we learned so far. 
+In terms of the reality of all things, all beings, *the truth independent from words* is described as inexplicable and unthinkable in the foregoing [portions], in order to make the truth itself fresh in one’s mind; that is the portion we learned so far. This portion we have [just] read goes into *the truth in words*; in the previous portions, *the truth independent from words*. 
 
-This portion we have read goes into the truth in words. In the previous portions, the truth independent from words. Finally, the truth is described in the simplest word, so-called *truth*, or *one mind*. And through this word, the one mind, or the truth, we have to know the spirit of the word. In other words, beyond the word. We have to go beyond the word, the truth, or *one mind*. That is the purpose of using the words in order to let you know the real truth. What is the real truth? 
+Finally, the truth is described in the simplest word, so-called *truth*, or *one-mind*. And through this word, *one mind* or *the truth*, we have to know the spirit of the word, in other words, beyond the word. We have to go beyond the word *the truth* or *one mind*. That is the purpose of using the words in order to let you know what is the real truth. 
 
-So finally, we cannot help to reach the simplest word in order to know the real truth. That is called the truth, or *one mind*, et cetera. But in this portion, we try to describe the truth *depending* on the words. So, naturally it goes without saying that explanation of the truth in words is very provisional. Because the truth itself is not that which it should be uttered in words. Because in the previous portion, the truth is beyond words. 
+So finally, we cannot help [but] to reach the simplest word in order to know the real truth. That is called *the truth* or *one mind*, et cetera. But in this portion, we try to describe the truth *depending on* the words. 
 
-So, the first paragraph says that Suchness as two aspects if indicated in words. One is that it is truly empty, *sunya* in Sanskrit. Truly empty. For this aspect can, in the final sense, reveal what is real. The other is that it is truly non-empty, *a-sunya*. For its essence itself is endowed with undefiled and excellent quality. 
+Naturally, it goes without saying that explanation of the truth in words is very provisional. Because the truth itself is not that which should be uttered in words, because in the previous portion, the truth is beyond words. 
 
-So, two kinds of the truth in words, one is *truly empty*. But that *empty* doesn’t negate [or] deny the truth itself, but negates deluded mind which we misunderstand the truth, or our object. That is called, that deluded mind must be negated, because the truth is completely never contaminated by this deluded mind. And also the truly non-empty is, in this paragraph mentions, the truth itself has the excellent boundless quality. Supporting, maintaining, characterized by maintaining the truth itself, and simultaneously maintaining all sentient beings. This is so-called *dharma*, we say. In Sanskrit, *dharma* means to have these peculiarity to maintain itself. That is the meaning of dharma. 
+The first paragraph says that, “Suchness has two aspects if indicated in words. One is that it is truly empty, ...” – *śūnya* in Sanskrit; truly empty – “for this aspect can, in the final sense, reveal what is real. The other is that it is truly non-empty (*a-śūnya*), for its essence itself is endowed with undefiled and excellent quality. ”
 
-So two kinds of truth we have to know. Otherwise, there is no chance to know what the truth is. 
+So, two kinds of the truth in words; one is *truly empty*. But that *empty* doesn’t negate [or] deny the truth itself, but negates deluded mind [with] which we misunderstand the truth, or our object. That deluded mind must be negated because the truth is completely never contaminated by this deluded mind. 
 
-So in the *Madhyamaka*, [in] Chapter 24 and Number 8, 9, 10, Nāgārjuna [says] the teaching by the buddhas of the dharma has recourse two truths. Two truths: “the word in scorned truth and the truth which is the highest sense. Those who do not know the distribution of the two kinds of the truth do not know the profound point and the teaching of the buddhas. The highest sense of the truth is not taught apart from practical behavior. And without having understood the highest sense, one cannot understand nirvana.” 
+And also the *truly non-empty*: this paragraph says the truth itself has excellent, boundless quality – supporting, maintaining – characterized by maintaining the truth itself and simultaneously maintaining all sentient beings. This is so-called *dharma*, we say. In Sanskrit, *dharma* means to have [the] peculiarity to maintain itself. That is the meaning of dharma. 
 
-So without understanding these two kinds. The highest sense of the truth, that is the truth completely independent from the words. That is the highest sense of the truth. The other truth is the truth manifested in the human world. That is, what would you say, a secular aspect of the truth. The secular aspect of the truth. The other one is the ultimate aspect of the truth. 
+So [there are] two kinds of truth we have to know. Otherwise, there is no chance to know what the truth is. 
 
-So without understanding these two kinds of the truth, it is impossible to approach, to reach the nirvana, which means to have perfect freedom. 
+In the *Madhyamaka*, [in] Chapter 24 and Number 8, 9, 10, Nāgārjuna [says], 
+
+> The teaching by the buddhas of the dharma [has recourse to] two truths: the [world-ensconced] truth, and the truth which is the highest sense. Those who do not know the distribution of the two kinds of the truth do not know the profound point and the teaching of the buddhas. The highest sense of the truth is not taught apart from practical behavior. And without having understood the highest sense, one cannot understand nirvana.
+>
+> (From *Mūlamadhyamakakārikā* (“Root Verses on the Middle Way”) by Nāgārjuna. The translation may be from *Emptiness: A Study in Religious Meaning* by Frederick J. Streng.)
+
+So without understanding these two kinds... [The first is] the highest sense of the truth, that is the truth completely independent from the words. That is the highest sense of the truth. And the other truth is the truth manifested in the human world. That is, what would you say, the *secular* aspect of the truth. The other one is the *ultimate* aspect of the truth. Without understanding these two kinds of the truth, it is impossible to approach, to reach the nirvana, which means to have perfect freedom. 
 
 #### 15:30
 
@@ -175,7 +185,7 @@ So that is this sentence.
 
 So finally, the second paragraph from the bottom at page 35:
 
-> In short, since all unenlightened men discriminate with their deluded minds from moment to moment, they are alienated from Suchness; hence, the definition "empty"; but once they are free from their deluded minds, they will find that there is nothing to be negated.
+> In short, since all unenlightened men discriminate with their deluded minds from moment to moment, they are alienated from Suchness; hence, the definition “empty”; but once they are free from their deluded minds, they will find that there is nothing to be negated.
 
 So in short, “since all enlightened men discriminate with their deluded minds from moment to moment”: so we cannot understand the subject and the object. We can’t understand the object because subject has already deluded mind. *Deluded mind* means a state that mind doesn’t reach the truth itself. Or, the deluded mind means that cognition as discrimination doesn’t realize how deluded it is. No, that is characteristic of cognition. If you are involved in the cognition, you’re just going. 
 
@@ -209,7 +219,7 @@ So if you realize this deluded mind, how it is going, you can be free from.
 
 So next, let’s number two, “Truly Nonempty.”
 
-> Since it has been made clear that the essence of all things is empty, i.e., devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called "nonempty". And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
+> Since it has been made clear that the essence of all things is empty, i.e., devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called “nonempty”. And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
 
 Non-empty, it mentions before anyway, it is implication of excellent, boundless quality which the truth itself possesses. The truth is of real entity and has boundless nature of its virtuous quality. This is meaning of non-empty. 
 
