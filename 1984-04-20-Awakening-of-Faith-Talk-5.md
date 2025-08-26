@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 5"
 ---
 ## April 20, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-04-06-Awakening-of-Faith-Talk-3) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-06-Awakening-of-Faith-Talk-3) | [Next](1984-04-27-Awakening-of-Faith-Talk-6) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
@@ -421,4 +421,4 @@ So, we're just like a diamond, anyway. We can be a very rough diamond. Apparentl
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-04-06-Awakening-of-Faith-Talk-3) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-06-Awakening-of-Faith-Talk-3) | [Next](1984-04-27-Awakening-of-Faith-Talk-6) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)

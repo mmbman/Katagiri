@@ -3,7 +3,7 @@ title: "The Awakening of Faith: Two Kinds of Nowness"
 ---
 ## May 14, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-04-20-Awakening-of-Faith-Talk-5) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 
 ### Transcript
@@ -443,4 +443,4 @@ Do you have some questions?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-04-20-Awakening-of-Faith-Talk-5) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
