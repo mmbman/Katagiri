@@ -155,7 +155,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Precepts for Lay Ordination – Part 1
 1. Precepts for Lay Ordination – Part 2
 
-1. [*The Awakening of Faith* – Talk 1](1984-03-16-Awakening-of-Faith-Talk-1)
+1. [*The Awakening of Faith* – Talk 1: Introduction and Invocation](1984-03-16-Awakening-of-Faith-Talk-1)
 
 1. [Mindfulness – Talk 1](1984-03-21-Mindfulness-Talk-1)
 1. [Mindfulness – Talk 2](1984-03-22-Mindfulness-Talk-2)
@@ -163,7 +163,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Mindfulness – Talk 4](1984-03-24-Mindfulness-Talk-4)
 1. [Mindfulness – Talk 5](1984-03-25-Mindfulness-Talk-5)
 
-1. [*The Awakening of Faith* – Talk 3](1984-04-06-Awakening-of-Faith-Talk-3)
+1. [*The Awakening of Faith* – Talk 3: One Mind and Its Two Aspects](1984-04-06-Awakening-of-Faith-Talk-3)
 
 1. *Blue Cliff Record* Case 55 Talk 3
 
@@ -171,7 +171,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 57 Talk 1
 
-1. [*The Awakening of Faith* – Talk 6](1984-04-27-Awakening-of-Faith-Talk-6)
+1. [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6)
 
 1. *Blue Cliff Record* Case 57 Talk 2
 

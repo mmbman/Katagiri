@@ -440,6 +440,12 @@ Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter 
 
 <br/>
 
+##### [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6)
+
+In an extended dialog, Katagiri Roshi addresses the question of why we call truth “mind”.
+
+<br/>
+
 ### 1985
 
 ##### [What Is Buddhist Faith? (Introduction to Buddhism)](1985-06-22-Introduction-to-Buddhism)

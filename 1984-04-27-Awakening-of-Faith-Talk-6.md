@@ -1,9 +1,13 @@
 ---
-title: "The Awakening of Faith – Talk 6"
+title: "The Awakening of Faith – Talk 6: Truth and Mind"
 ---
 ## April 27, 1984 Dharma Talk by Dainin Katagiri Roshi
 
 #### [Previous](1984-04-20-Awakening-of-Faith-Talk-5) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+
+### Summary
+
+In an extended dialog, Katagiri Roshi addresses the question of why we call truth “mind”.
 
 ### Transcript
 
