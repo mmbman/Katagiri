@@ -36,6 +36,7 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 **Latest Updates:**
 
+- August 25, 2025: Worked on [*The Awakening of Faith*](awakening-of-faith) talks 1 through 6.
 - August 21, 2025: Posted [“*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 2”](1984-01-22-Blue-Cliff-Record-Case-52-Talk-2).
 - August 19, 2025: Posted [“*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1”](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1).
 - August 1, 2025: Posted [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
