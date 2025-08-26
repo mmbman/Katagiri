@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 6: Truth and Mind"
 
 ### Summary
 
-In an extended dialog, Katagiri Roshi addresses the question of why we call truth “mind”.
+In an extended dialog, Katagiri Roshi addresses the question of why we call truth “mind”. This leads to a fundamental overview of karma and zazen.
 
 ### Transcript
 
