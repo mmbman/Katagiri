@@ -91,87 +91,63 @@ So that’s why here it says, “it has nothing to do with thoughts.”
 
 #### 26:25
 
-If so, let’s [look at] all marks of individual distinction of things in in detail. That will be in the next [sentence]:
+If so, let’s [look at] “all marks of individual distinction of things” in detail. That will be in the next [sentence]:
 
 > It should be understood that the essential nature of Suchness is neither with marks nor without marks; neither not with marks nor not without marks; nor is it both with and without marks simultaneously; it is neither with a single mark nor with different marks; neither not with a single mark nor not with different marks; nor is it both with a single and with different marks simultaneously. 
 
-So from this point, all marks of individual distinction of things are that the truth is perceived in the state of being, in the state of no-being. In other words with marks or without marks, that [is] being or no-being.
+So from this point, *all marks of individual distinction of things* are that the truth is perceived in the state of being, in the state of no-being – in other words with marks or without marks, that means being or no-being. *Being* means what is, *no-being* means what is not. 
 
-*Being* means what is, *no-being* means what is not. 
+We always have a common type of evaluation through being or no-being, not being or not no-being – like this. [...] Buddhism follows this pattern, in order to know how your consciousness is always working, [...] what kind of pattern your consciousness follows if you see your object. So very naturally, [...] our consciousness follows a certain pattern that is the state of [...] a being or no-being, [which means] what is or what is not. Next, not being, [which means] not what is, or not no-being means not what is not. Do you understand? If you see the microphone, you say “microphone is here.” Next, “microphone is *not* here.” Next says, “microphone is not being.” “Microphone is not not being.” Like this. So there is a kind of pattern. So finally it says, “microphone is both.” Being, here it is, or not being – both. 
 
-We always have a common sense, a common type of evaluation, through being or no-being. Not being or not no-being – like this. And both being and not no-being, like this. Buddhism follows this pattern, in order to know how your consciousness is always working, [...] what kind of pattern your consciousness follows if you see your object. So very naturally, [...] our consciousness follows a certain pattern that is the state of [...] a being or no-being, [which means] what is or what is not. Next, not being, [which means] not what is, or not no-being means not what is not. Do you understand? 
-
-If you see the microphone, you say “microphone is here.” Next, “microphone is *not* here.” Next says, “microphone is not being.” “Microphone is not not being.” Like this. So there is a kind of pattern. 
-
-So finally it says, “microphone is both.” Being, here it is. Or not being. Both. 
-
-After your death, what is death? Where are you heading for, after death? The other world exists? Yes, or not? Next, “no yes.” And “no no.” And next you say, “Both. Yes and no.” This is [the] pattern, always. Whatever you think, whatever you discuss about your object or about your subject, very naturally the cognition follows this kind of pattern. That is called *all marks of individual distinction of things*. 
+After your death, what is death? Where are you heading for, after death? Does the other world exist? Yes, or not. Next, “no yes,” and “no no.” And next you say, “Both. Yes and no.” This is [the] pattern, always. Whatever you think, whatever you discuss about your object or about your subject, very naturally cognition follows this kind of pattern. That is called *all marks of individual distinction of things*. 
 
 But actually it is very difficult to understand your object or subject, life and death, good and bad, following this pattern because everything is changing. It is very difficult to understand. 
 
-For instance, there is a sentence: “This is gone.” This is gone. At that time, *this* implicates *something to be* in this sentence. So from this point, what does it mean? *This is gone.* But *this*, in this sentence, implicates something to be. And then next, but in the predicate it says, “is gone.” So what do you mean, “is gone”? Because this is already something to be – and say, “this is gone.” It is impossible to say so. To say about something to be already gone, you cannot say so. You cannot explain. Because it is already gone. But you say, “this is gone.” 
+For instance, there is a sentence: “This is gone.” At that time, *this* implicates *something to be* in this sentence. So from this point, what does it mean, “this is gone”? But *this*, in this sentence, implicates something to be. But in the predicate it says “is gone.” So what do we mean, “is gone”? Because this is already something to be, and [then] say, “this is gone.” It is impossible to say so, to say about something to be already gone. You cannot say so, you cannot explain, because it is already gone. But you say, “this is gone.” 
 
-Or another sentence, “John is gone.” Well, it means that John cannot be found here, but to expect that he could be found somewhere, or that John, who was here, is gone now. *[He chuckles.]* Like this. So you always use sentences like this, “John is gone.” But it’s really impossible to say about John who is gone. If you use a *John*, already John is a person who was here. You already expect this situation. And then next it says, he is gone. 
+Or another sentence, “John is gone.” Well, it means that John cannot be found here, but to expect that he could be found somewhere, or that John, who was here, is gone now. *[He chuckles.]* Like this. So you always use sentences like this, “John is gone.” But it’s really impossible to say [something] about John who is gone. If you use *John*, already John is a person who was here, you already expect this situation. And then next it says, he is gone. [...] So from this point, as long as *this* or *John* is premised, it is impossible for you to [say] entirely [non]. No. You cannot explain entirely [non]. 
 
-[...] So, from this point, as long as *this* or *John* is premised, it is impossible for you to [say] entirely [now]. No. You cannot explain entirely [now]. 
+For instance, [...] it is impossible for us to mention real death, because you go. You cannot. Because if you say, “you are gone,” you are completely gone. That is *your* business, not my business! *[He laughs.]* Not something you should know from your business. No! *[He laughs.]* You are gone: that reality is something *you* should know, you should [be with] it. But you are already gone. So *who* knows? 
 
-For instance, you cannot explain, it is impossible for us to mention real death, because you are gone. You cannot. Because if you say, “you are gone,” you are completely gone. That is your business, not my business! *[He laughs.]* Not something you should know from your business. No! *[He laughs.]* You are gone: that reality is something you should know, you should live it. But you are already gone. So *who* knows? 
+If you die... We say, “Katagiri died.” And everyone understands, “Oh yes, Katagiri died.” *[He chuckles.]* That is the *concept* of death you understand. You understand the concept of death; you never know real death, Katagiri’s real death. Because “Katagiri died” is *my* business, not your business. Don’t you think so?
 
-If you die... We say, “Katagiri died.” And everyone understands, “Oh yes, Katagiri died.” *[He chuckles.]* That is the *concept* of death you understand. You understand the concept of death. You never know real death, Katagiri’s real death. Because “Katagiri died” is *my* business, not your business.
+For instance, “I attain enlightenment.” It is my business, not your business! You know? I say, “I attain enlightenment,” then you say, “Wow, wonderful, Katagiri.” But [...] you really bow to who, what? The concept of enlightenment. *[He laughs.]* So, *real* enlightenment is... no one knows. Okay? 
 
-For instance, “I attain enlightenment.” It is my business, not your business! You know? Do you understand? I say, “I attain enlightenment,” then you say, “Wow, wonderful, Katagiri.” But I don’t think. You really bow to who, what? The concept of enlightenment. *[He laughs.]* So, *real* enlightenment is... no one knows. Okay? 
+So it’s very difficult to understand something according to the certain pattern, so-called *it is being* or *it is not being*, et cetera. It is very difficult; everything is changing. 
 
-So it’s very difficult to understand something according to the certain pattern, so-called it is being or it is not being, et cetera. It is very difficult. Everything is changing. 
+And also, everything exists according to teaching of interconnected, interdependent co-origination. Okay? So it’s very difficult to say about the death itself, real death; no. It’s very difficult to say. 
 
-And also, everything exists according to teaching of interconnected, interdependent co-originations. Okay? So it’s very difficult to say about the death itself, real death. No; it is very difficult to say. 
+And also, here is an interesting sentence, for instance: “There is no round triangle.” *[He laughs.]* No one believes in the round triangle. But even in this sentence, something to be is foreseen. It is impossible for you to state entirely non-existence, [...] something non-, completely non-. You cannot say so. If you say, “there is no round triangle,” maybe you expect that, maybe *somewhere*... *[he laughs,]* you expect somewhere [a] round triangle could be, might be. Because already [...] you have an image of something. But an image is already a *being*, alright? Even though you [only think it], if you can think something, it’s already being. You cannot ignore this. You have to think [of] your life with this image too – whatever you think. 
 
-And also, here is an interesting sentence, for instance: “There is no round triangle.” No round triangle. No one believes in a round triangle. But even in this sentence, something *to be* is foreseen. Foreseen. It is impossible for you to state entirely non-existence, so-called non-round... well, anyway, something non, completely non. You cannot say so. But if you say, “there is no round triangle,” maybe you expect that, maybe *somewhere*... *[he laughs,]* somewhere, you expect [a] round triangle. Could be. Might be. Because already you expect. You have an image of something. 
+Anyway, if you use one word, around the word many beings exist. Imagination, visualization; connected with your memory, connected with your heredity, connected with your past life, present life, future life. And then, something happens around *one word*. That’s why only a single word doesn’t exist alone; it’s connected with all beings. That’s why you cannot judge [or] evaluate your object, or subject, or *anything* through a single pattern, so-called the sentence you have used. 
 
-But an image is already a *being*, alright? Even though you think. If you can think something, it’s already being. You can’t ignore this. You have to live, you have to think your life with this image too. 
-
-Whatever you think. If you use one word, around the words many beings exist. Imagination, visualization. Okay? Connected with your memory, connected with your heredity, connected with your past life, present life, future life, anyway. And then, something happens around *one word*. That’s why only one word, single word doesn’t exist alone. It’s connected with all beings. 
-
-That’s why you cannot judge [or] evaluate your object, or subject, or *anything* through a single pattern, so-called the sentence you have used. So through the sentence it’s very difficult to understand something real. 
-
-So that’s why Buddhism [says] truth is beyond the word. The truth of death is beyond the word. Whatever. Okay? 
-
-#### 40:15
+So through the sentence it’s very difficult to understand something real. That’s why Buddhism [says] truth is beyond the words. The truth of death is beyond the word, [or whatever it is].
 
 It is because everything exists according to the principle of interdependent co-origination. 
 
-In the sutra, it says people in the secular world have the standard of the excessive two-sided idea, being or no being. If you see closely [the] origination of existence as it really is according to right wisdom, no being or what is not doesn’t exist in this world. Nor a being, certain pattern of condition, so-called *what is*, exists if you see closely extinction of existence with the right wisdom. Because everything is change. If you see real picture of extinction – appearance, disappearance. If you really understand disappearance, you cannot judge all sentient beings according to a certain pattern, so called *what is*, or *being*. 
+In the sutra, it says people in the secular world have the standard of the excessive two-sided idea, being or no being. If you see closely [the] origination of existence as it really is according to right wisdom, no being or what is not doesn’t exist in this world. Nor a being, certain pattern of cognition, so-called *what is*, exists if you see closely extinction of existence with the right wisdom. Because everything is change. If you see real picture of extinction – appearance, disappearance – if you really understand disappearance, you cannot judge all sentient beings according to a certain pattern, so-called *what is*, or *being*. 
 
-So completely you have to know something beyond words, something beyond the object you have seen. This is the real picture of microphones existence, your [...] subjective existence. 
+So completely you have to know something beyond words, something beyond the object you have seen. This is the real picture of the microphone’s existence, your [...] subjective existence. 
 
-So for instance, let’s see the true picture of the self. For true, the self, your self, Katagiri. Katagiri was born in 1928, and then he has been, well, living until now. So at that time the self named Katagiri doesn’t change? It changes. 
+So for instance, let’s [look at] the true picture of the self. For [myself], Katagiri, Katagiri was born in 1928, and then he has been living until now. So at that time the self named Katagiri doesn’t change? It changes. 
 
 *[Tape break.]*
 
-... From moment to moment, he is growing. So from this point his personality, his knowledge, everything is growing. So everyday, he is different. 
+... From moment to moment, he is growing. From this point his personality, his knowledge, everything is growing. So every day, he is different. So there is no particular one type of Katagiri. No. He’s always changing. [There is] no “avocado seed” so-called Katagiri. No; always changing. 
 
-So there is no particular one type of Katagiri. No. He’s always changing. No “avocado seed,” so-called Katagiri, no. Always changing. But on the other hand, if you see Katagiri today, anyway, you can imagine for Katagiri what he was yesterday and what he will be. 
+But on the other hand, if you see Katagiri today, you can imagine for what Katagiri was yesterday and what he will be. So from this point, through yesterday to the present to the future, there is one type of Katagiri always there. In other words, the *one ground* of the Katagiri, the *same and one type* of Katagiri itself. And then you can understand the development, change of Katagiri’s personality. 
 
-So from this point, through the yesterday to the present to the future, one type of Katagiri is always there. In other words, the *one ground* of the Katagiri, the *same and one type* of Katagiri itself. And then you can understand development, change of Katagiri’s personality. 
+So [...] what is the true picture of the self? The true picture of the self is sometimes operating in the state of *continuation in discontinuation*. Okay? *[He chuckles.]* [We may say that.] Or, *discontinuation in continuation*, like this. But it cannot be understood by the idea of continuation and discontinuation, but by being free from attachment to these ideas. So the real picture of the self is not fitting into this category, so-called *continuation in discontinuation* or *discontinuation in continuation*, no. Because the real reality of the self, which is always growing and changing, day by day, from moment to moment, is... nothing to grasp. It’s dynamic. So if you say the self is operating in the state of *continuation of discontinuation*, this is already a certain pattern, so-called *both with marks nor without marks*. Something like this. 
 
-So that’s why, what is the true picture of the self? The true picture of the self is sometimes operating in the state of *continuation in discontinuation*. Okay? *[He chuckles.]* [We may say that.] Or, *discontinuation in continuation*, like this. But it cannot be understood by the category of the idea of continuation and discontinuation, but by being free from attachment to these ideas. So the real picture of the self is not fitting into this category, so-called *continuation in discontinuation* or *discontinuation in continuation*, no. Because the real reality of the self, which is always growing and changing, day by day, from moment to moment, is nothing to grasp. It’s dynamic. 
+So it’s a kind of wonderful discrimination, wonderful function of your mind. If you know the real picture of the self which is going in *discontinuation in continuation*, *continuation in discontinuation*, that understanding is pretty good. But still, that is not real understanding. It’s still deluded. So you have to know something more than this. Real life, the truth of the self, truth of your object, is constantly going beyond this category [or] *any* categories. 
 
-So if you say the self is operating in the state of *continuation of discontinuation*, well this is already a certain pattern, so-called *both with marks nor without marks*. Something like this. 
-
-So, it’s a kind of wonderful discrimination, wonderful function of your mind. If you know the real picture of the self, which is going in *discontinuation in continuation*, *continuation in discontinuation*, that understanding is pretty good. But still, that is not real understanding. Still, *do it*. 
-
-So you have to know something more than this. Real life, the truth of the self, truth of your object is constantly going beyond this category [or] *any* categories. 
-
-#### 47:40
-
-So next, the same applies to the next paragraph.
+So next, the same applies to the next [part]:
 
 > ... it is neither with a single mark nor with different marks; neither not with a single mark nor not with different marks; nor is it both with a single and with different marks simultaneously. 
 
-This is, for instance, nirvana. Or the, maybe you can ask, is the truth one with phenomena? In other words, truth and phenomena are the same things or they are different? Or maybe they are both. If you try to know real relation between the truth and phenomena, we try to follow a certain pattern. And then it says, the truth and phenomena are one, same. 
+This is, for instance, nirvana. Or maybe you can ask, “Is the truth one with phenomena?” In other words, truth and phenomena are the same things, or they are different, or maybe they are both. If you try to know the real relation between the truth and phenomena, we try to follow a certain pattern. And then it says, the truth and phenomena are one, the same. So that is one way to understand the relation between truth and phenomena. Next, someone says, “no, they are not one, they are different.” This is another pattern. And finally someone says, “well, they are kind of a combination, so both.” This is another pattern too. But you never understand what is the relation is between the truth and phenomena. No. 
 
-So that is one way to understand the relation between truth and phenomena. Next, someone says, no, they are not one, so they are different. This is another pattern. Finally someone says, well, they are kind of combination, so both. This is another pattern too. But you never understand what is the relation between the truth and phenomena? No. 
-
-So real relation between the truth and phenomena is completely beyond this pattern or categories. But unfortunately, or fortunately, we have to follow this kind of patterns. But if you follow this kind of patterns, you attach to [it]. That is a problem. That’s why constantly we have to say your pattern is fine, but don’t attach to your understanding. Because your understanding is already followed according to certain patterns. So you never understand anything as it is through any patterns of thinking or understanding. 
+So real relation between the truth and phenomena is completely beyond this pattern or categories. But unfortunately, or fortunately, we have to follow these kind of patterns. But if you follow these kind of patterns, you attach to [them]. That is a problem. That’s why constantly we have to say “your pattern is fine, but don’t attach to your understanding.” Because your understanding is already followed according to certain patterns. So you never understand anything as it is through any patterns of thinking or understanding. 
 
 So that is this sentence. 
 
@@ -181,13 +157,13 @@ So finally, the second paragraph from the bottom at page 35:
 
 > In short, since all unenlightened men discriminate with their deluded minds from moment to moment, they are alienated from Suchness; hence, the definition “empty”; but once they are free from their deluded minds, they will find that there is nothing to be negated.
 
-So in short, “since all enlightened men discriminate with their deluded minds from moment to moment”: so we cannot understand the subject and the object. We can’t understand the object because subject has already deluded mind. *Deluded mind* means a state that mind doesn’t reach the truth itself. Or, the deluded mind means that cognition as discrimination doesn’t realize how deluded it is. No, that is characteristic of cognition. If you are involved in the cognition, you’re just going. 
+“In short, since all enlightened men discriminate with their deluded minds from moment to moment”: so we cannot understand the subject and the object; we cannot understand the object because subject has already deluded mind. *Deluded mind* means a state that mind doesn’t reach the truth itself. Or, the deluded mind means that cognition as discrimination doesn’t realize how deluded it is. No; that is characteristic of cognition. If you are involved in the cognition, you’re just going. 
 
-For example, like a dream. Just like a dream. A dreamer doesn’t realize his dream while dreaming, no. Even though in the dream you say, “Oh, it is a dream!” But still you enjoy very much. *[He chuckles.]* Still your body and mind is completely soaked in the stream of dream. That’s it. And then [...] you say, “Oh, it is a dream!” But even that thinking is also in the stream of the dream. So wherever you think, all things are in the stream of the dream. 
+For example, just like a dream. A dreamer doesn’t realize his dream while dreaming. No. Even though in the dream you say, “oh, it is a dream,” still you enjoy very much. *[He chuckles.]* Still your body and mind is completely soaked in the stream of dreaming; that’s it. And then [...] you say, “Oh, it is a dream.” But even that thinking is also in the stream of dreaming. So wherever you think, all things are in the stream of dreaming. 
 
-So when you are in the stream of the dream, dreamer doesn’t know. Doesn’t know his dream, no. That is called *deluded mind*. 
+So when you are in the stream of the dream, the dreamer doesn’t know, doesn’t know his dream. That is called *deluded mind*. 
 
-That’s why in the Diamond Sutra, bodhisattva always in a certain situation but he never be blind. He is always clear. He is in the darkness, but his light is not dark. His light, his mind, his bodies are always not in the darkness. That always the Diamond Sutra says. So that means bodhisattvas are always in the dream but he or she is always free from the dream. 
+That’s why in the *Diamond Sutra*, bodhisattva always in a certain situation but he never be blind. He is always clear. He is in the darkness, but his light is not dark. His light, his mind, his bodies are always not in the darkness. That always the Diamond Sutra says. So that means bodhisattvas are always in the dream but he or she is always free from the dream. 
 
 So if you have a certain standard of your view, on the human world, human life – it is fine. But it is deluded. But it is very difficult to realize, because you are dreaming. 
 
