@@ -59,39 +59,33 @@ So without understanding these two kinds [there is no chance to know what the tr
 
 #### 15:30
 
-So, next, Number One. If so, what is the true empty? So one by one, *[unintelligible]* describes what the truth is, the true empty is. 
+So next, Number One. If so, what is the true empty? So one by one, [this] describes what the true empty is. 
 
 > Suchness is empty because from the beginning it has never been related to any defiled states of existence, it is free from all marks of individual distinction of things, and it has nothing to do with thoughts conceived by a deluded mind. 
 
-So the first sentence, “suchness is empty because from the beginning it has never been related to any defiled state of existence.” 
+The first sentence, “Suchness is empty because from the beginning it has never been related to any defiled state of existence, ...” 
 
-So from this point, *truly empty* indicates the *wholeness* of subject and object. This first paragraph mentions the subjective objective views on the human world, human life. Subjective, and subject and object. The subjective and objective views on the human world. And this paragraph mentions that truly empty is the wholeness of subject and object. Wholeness: not separated. That is the truly empty, so-called the truth in words. Truth in words. 
+So from this point, *truly empty* indicates the *wholeness* of subject and object. 
+
+This first paragraph mentions the subjective objective views on the human world, human life. Subjective, and subject and object; the subjective and objective views on the human world. And this paragraph mentions that truly empty is the *wholeness* of subject and object. Wholeness: not separated. That is the truly empty; so-called *the truth in words*.
 
 So that’s why here it says, “from the beginning it has never been related to any defiled state of existence.”
 
-So what is “defiled state of existence”? Next it says, “it is free from all marks of individual distinction of things.” First, all marks of individual distinction of things. This is *objective view*. Objective view. So all marks of individual distinction of things. 
+So what is a defiled state of existence? Next it says, “it is free from all marks of individual distinction of things.” All marks of individual distinction of things. This is *objective view*. And next it says, “it has nothing to do with thoughts conceived by a deluded mind.” This is *subjective view*. 
 
-And next it says, “it has nothing to do with thoughts conceived by a deluded mind.” This is *subjective view*. Without subject, it is impossible for object to exist. Without object, subject doesn’t exist. So object and subject [are] interrelated. But unfortunately subject acts on its object, simultaneously misunderstands its object. So that’s why that is deluded mind. Deluded mind. 
+Without subject, it is impossible for object to exist. Without object, subject doesn’t exist. So object and subject [are] interrelated. But unfortunately subject acts on its object, simultaneously misunderstands its object. So that’s why that is *deluded mind*. It is impossible for us to understand our object as it really is. Because later this says, we always distinguish subject and object, constantly from moment to moment. So it’s very hard to keep away from that. And also, the problem is that our cognition doesn’t *realize* that the human mind misunderstands object. That’s mentioned later. 
 
-It is impossible for us to understand our object as it really is. Because later this says, we always distinguish subject and object constantly from moment to moment. So it’s very hard to keep away from that. And also, the problem is that our cognition doesn’t *realize* that the human mind misunderstands object. That’s mentioned later. 
+That’s why we misunderstand the object, because the subject is already deluded mind. So that’s why the truth in words, the real truth is completely free from this misunderstanding – the subjective misview, misunderstanding, or objective misunderstanding. Completely free from. 
 
-So that’s why we misunderstand the object, because the subject is already deluded mind. So that’s why the truth in words, the real truth is completely free from this misunderstanding – the subjective misview, misunderstanding, or objecting misunderstanding. Completely free from. 
+So that’s why here it says, “From the beginning it has never been related to any defiled states of existence.” So whatever you see, you understand – even if you say “I understand perfectly,” this is already deluded. Even if you say “I get enlightenment,” it is deluded. Or even if you say “I understand the truth as it is *exactly*,” no matter how long you practice, it is deluded. This is very important. And then that [statement] lets you know what the real truth is. 
 
-So that’s why here it says, “From the beginning it has never been related to any defiled states of existence.” So whatever you see, you understand. Even though you say “I understand perfectly,” this is already deluded. Even though you say “I get enlightenment,” it is deluded. Or even though you say “I understand the truth as it is exactly,” no matter how long you practice, it is deluded. This is very important. 
-
-And then that [statement] lets you know what the real truth is. If you don’t know, you become always a troublemaker. Look at the human world: always fighting. Because they believe [...] always their understanding, their experience, is truth. Their religion is truth. So by this strong belief and strong experience, we fight each other.
+If you don’t know, you become always a troublemaker. Look at the human world: always fighting, because they believe [...] always their understanding, their experience, is truth, their religion is truth. By this strong belief and strong experience, we fight each other.
 
 That’s why this negative way and the truly empty is kind of not a positive way of understanding, but it is very important, because through this negative aspect of expression of the truth we can know what the truth is. In order to know real truth, we have to reflect upon ourselves like this, constantly. 
 
-So whatever you say, right or wrong, neutral, or perfect understanding, that is deluded already. Deluded means individual. It is individual. Truth you have understood perfectly becomes individual experience of the truth. 
+So whatever you say, right or wrong, neutral, or perfect understanding, that is deluded already. Deluded means it is individual. The truth you have understood perfectly becomes individual experience of the truth. At that time, that truth is not universal. So very naturally, you really attach to it. And then the problem is, you cannot have a relation, you cannot communicate with the people who have never experienced the truth. So that is discrimination. So very naturally a sense of comparison, a sense of conflict and stress comes up. 
 
-At that time, that truth is not universal. So very naturally, you really attach to it. And then the problem is, you cannot have a relation, you cannot communicate with the people who have never experienced the truth. So that is discrimination. 
-
-So very naturally the comparison, a sense of comparison, a sense of confliction and loss, stress comes up. 
-
-So that’s why first paragraph says, “from the beginning it has never been related to any defiled state of existence.” Because, “it is free from all marks of individual distinct [forms] of things.” Whatever you understand as your object, it is not right. That is *your* understanding. 
-
-“And it has nothing to do with thoughts conceived by a deluded mind.” That’s why your understanding is yours, but you have to know something *spirit*, so-called spirit, spirit of your own understanding. In other words, *behind* your understanding, or go beyond your individual understanding. There is something more. It’s huge, [one]. 
+So that’s why the first paragraph says, “from the beginning it has never been related to any defiled state of existence,” because, “it is free from all marks of individual distinct [forms] of things.” Whatever you understand as your object, it is not right; that is *your* understanding. “And it has nothing to do with thoughts conceived by a deluded mind.” That’s why your understanding is yours, but you have to know something, so-called *spirit* of your own understanding. In other words, *behind* your understanding, or go beyond your individual understanding. There is something more. It’s huge, [one]. 
 
 So that’s why here it says, “it has nothing to do with thoughts.” 
 
