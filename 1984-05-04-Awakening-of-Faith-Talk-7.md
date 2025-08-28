@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 7"
 ---
 ## May 4, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
@@ -105,7 +105,7 @@ But actually it is very difficult to understand your object or subject, life and
 
 For instance, there is a sentence: “This is gone.” At that time, *this* implicates *something to be* in this sentence. So from this point, what does it mean, “this is gone”? But *this*, in this sentence, implicates something to be. But in the predicate it says “is gone.” So what do we mean, “is gone”? Because this is already something to be, and [then] say, “this is gone.” It is impossible to say so, to say about something to be already gone. You cannot say so, you cannot explain, because it is already gone. But you say, “this is gone.” 
 
-Or another sentence, “John is gone.” Well, it means that John cannot be found here, but to expect that he could be found somewhere, or that John, who was here, is gone now. *[He chuckles.]* Like this. So you always use sentences like this, “John is gone.” But it’s really impossible to say [something] about John who is gone. If you use *John*, already John is a person who was here, you already expect this situation. And then next it says, he is gone. [...] So from this point, as long as *this* or *John* is premised, it is impossible for you to [say] entirely [non]. No. You cannot explain entirely [non]. 
+Or another sentence, “John is gone.” Well, it means that John cannot be found here, but to expect that he could be found somewhere, or that John who was here is gone now. *[He chuckles.]* Like this. So you always use sentences like this, “John is gone.” But it’s really impossible to say [something] about John who is gone. If you use *John*, already John is a person who was here, you already expect this situation. And then next it says, he is gone. [...] So from this point, as long as *this* or *John* is premised, it is impossible for you to [say] entirely [non]. No. You cannot explain entirely [non]. 
 
 For instance, [...] it is impossible for us to mention real death, because you go. You cannot. Because if you say, “you are gone,” you are completely gone. That is *your* business, not my business! *[He laughs.]* Not something you should know from your business. No! *[He laughs.]* You are gone: that reality is something *you* should know, you should [be with] it. But you are already gone. So *who* knows? 
 
@@ -163,75 +163,77 @@ For example, just like a dream. A dreamer doesn’t realize his dream while drea
 
 So when you are in the stream of the dream, the dreamer doesn’t know, doesn’t know his dream. That is called *deluded mind*. 
 
-That’s why in the *Diamond Sutra*, bodhisattva always in a certain situation but he never be blind. He is always clear. He is in the darkness, but his light is not dark. His light, his mind, his bodies are always not in the darkness. That always the Diamond Sutra says. So that means bodhisattvas are always in the dream but he or she is always free from the dream. 
+That’s why in the *Diamond Sutra*, bodhisattva always in a certain situation but he never is blind. He is always clear. He is in the darkness, but his light is not dark. His light, his mind, his body is always not in the darkness. That’s always what the *Diamond Sutra* says. So that means bodhisattvas are always in the dream but they are always free from the dream. 
 
-So if you have a certain standard of your view, on the human world, human life – it is fine. But it is deluded. But it is very difficult to realize, because you are dreaming. 
+So if you have a certain standard of your view on the human world, human life – it is fine – but it is deluded. But it’s very difficult to realize, because you are dreaming. 
 
-So, that is deluded mind. That’s why here it says, “Unenlightened men discriminate with their deluded minds from moment to moment.” Constantly you do. Your understanding, so-called “I am dreaming”, [is] in the stream of dreaming. It’s pretty good! It’s better than nothing, anyway. So still there is a chance. Right in the middle of dream, still you can have a chance to know your dream. 
+So, that is *deluded mind*. That’s why here it says, “Unenlightened men discriminate with their deluded minds from moment to moment.” Constantly you do. Your understanding, so-called “I am dreaming”, [is] in the stream of dreaming. It’s pretty good! It’s better than nothing, anyway. Still there is a chance: right in the middle of dream, still you can have a chance to know your dream. 
 
-So that realization is pretty good for us. So that’s why this book, Buddhism always mentions, you should know your cognition. Constantly your mind is working from moment to moment. You should know that fact, reality. And then that realization anyway takes you to a little bit freedom from cognition, on the basis of a certain pattern or category. So you can be free from. 
+That realization is pretty good for us. So that’s why this book and Buddhism always says, you should know your cognition. Constantly your mind is working from moment to moment. You should know that fact, reality. And then that realization takes you to a little bit freedom from cognition on the basis of a certain pattern or category. So you can be free from. 
 
-So realization sometimes, realization takes you to the limit of your cognition, the limit [...] understanding subject and understanding object. You come to a dead end anyway. That is realization. 
-
-And then simultaneously, this door is open. The limit is not the state or fixed partions in front of you. That partition is very soft, just like a curtain. The moment when you touch it, it’s open, it disappears. And then, huge expanse, vast expanse of existence is right in front of you. 
+So sometimes realization takes you to the limit of your cognition, the limit of understanding subject and understanding object. You come to a dead end. That is realization. And then simultaneously, this door is open. The limit is not the [static] or fixed partion in front of you. That partition is very soft, just like a curtain. The moment when you touch it, it opens, it disappears. And then, [a] huge expanse, vast expanse of existence is right in front of you. 
 
 That is characteristic of realization. So-called “spiritual transformation at 360 degrees,” anyway. *[He chuckles.]* Well, sometimes 180. *[He laughs.]*
 
-[...]
+So that’s why we have to say always empty. This is the definition of emptiness. Okay? Empty. 
 
-So this is, that’s why we have to say always empty. This is the definition of emptiness. Okay? Empty. 
-
-> ... but once they are free from their deluded minds, they will find that there is nothing to be negated.
-
-So if you realize this deluded mind, how it is going, you can be free from. 
+“... but once they are free from their deluded minds, they will find that there is nothing to be negated.” So if you realize this deluded mind, how it is going, you can be free from. 
 
 #### 58:37
 
-So next, let’s number two, “Truly Nonempty.”
+So next, let’s [look at] number two, “Truly Nonempty.”
 
-> Since it has been made clear that the essence of all things is empty, i.e., devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called “nonempty”. And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
+> Since it has been made clear that the essence of all things is empty, i.e., devoid of illusions, the true Mind is eternal, permanent, immutable, pure, and self-sufficient; therefore, it is called “nonempty.” And also there is no trace of particular marks to be noted in it, as it is the sphere that transcends thoughts and is in harmony with enlightenment alone.
 
-Non-empty, it mentions before anyway, it is implication of excellent, boundless quality which the truth itself possesses. The truth is of real entity and has boundless nature of its virtuous quality. This is meaning of non-empty. 
+*Non-empty*, it mentions before, it is implication of excellent, boundless quality which the truth itself possesses. The truth is of real entity and has boundless nature of its virtuous quality. This is the meaning of non-empty. 
 
-So non-empty means not deny, not destroy the truth itself, essence of the truth, but we should deny the deluded mind, in this book. But in the Buddhist teaching of *Prajñāpāramitā*, it doesn’t say so. *[He chuckles.]* Okay? In *Prajñāpāramitā*, we say, “Form is emptiness. Emptiness is form.” That means object itself is emptiness. Not deluded, [not] image of your understanding is empty. No. Form itself is empty. Your object itself is empty. Subject itself is empty. That’s why next, emptiness is form. This sentence comes into existence. 
+So [in this book] non-empty means not to deny, not to destroy the truth itself, the essence of the truth, but we should deny the deluded mind. But in the Buddhist teaching of *Prajñāpāramitā*, it doesn’t say so. *[He chuckles.]* In *Prajñāpāramitā*, we say, “Form is emptiness, emptiness is form.” That means object itself is emptiness. Not “deluded,” not “image of your understanding is empty.” No. “Form itself is empty.” Your object itself is empty. Subject itself is empty. That’s why next, “emptiness is form,” this sentence comes into existence. 
 
-If empty implies to negate a deluded mind, you cannot say empty is form. But if form is empty, simultaneously empty is form, that means completely empty form, object itself is empty. So a little different. 
+If empty implies to negate a deluded mind, you cannot say “empty is form”. But if “form is empty, simultaneously empty is form,” that means completely [...] object itself is empty. So a little different. 
 
-But in Prajñāpāramitā Sutra, it doesn’t mention why the object and subject itself is empty, how emptiness is related with object itself. Well, what part of the object is emptiness? It doesn’t [say]. Just Prajñāpāramitā brings up, that sentence, that teaching, that is just emptiness. So it’s very difficult to understand it. 
+But in the *Prajñāpāramitā Sutra*, it doesn’t mention why the object and subject itself is empty, *how* emptiness is related with object itself. Well, what part of the object is emptiness? It doesn’t [say]. Just *Prajñāpāramitā* brings up that teaching, that just emptiness. So it’s very difficult to understand it. 
 
-But in this book, [it’s a little different]. Because we want to know, what part of the object is emptiness? Is [...] the whole thing empty. How about subject? How about subject who is looking at the object? It is also emptiness? This book, that is the Buddhist psychology, is always analyzing, synthesizing like this. So a little bit different. So very naturally it becomes logical, very rational. 
+But in this book, [it’s a little different]. Because we want to know, what part of the object is emptiness? Is [...] the whole thing empty? How about subject? How about subject who is looking at the object? Is it also emptiness? This book, that is Buddhist psychology, is always analyzing, synthesizing like this. So a little bit different. Very naturally it becomes logical, very rational. 
 
-So in this book, that’s why truth itself is never denied. But deluded mind is negated in this book. 
-
-Because later, it says, *tathagatagarbha* means buddha-nature in you, buddha-nature is present in you. Whoever you are, tathagatagarbha is present in you always. That is a teaching of the idea of tathagatagarbha. *Garbha* means “womb,” literally.
+So in this book, that’s why truth itself is never denied, but deluded mind is negated. Because later, it says *tathagatagarbha* means buddha-nature is present in you. Whoever you are, *tathagatagarbha* is present in you always. That is a teaching of the idea of *tathagatagarbha*. *Garbha* means “womb,” literally.
 
 #### 1:03:30
 
-So, “since it has been made clear that the essence of all things is empty.” In this case, “essence of all things is empty” means not clear understanding the truth itself. That’s why next it says, “that is devoid of illusion.” This illusion must be empty, but the truth is the truth as a whole. Anyway, constantly truth. 
+So, 
 
-But still there is a little different understanding about the view on truth. In this book... well, maybe you won’t understand, but maybe you should listen to it, okay? *[He chuckles.]* In this book, truth is understood in two ways. One, truth is completely truth as a whole which exists constantly, eternally. On the other hand, truth is contaminated by human ignorance. That means truth is operating in the human world. The moment when the truth operates in the human world, it is contaminated by deluded mind. So it appears as deluded mind, because it doesn’t cling to its own being. Because truth itself doesn’t have its own particular strong ideas itself. So truth doesn’t have its own substance. 
+> Since it has been made clear that the essence of all things is empty, ...
 
-So that’s why truth is real truth which is eternal, but simultaneously truth doesn’t have its own substance, so it appears any place, in all directions. And then in the human phenomenal world and not-phenomenal world. So when it appears in the phenomenal world, it is contaminated. It is connected with deluded mind, that is called contaminated, *defiled*. 
+In this case, “essence of all things is empty” means not clear understanding the truth itself. That’s why next it says
 
-But in the Buddhist psychology, so-called the “merely mind only.” That is what we call *Yuishiki* Buddhist psychology. In this teaching, I think the truth is always the truth, immutably. Immutably and permanently. It is called dharma of the *mui*. “Mui” means the unconditioned dharma. So truth is completely truth. Nothing to do with the phenomenal world. 
+> ... that is, devoid of illusion, ...
 
-So that is very idealistical, *very* idealistic. That is Buddhist psychology; *Abhidharmakosha*. *[He chuckles.]* So *Abhidharmakosha* is very clear, one by one. But that’s why truth is completely truth; absolute, which exists eternally. 
+This illusion must be empty, but the truth is the truth as a whole. Anyway, constantly truth. 
 
-But here, a little bit different. Truth is eternal, but simultaneously truth is related closely with the phenomenal world. That’s why when it appears in the phenomenal world, it is something different. 
+But still there is a little different understanding about the view on truth. In this book... well, maybe you won’t understand, but maybe you should listen to it, okay? *[He chuckles.]* In this book, truth is understood in two ways. One, truth is completely truth as a whole which exists constantly, eternally. On the other hand, truth is contaminated by human ignorance. That means truth is operating in the human world. The moment when the truth operates in the human world, it is contaminated by deluded mind. So it appears as deluded mind, because it doesn’t cling to its own being. Because truth itself doesn’t have its own particular strong ideas, et cetera, so truth doesn’t have its own substance. 
 
-“Since it has been made clear that the essence of all things is empty, that is, devoid of illusion, the true mind is eternal, permanent, immutable...”
+So that’s why truth is real truth which is eternal, but simultaneously truth doesn’t have its own substance, so it appears any place, in all directions, and then in the human phenomenal world and not-phenomenal world. So when it appears in the phenomenal world, it is contaminated. It is connected with deluded mind; that is called contaminated, *defiled*. 
 
-So truth is immutable, and at the same time conditional. That’s why I said truth is eternal, but simultaneously it appears in the phenomenal world. It means according to the phenomenal world, anyway, it’s [operative]. So operate, that is conditional. So the truth is characterized by eternity and conditioned  – change. That is the idea of the truth in this book. 
+But in the Buddhist psychology, so-called the “merely mind only,” that is what we call *Yuishiki* Buddhist psychology. In this teaching, I think the truth is always the truth, immutably; immutably and permanently. It is called dharma of the *mui* (*Transcriber’s Note*: *muihō* 無為法, derived from Sanskrit *asaṃskṛta-dharma*); “*mui*” means the unconditioned dharma. So truth is completely truth; nothing to do with the phenomenal world. 
 
-So in other words, the truth is eternal and immutable, on the other hand, truth is allowed to change in accordance to circumstances and [...] conditions. That is so-called truth in words. Truth in words; truth appears in the human world. 
+So that is very idealistical, *very* idealistic. That is Buddhist psychology; *Abhidharmakosha*. *[He chuckles.]* *Abhidharmakosha* is very clear, one by one. But that’s why truth is completely truth, absolute, which exists eternally. But here, [it’s] a little bit different. Truth is eternal, but simultaneously truth is related closely with the phenomenal world. That’s why when it appears in the phenomenal world, it is something different. 
 
-And next says, “... pure, and self-sufficient; therefore, it is called ‘nonempty’.” 
+So “since it has been made clear that the essence of all things is empty, that is, devoid of illusion, ...”
 
-So the truth itself has the boundless virtuous quality of purity or clearness. This is the truth itself. So truth itself, complete purity and clearness. Complete by itself. It is not something we try to understand, or we try to escape, or we try to be with. It is not something you should produce. It is already something completed beyond your speculation. So that is “self-sufficient.” That is a *dharma*, so-called dharma, we say. 
+> ... the true mind is eternal, permanent, immutable, ...
 
-So *dharma* is completely something maintaining itself, constantly. So before the world was born in this world, or before the Buddha, even regardless of whether the Buddha was born in this world, it’s going. Or a nuclear weapon destroys the whole world, but still, there is something. This is called the truth. 
+So truth is immutable, and at the same time conditional. That’s why I said truth is eternal but simultaneously it appears in the phenomenal world. It means, according to the phenomenal world, [it operates]. That is conditional. So the truth is characterized by eternity and [it is] conditioned, [so] change. That is the idea of the truth in this book. 
 
-So it is very difficult to understand in words, that’s why we say *emptiness* [by Nāgārjuna]. But emptiness is not real emptiness, that’s why quality of the emptiness or contents of emptiness is called *interdependent co-origination*. This is the structure of emptiness, how emptiness operates in the human world. That is in teaching and in the *Madhyamaka*. 
+So in other words, the truth is eternal and immutable, on the other hand, truth is allowed to change in accordance to circumstances and [...] conditions. That is so-called *the truth in words*. Truth appears in the human world. 
+
+And next it says, 
+
+> ... pure, and self-sufficient; therefore, it is called “nonempty”.
+
+So the truth itself has the boundless virtuous quality of purity or clearness. This is the truth itself. So truth itself, complete purity and clearness, complete by itself. It is not something we try to understand, or we try to escape, or we try to be with. It is not something you should produce. It is already something completed beyond your speculation. So that is “self-sufficient.” That is a *dharma*, so-called *dharma*, we say. 
+
+So *dharma* is completely something maintaining itself, constantly. So before the world was born in this world, or before the Buddha, even regardless of whether the Buddha was born in this world, it’s going. Or a nuclear weapon destroys the whole world, but still there is something. This is called the truth. 
+
+So it’s very difficult to understand in words, that’s why we say *emptiness* [by Nāgārjuna]. But emptiness is not any real emptiness, that’s why quality of the emptiness or contents of emptiness is called *interdependent co-origination*. This is the structure of emptiness, how emptiness operates in the human world. That is in the teaching in the *Madhyamaka*. 
 
 *[The timekeeper indicates that there are ten more minutes.]*
 
@@ -239,11 +241,15 @@ Okay. Ten minutes more. Let me finish, okay? *[He chuckles.]*
 
 That is why it is called *non-empty*. 
 
-And also, there is no trace of particular marks to be noted in [emptiness]. So truth doesn’t have any trace, any marks. No trace of any marks, particularly. So-called it is no color, no smell: even though you say no smell, no color, it is already a certain trace of certain ideas. So truth doesn’t have *any* trace, any trace of particular marks. 
+#### 1:12:52
 
-So something more than marks: no marks. Or both, marks or no marks. That is called no trace. 
+> And also there is no trace of particular marks to be noted in it, ...
 
-So the truth is one or a partless one which is eternal. So the truth itself is of a single mark, so-called *one*, we say. It’s very difficult to say in words, that’s why [finally] says *one mind*. Or *partless one*. If you say *one*, you already understand the *one* opposed to *two*, okay? *[He chuckles.]* So if that one is understanding the truth through the one, you already leave the trace of the word, so-called one. So it’s not real one. That’s why *partless one*: it is completely one, absolute one. 
+So truth doesn’t have any trace, any marks. No trace of any marks particularly, so-called it is no color, no smell: even though you say “no smell”, “no color”, it is already a certain trace of certain ideas. Truth doesn’t have *any* trace of particular marks. 
+
+So something more than marks: no marks. Or both, marks or no marks. That is called “no trace of [marks]”. 
+
+So the truth is one or a partless one which is eternal. So the truth itself is of a single mark, so-called *one*, we say. It’s very difficult to say in words, that’s why [we finally say] *one mind*, or *partless one*. If you say *one*, you already understand the *one* opposed to *two*, okay? *[He chuckles.]* So if that one is understanding the truth through the one, you already leave the trace of the word, so-called *one*. So it’s not real one. That’s why *partless one*: it is completely one, absolute one. 
 
 **Question:** What did you say?
 
@@ -253,61 +259,67 @@ So the truth is one or a partless one which is eternal. So the truth itself is o
 
 **Katagiri Roshi:** Okay? 
 
-So, single marks or *one mind* means when something in common can be found among more than two kinds of color, it is what is called color as I use. If only one color, you cannot have an idea of colors. Only if there are colors more than two, then you can find something in common. And then you can have an idea of colors. But only one color, you cannot have *any* idea of color, because there is only one in this world. 
+So, single [mark] or *one mind* means when something in common can be found among more than two kinds of color, it is what is called *color* as I use. If only one color, you cannot have an idea of colors. Only if there are colors more than two, and then you can find something in common, then you can have an idea of colors. But only one color, you cannot have *any* idea of color, because there is only one in this world. 
 
-Or there is only a single finger, so called “here is a one finger.” Just like a Rinzai master always showed the one finger. When monks asked what buddha-nature is, he always shows [one finger]. Whatever kind of answer comes, he always shows the one finger. It means, “I alone am the honored one.” Okay? It’s one. 
+Or if there is only a single finger, so called “here is one finger.” Just like Gutei Zen Master always showed one finger: when monks asked what the buddha-nature is, he always showed [one finger]. Whatever kind of answer comes, he always shows the one finger. It means [the same as] “I alone am the honored one.” Okay? It’s one. 
 
-So if there is only a single finger, like this, nothing else around this one finger – how can this one finger touch? How can know this one finger? Nothing. If you know even slightly, “here it is,” that is already objectively you can see this [other] one. But in this world only one thing: how can you know? You cannot have even idea of *one*. No. The idea of the perfect one cannot be explained. 
+So if there is only a single finger like this, nothing else around this one finger – how can this one finger touch? How can we know this one finger? Nothing. If you know even slightly “here it is,” that is already [that] objectively you can see this one. But [if there is] in this world only one thing: how can you know? You cannot have even the idea of *one*. No. The idea of the perfect one cannot be explained. So, the perfect *one* is *no form*. The perfect single form is no form. Because you cannot say. 
 
-So, the perfect *one* is *no form*. The perfect single form is no form. Because you cannot say. 
+So that’s why if you concentrate on the breath as it is exactly, there is no form, no trace. That is called *shikan*; *shikantaza*. You don’t believe it, but it is really true. That’s why we have to practice, anyway. That’s why [we say] “sit down without thinking,” but you try to think, *[he chuckles,]* in order to [avoid] wasting time. But it’s not wasted. 
 
-So that’s why *shikan*, if you concentrate on the breath as it is exactly, there is no form, no trace. That is called *shikan*. *Shikantaza*. You don’t believe it, but it is really true. That’s why we have to practice, anyway. That’s why “sit down without thinking,” but you try to think, *[he chuckles,]* in order to [avoid] wasting time. But it’s not wasted. 
+#### 1:18:22
 
-So, in the next [it says], “... as it is the sphere that transcends thoughts.”
+So, next [it says], 
 
-[...] The cognition of the truth is not the dichotomy of the subject and object, but *unity* of subject and object. Cognizing subject and object as a whole. This is the *sphere* – *sphere* means *object*, okay? – “that transcends thoughts.” 
+> ... as it is the sphere that transcends thoughts, ...
 
-So, the cognition of the truth must be something. That means object. If you want to say object, the cognition of the truth is kind of an object which should transcend your thoughts. Because your thought is already deluded. Because your thought is discrimination, which is characterized by separation between the subject and object, clearly. So that is your thoughts. Discrimination, it is called deluded. You never know the truth itself. 
+[...] The cognition of the truth is not the dichotomy of the subject and object, but *unity* of subject and object. Cognizing subject and object as a whole. This is the *sphere* – *sphere* means *object* – that transcends thoughts.
 
-That’s why cognition of the truth is, if you want to say sphere or object, if you want to know the truth as an object, maybe you say the cognition of the truth is a sphere which *transcends*, be free from your thoughts. That is cognition of the truth. 
+So, the cognition of the truth must be something, that means object. If you want to say *object*, the cognition of the truth is kind of an object which should transcend your thoughts. Because your thought is already deluded. Because your thought is discrimination, which is characterized by separation between the subject and object, clearly. That is your thoughts: discrimination; it is called deluded. You never know the truth itself. 
 
-In other words, *cognition itself*, strictly speaking, cognition itself – not by your cognition and then I realize the truth itself. No. *Cognition* itself. Because to swim itself is temporally called *swim*. Or, if you are there, right in the middle of [the] action, the stream of the swimming, you are call *swimmer*, temporally. But this is, anyway, that idea comes from dichotomy. But, if you want to know real swim itself, you must be there. Just be there. That is cognition of the truth, which appears as action, so-called swim. 
+That’s why cognition of the truth is, if you want to say *sphere* or *object*, if you want to know the truth as an object, maybe you say the cognition of the truth is a sphere which *transcends*, [is] free from your thoughts. That is cognition of the truth. 
 
-So if you swim with total function, you don’t know what the swim is. That is called *shikan*. That is called  “free from thought,” or “transcend thoughts.” That’s why if you want to be free from thoughts, you always, you know, practice, and you must be always in the process, in process of practice, action, with clear mind, not blind. Because action is very dangerous. Because immediately action goes this way or that way. Because action creates result, very naturally. So you have to take care of action as clear as it is. So with your clear mind, you have to do it. 
+In other words, *cognition itself*. *[He laughs.]* Strictly speaking, cognition itself – not *by* your cognition *then* I realize the truth itself. No. *Cognition* itself. Because to swim itself is temporally called *swim*. Or, if you are there, right in the middle of [the] action, the stream of the swimming, you are call *swimmer*, temporarily. But that idea comes from dichotomies. If you want to know real swim itself, you must be there. Just be there. That is cognition of the truth, which appears as action, so-called swim. 
 
-That is *practice in precision*. Dōgen Zenji [talks about] precision, practice in precision. When you do gassho, your whole body and mind must do gassho. Not only two hands. When you play the piano, you have to play the piano with the whole body and mind. That is called *shikan*, your actions. At that time your mind, your body, operates clearly. At that time it is called *free from thoughts*.
+So if you swim with total function, you don’t know what the swim is. That is called *shikan*. That is called  “free from thought,” or “transcend thoughts.” That’s why if you want to be free from thoughts, you always practice, and you must be always in the process of practice, action – with clear mind, not [blindly]. Because action is very dangerous, because immediately action goes this way or that way, because action creates result, very naturally. So you have to take care of action as clear as it is. 
 
-It doesn’t mean to try to see something, but to see it as it really is. That means when you swim, you have to swim as you really are. That’s it. Not trying to know swim, or not trying to swim. You just swim. You just swim, there. 
+So with your clear mind, you have to do it. That is *practice in precision*. Dōgen Zenji [talks about] precision, practice in precision. When you do gassho, your whole body and mind must do gassho – not only two hands. When you play the piano, you have to play the piano with the whole body and mind. That is called *shikan* your actions. At that time your mind, your body, operates clearly. At that time it is called *free from thoughts*.
 
-So that swim is continuation of the human action in smooth succession. Very smooth succession. So very naturally you realize very silent proof. If you are just walking in smooth succession, very naturally silent proof is given to you. You don’t know, but you only know. But other people don’t know. That is spiritual security. 
+It doesn’t mean to try to see something, but to see it as it really is. That means when you swim, you have to swim as you really are. That’s it. Not trying to know swim, or not trying to swim; you just swim. You just swim there. 
 
-Anyway, this is called the cognition of the truth, understanding of the truth. So understanding of the truth is what? It’s very practical. Everyday it is clear in – when, where? When you are at, where you live. But your mind must be clear. That is why it’s a little difficult. Your thoughts should be [operate]. Never-the-less, you must be free from thoughts. Okay? 
+So that *swim* is continuation of the human action in smooth succession. Very smooth succession. So very naturally you realize very silent proof. If you are just walking in smooth succession, very naturally silent proof is given to you. You don’t know, but [only you] know. But other people don’t know. That is spiritual security. 
 
-So you have to know what the swim is, you should learn what the swim is. But then you must be free from thoughts. That means jumping into the ocean, anyway. Swim. 
+Anyway, this is called the cognition of the truth, understanding of the truth. 
 
-And then at that time, there is no space to try to know what swim is. You just swim. Just [the] swim is going in smooth succession. 
+So understanding of the truth is what? It’s very practical. Every day it’s clear. When, where? When you act. When you live. But your mind must be clear. That’s why it’s a little difficult. Your thoughts should be [operate]. *[He laughs.]* Never-the-less, you must be free from thoughts. Okay? 
+
+So you have to know what the swim is, you should learn what the swim is. But then you must be free from thoughts. That means jump into the ocean. Swim. And then at that time, there is no space to try to know what swim is. You just swim. Just [the] swim is going in smooth succession. 
 
 *[Tape break.]*
 
-The last sentence says, “... and is in harmony with enlightenment alone.” 
+#### 1:26:15
 
-That is why finally the cognition of the truth can be actualized by wisdom of enlightenment. If you realize, what is the knowing of the truth is. Knowing the truth, cognition of the truth is very quiet, very active practice. And it’s yours, not others’ stories. It’s yours. 
+The last [part of the] sentence says, 
 
-Others is not you. So *I* have to do. If I want to know the truth, *I* have to do. I have to know. I have to be there. It’s not others’ stories. It’s not a matter of discussion. 
+> ... and is in harmony with enlightenment alone.
 
-So that’s why it says here it “is in harmony with enlightenment alone.” That is wisdom of enlightenment. If you attain enlightenment means if you see the human world in a broad scale, perspective, it is called enlightenment, or practically, you can have something. That is enlightenment. Wisdom comes from enlightenment. Enlightenment itself *is* wisdom. When the enlightenment operates in your life, it is called wisdom, anyway. 
+That’s why finally the cognition of the truth can be actualized by wisdom of enlightenment. If you realize, what the knowing of the truth is. Knowing the truth, cognition of the truth, is very quiet, very active practice.
 
-So if you understand what the real meaning of the *swim*, that is enlightenment. And then jump into the ocean. At that time, the wisdom of enlightenment takes care of you, takes care of your swimming, very naturally. 
+And it’s yours. It’s not others’ stories; it’s yours. Others are not you. So *I* have to do. If I want to know the truth, *I* have to do. *I* have to know. I have to be there. It’s not others’ stories. It’s not a matter of discussions. 
 
-So what is the wisdom of enlightenment? It’s a very quiet practice. So-called *shikan*. We say *shikan*, simply speaking. 
+So that’s why it says here “is in harmony with enlightenment alone.” That is wisdom of enlightenment. If you attain enlightenment, that means if you see the human world in a broad scale, perspective, it is called enlightenment. Or practically, you can have something. That is enlightenment. Wisdom comes from enlightenment. Enlightenment itself *is* wisdom. When the enlightenment operates in your life, it is called wisdom. 
 
-Or, we say *samadhi*. From this point, your body and even the actions, so-called swimming, are all right in the middle of *samadhi*. Very quiet. Showing always the truth. Understanding of the truth. Of the ocean, your body and even the action of the swimming. All are samadhi. That samadhi is called *right acceptance*. So, [the] whole thing is going. 
+So if you understand the real meaning of *swim*, that is enlightenment. And then, jump into the ocean. At that time, the wisdom of enlightenment takes care of you, takes care of your swimming, very naturally. 
+
+So what is the wisdom of enlightenment? It’s a very quiet practice. So-called *shikan*, we say *shikan*, simply speaking. 
+
+Or we say *samadhi*. From this point, your body and even the actions, so-called swimming, are all right in the middle of *samadhi*. Very quiet, showing always the truth, understanding of the truth – of the ocean, your body, and even the action of the swimming. All are *samadhi*. That *samadhi* is called *right acceptance*. So, [the] whole thing is going. 
 
 According to the *Avatamsaka Sutra*, not only human beings, *all* sentient beings are right in the middle of samadhi. Huge samadhis. So we are swimming in the ocean of the samadhi. 
 
 So that is “is in harmony with enlightenment alone.” 
 
-So through this, two kinds of truth we have to know. *Real* truth. That real truth is in the last [paragraph].
+So through this, two kinds of truth, we have to know *real* truth. That real truth is in the last [paragraph].
 
 ####  end of recording
 
@@ -315,4 +327,4 @@ So through this, two kinds of truth we have to know. *Real* truth. That real tru
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-04-27-Awakening-of-Faith-Talk-6) | [Next](1984-05-14-Awakening-of-Faith-Talk-9) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
