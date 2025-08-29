@@ -17,25 +17,23 @@ title: "The Awakening of Faith – Talk 8"
 
 **Katagiri Roshi:** I would like to review and also [explain] a little bit, in relation between the mind in terms of phenomena and the mind in terms of the truths. 
 
-In this book, *Mahayana* is about the truth. Do you remember, the meaning of Mahayana? 
+In this book, *Mahayana* is the truth. Do you remember, the meaning of Mahayana? 
 
 Well, let me say more. In this book, Mahayana is not the Mahayana in relation to Hinayana, but the truth. And truth is considered as the mind of all sentient being. 
 
-This is a very interesting point in Buddhism. Probably we discussed about this, why we call the truth *mind*. Because truth is still, a truth is the universal scale of being where all sentient beings exist in peace and harmony. This is the truth. But all sentient beings are nothing but all of us, including floors, animate being or inanimate being. And all sentient beings are not objects separate from us, separate from human mind. So exactly all sentient beings are already considered or recognized or known by human mind. 
+This is a very interesting point in Buddhism. Probably we discussed about this, why we call the truth *mind*. Because the truth is the universal scale of being where all sentient beings exist in peace and harmony. This is the truth. But all sentient beings are nothing but all of us, including floors, animate being or inanimate being. And all sentient beings are not objects separate from us, separate from human mind. So exactly all sentient beings are already considered or recognized or known by human mind. 
 
-So in other words, regardless of whether you can see or hear or not, all sentient beings are already seen within the cognition of human mind, human cognition. So everything is already in the human cognition. Because, even a little bit, we can see through human consciousness, we can see [panoramic] picture of the universe. Can’t you? You can do it. You can see the [panoramic] picture of the earth where you are, and also other planet you are not, you have never been, and also space between the other planets and the earth we live in. You can see it. (*Transcriber’s Note:* Katagiri Roshi says “cinerama,” but probably means “panoramic.” Cinerama was a widescreen movie format.)
+So in other words, regardless of whether you can see or hear [them] or not, all sentient beings are already seen within the cognition of human mind, human cognition. So everything is already in the human cognition. Because, even a little bit, we can see through human consciousness [the panoramic] picture of the universe. (*Transcriber’s Note:* Katagiri Roshi says “cinerama” but probably means “panoramic”. Cinerama was a widescreen movie format.) Can’t you? You can do it. You can see the [panoramic] picture of the earth where you are, and also [another] planet [where] you are not, [where] you have never been, and also space between the other planets and the earth we live in. You can see it. 
 
-So from this point, if you can see the [panoramic] picture of whole universe, including space and time, it means you can see through your human consciousness all sentient beings, already. Because you can see the [panoramic] picture of the whole universe. So in this [panoramic] picture of the whole universe, there are many beings exist, that is all sentient beings. So regardless of whether you are conscious of it or not, all sentient beings are already belonging to us, within our consciousness. 
+So from this point, if you can see the [panoramic] picture of whole universe, including space and time, it means you can see through your human consciousness all sentient beings, already. Because you can see the [panoramic] picture of the whole universe. So in this [panoramic] picture of the whole universe, there are many beings [that] exist; that is *all sentient beings*. So regardless of whether you are conscious of it or not, all sentient beings are already belonging to us, within our consciousness. 
 
 So that’s why even the truth is not the truth completely separate from us, because truth is already recognized within our consciousness. So that’s why truth is called mind. 
 
-So that mind is not kind of abstract mind, this mind is also human mind. This mind of the truth, mind of all sentient beings can be considered by human mind you can have. So this mind is pretty common human mind. Within this human mind, there is a mind of the truth, where all sentient beings exist in peace, in harmony. 
-
-That’s why Mahayana is the truth. Truth is the mind of all sentient beings. 
+So that mind is not a kind of abstract mind, this mind is also human mind. This mind of the truth, mind of all sentient beings can be considered by the human mind you can have. So this mind is pretty common human mind. Within this human mind, there is a mind of the truth, where all sentient beings exist in peace, in harmony. That’s why Mahayana is the truth, [and] truth is the mind of all sentient beings. 
 
 So without learning the human mind, you don’t understand the truth, you don’t understand all sentient beings. 
 
-And then the question is, mind of all sentient beings is what? 
+And then the question is, *mind of all sentient beings* is what? 
 
 Mind of all sentient beings is nothing but our mind. 
 
@@ -43,37 +41,35 @@ So our mind is what?
 
 Our mind consists of two worlds. That is mundane world, supermundane world. 
 
-And the mundane world is very clear, is the world which the usual deluded person can understand. Mundane world is the world understood by ordinary person through their consciousness. So that is already defiled world. Because we already understand that world, the human world, through our six senses. That is already perverted. 
+The mundane world is very clear, [it] is the world which the usual deluded person can understand. The mundane world is the world understood by [an] ordinary person through their consciousness. So that is already defiled world, because we already understand that world, the human world, through our six senses. That is already perverted. 
 
-And the supermundane is the world in relation to mundane world. That’s why it is called *undefiled* world. 
+And the supermundane is the world in [...] relation to the mundane world. That’s why it is called *undefiled* world. 
 
-And then, is this undefiled world and defiled world separated or one? What do you think? 
+And then, are this undefiled world and defiled world separated or one? What do you think? 
 
 **Someone:** One. 
 
 **Katagiri Roshi:** One. 
 
-It’s very close. It’s not a combination of the mundane world and the supermundane world. Not a combination. They are two, but they are one. 
-
-So that is very important point that [...] this book [says]. 
+It’s very close. It’s not a combination of the mundane world and the supermundane world. It’s not a combination. They are two, but they are one. So that is a very important point that this book [says]. 
 
 That oneness of supermundane and mundane worlds is called what? 
 
-**Someone:** Truth. 
+**Someone:** Truth?
 
 **Katagiri Roshi:** Truth... And also, oneness of the supermundane and mundane worlds is called *tathagatagarbha*. 
 
-Tathagatagarbha is, the *Tathagata* is [the] Buddha, *garbha* is “womb.” So Tathagata storehouse, Tathagata womb, means everyone is buddha. Buddha consists of the principle, and wisdom: the oneness of the principle and wisdom. In this book, *buddha* means oneness of principle and wisdom. *Principle* means [dharma body]. Truth itself. 
+Tathagatagarbha is, *tathagata* is the *Tathagata*, Buddha; *garbha* is “womb.” So Tathagata storehouse, Tathagata womb, means everyone is buddha. Buddha consists of the principle, and wisdom: the oneness of the principle and wisdom. In this book, *buddha* means oneness of principle and wisdom. *Principle* means [dharma body]. Truth itself. 
 
-And this truth and wisdom [is] already present in us, but covered with [defilement]. Delusion. *Klesha*. So dharma body as a principle and wisdom doesn’t work. Actually, it’s covered. But anyway, I don’t know [what] to call it, but anyway, we are already, it is. The Tathagata is covered with delusions and defiledness. 
+And this truth and wisdom [is] already present in us, but covered with [defilement]. Delusion; *klesha*. So dharma body as a principle and wisdom doesn’t work; actually it’s covered. I don’t know [what] to call it, but anyway, already the *tathagata* is covered with delusions and defiledness. 
 
-That’s why we say *tathagatagarbha*. We are already the infant, the babies. Any time, when you are ready to be in the human world, you can come out. That is *tathagatagarbha*. 
+That’s why we say *tathagata-garbha*. We are already the infant, the babies. Any time, when you are ready to be in the human world, you can come out. That is *tathagatagarbha*. 
 
-So, *tathagatagarbha* means all of us, all sentient beings, so-called *mind of all sentient beings*. That mind of all sentient beings consists of the defiledness and undefiledness. Which means supermundane and mundane world. 
+So, *tathagatagarbha* means all of us, all sentient beings, so-called *mind of all sentient beings*. That mind of all sentient beings consists of the defiledness and undefiledness, which means [mundane and supermundane] world. 
 
-[...] That teaching of the *tathagatagarbha* is teaching of Mahayana. Mahayana emphasizes that teaching, the teaching of *tathagatagarbha*. That is called Mahayana. 
+That teaching of the *tathagatagarbha* is the teaching of Mahayana. Mahayana emphasizes that teaching, the teaching of *tathagatagarbha*. That is called Mahayana. 
 
-So [that is] why we call this teaching Mahayana, because this Mahayana emphasizes the truth as the mind of all sentient beings. Consisting of supermundane and mundane world. But supermundane and mundane worlds are not separated, because they are one. That is called *tathagatagarbha*. 
+So [that is] why we call this teaching Mahayana, because this Mahayana emphasizes the truth as the mind of all sentient beings, consisting of supermundane and mundane world. But the supermundane and mundane worlds are not separated, because they are one. That is called *tathagatagarbha*. 
 
 Do you have questions about this so far? 
 
@@ -85,43 +81,37 @@ Do you have questions about this so far?
 
 **Same person:** Does the mind include even that which we cannot imagine? 
 
-**Katagiri Roshi:** Oh, well, “you cannot imagine” is already something you can imagine, so already *all sentient beings*. *All sentient beings* means something you can imagine, something you can’t imagine; that is all sentient beings. 
+**Katagiri Roshi:** Oh, well, “you cannot imagine” is already something you can imagine, so already *all sentient beings*. *All sentient beings* means something you can imagine, something you cannot imagine; that is all sentient beings. 
 
-And also you can recognition. Recognition means to recognize something and not recognize something. That is called recognition. Cognition. 
+And also [...] recognition. Recognition means to recognize something and not recognize something. That is called recognition. Cognition. 
 
-Well, this is the truth, [...] which is called the universe. In the universe you can see the panoramic picture of the universe. Well, you already see the panoramic picture of the universe. That means huge world. 
+Well, this is the truth, [...] which is called the universe. In the universe you can see the panoramic picture of the universe. 
 
-And then, next, your consciousness operates in the time process. Very naturally you can pick up one, two, three. That is your vision. That is the characteristic of your consciousness. 
+Well, you already see the panoramic picture of the universe. That means huge world. And then, next, your consciousness operates in the time process. Very naturally you can pick up one, two, three. That is your vision. That is the characteristic of your consciousness. 
 
-So according to characteristic of consciousness, you can say there are some you can imagine, there are some you cannot imagine. But as a whole, you can immediately see the panoramic picture of the universe. 
+So according to the characteristic of consciousness, you can say there are some you can imagine, there are some you cannot imagine. But as a whole, you can immediately see the panoramic picture of the universe. 
 
-For instance, if you come to this room, immediately you catch whole picture of this room. This is called what? What kind of mind is this? 
+For instance, if you come to this room, immediately you catch the whole picture of this room. This is called what? What kind of mind is this? 
 
 **Someone:** Intuitive mind?
 
 **Katagiri Roshi:** Intuitive mind. 
 
-So intuitive mind operates in the universal perspective. As a whole, anyway. And then next, your consciousness operates one by one. That is dualistic world. 
+So intuitive mind operates in the universal perspective; as a whole, anyway. And then next, your consciousness operates one by one. That is the dualistic world. 
 
-And also, this is a most important teaching in Buddhism, because this is a very basic way of thinking, human thinking. All sentient beings are already recognized, cognized by us. In other words, if you exist in this world, all sentient beings are already accepted within your life. In other words *related* with you very closely. Otherwise, there is no object, there are no object. So all objects you can imagine [or] you cannot imagine are already cognized by you. In other words, all sentient beings within your life. That is called *all sentient beings*. 
+[...] This is a most important teaching in Buddhism, because this is a very basic way of thinking, human thinking. All sentient beings are already recognized, cognized by us. In other words, if you exist in this world, all sentient beings are already accepted within your life – in other words *related* with you, very closely. Otherwise, there is no object [...] So all objects you can imagine [or] you cannot imagine are already cognized by you. In other words, all sentient beings [are] within your life; that is called *all sentient beings*. It means your existence and also others’ existence are simultaneously in the same one level, one ground, simultaneously. So all sentient beings are connected in not a vertical way, [but] in a horizontal way. Do you understand? 
 
-It means your existence and also others existence are simultaneously in the same one level, one ground. Simultaneously. So all sentient beings are connected in not a vertical way, in a horizontal way. Do you understand? “In a vertical way” means the boss and students. This hierarchical way. Do you understand? That is very intellectual. *[He laughs.]* In an intellectual way you accept all sentient beings immediately in a vertical way. There is a top, and second, third. Already you are separate. Like this. 
+“In a vertical way” means the boss and students; this [is the] hierarchical way. That is very intellectual. *[He laughs.]* In an intellectual way you accept all sentient beings immediately in a vertical way. There is a top, and second, third, fourth. Already you are separate, like this. This is important too. But if that hierarchical way of thinking is considered as the most fundamental way of thinking, it is called intellectual. Very intellectual. The intellectual way is kind of “father-like”; very strict. Do you understand? Very “you are you.” You are not “B”; that is why you are you. You never accept “B.” So there is a very clear discrimination there. But in Buddhism it’s quite different. Basically all sentient beings are completely accepted and exist in the same ground, not different. So very naturally a Buddhistic way is very “mother-like” type. Very gentle and compassionate, *very* compassionate. That is a *fundamental* way of thinking. 
 
-But this is important too. But that is if that hierarchical way of thinking is considered as the most fundamental way of thinking, it is called intellectual. Very intellectual. Intellectual way is kind of father-like. Very strict. Do you understand? Very “you are you.” You are not “B,” that is why you are you. You never accept “B.” So there is a very clear discrimination there. 
+But apparently, we need both. You have to understand the relationship between you and all sentient beings in a vertical way, but simultaneously, you have to have the relation between you and all sentient beings in the horizontal way, too. 
 
-But in Buddhism it is a little bit different, quite different. Basically all sentient beings are completely accepted and exist in the same ground, not different. So very naturally a Buddhistic way is very mother-like type. Very gentle and compassionate, *very* compassionate. That is a fundamental way of thinking. 
+But basically, [where] your fundamental way of thinking is placed, that is very important. And then your attitude is quite different; attitude is taken in a different way. I don’t know, this is a different characteristic of intellectual and not intellectual. Very systemized, very father-like and mother-like. We need both in human life; but always there is a difference, a little difference where you are standing. That is a fundamental way of thinking. 
 
-But apparently, we need both. [...] You have to understand the relationship between you and all sentient beings in a vertical way, but simultaneously, you have to have a relation between you and all sentient beings in a horizontal way, too. 
+So that’s why this is “the truth is called mind” and “the truth is called *mind of all sentient beings*”; it’s very important for us. And also the supermundane and mundane worlds are one, which is called *tathagatagarbha*. This is a very basic understanding of human life in Buddhism. 
 
-But basically, what is your way, fundamental way of thinking is a place. That is very important. And then your attitude is quite different. Attitude is taken in a different way. 
+Well, you can see the different ways in your life.
 
-I don’t know, this is a different characteristic of intellectual and not intellectual. Very systemized, very father-like and mother-like. But we need both in human life. But always there is a difference, a little difference where you are standing. That is a fundamental way of thinking. 
-
-So that’s why this is the truth is called mind and the truth is called *mind of all sentient beings*. It’s very important for us. And also the supermundane and mundane worlds are one, which is called *tathagatagarbha*. This is a very basic understanding of human life in Buddhism. 
-
-Well, you can see the different way, anyway, in your life.
-
-Do you have a question? Anything else? 
+Do you have [another] question? Anything else? 
 
 #### 25:12
 
@@ -129,29 +119,25 @@ Do you have a question? Anything else?
 
 **Katagiri Roshi:** Mm-hmm.
 
-**Same person:** So if the things I imagine and the things I cannot imagine are all part of my mind. Is Tony’s mind part of my mind? 
+**Same person:** So if the things I imagine and the things I cannot imagine are all part of my mind, is Tony’s mind part of my mind? 
 
-**Katagiri Roshi:** Sure. Not part of your mind; Tony’s mind is already contents of your mind. Because Tony’s mind is already something existing on the same and one level. So that’s why all sentient beings must be accepted simultaneously, before you analyze, synthesize. That’s why you have to accept all sentient beings. 
+**Katagiri Roshi:** Sure. Not part of your mind; Tony’s mind is already *contents* of your mind, because Tony’s mind is already something existing on the same and one level. So that’s why all sentient beings must be accepted simultaneously, before you analyze, synthesize. That’s why you have to accept all sentient beings. 
 
-So your mind is Tony’s mind, it is already separated, but basically you have to accept, totally. That is called Tony’s mind is your mind, Tony’s mind is a part of your mind, or Tony’s mind is the same mind as you. But this is already dualistic. But you should accept totally. What do I mean? This is Tony’s mind is nothing but the difference *from you*. So that means what? Tony’s mind is a content of your life. 
+So your mind is Tony’s mind; it is already separated, but basically you have to accept, totally. That is called “Tony’s mind is your mind”, “Tony’s mind is a part of your mind”, or “Tony’s mind is the same mind as you”. But this is already dualistic. So you should accept totally. What do I mean? “This is Tony’s mind” is nothing but the difference *from you*. So that means what? Tony’s mind is the content of your life. 
 
 *[Tape break.]*
 
-That means, if you see the Tony’s different type of Tony’s mind, it is already, well, you can see your mind. It is exactly your mind. 
+... That means, if you see the different type of Tony’s mind, it is already you can see your mind, it is exactly your mind. So other’s story is not other’s story, other’s story is your story. Do you understand? 
 
-So other’s story is not other’s story, other’s story is your story. Do you understand? 
+That means in the human world, there are different kind of human beings exist. Good person, bad person, very cruel person, many beings exist. Hells, hungry ghosts, fighting spirits, and, you know, the bodhisattvas, celestial beings, human beings – many beings exist. And many beings can be seen objectively in your world, but their stories are not other’s stories, [they’re] your stories. So you can see the hells, hungry ghosts, fighting spirits, celestial beings, etc. can exist within you. Do you understand? 
 
-That means in the human world, there are different kind of human beings exist. Good person, bad person, very cruel person, many beings exist. Hells, hungry ghosts, fighting spirits, and, you know, the bodhisattvas, celestial beings, human beings, many beings exist. Many beings can be seen objectively in your world, but their stories are not other’s stories. [They’re] your stories. So you can see that hells, hungry ghosts, fighting spirits, celestial beings, etc. can exist within you. Do you understand? 
+So you cannot criticize others, you cannot treat others very badly, anyway. Well, whoever they are. So that’s why I say always, even though [...] let’s say a bank robber, you can arrest him, but you cannot treat him very badly. You have to treat him or her gently, because they are nothing different from you. So you have to treat him [gently]; but he did something wrong, that’s why we have to put him in a different place, that is called jail. We say “jail”, but even though they live in a jail, they are not different from you. But they did something, that’s why we have to arrest them for a while in a different place. In order to reflect upon themselves. *[He chuckles.]* Anyway, we can give an opportunity to come back to the human world, *tathagatagarbha*’s world. 
 
-So you cannot criticize, you can’t treat others very badly, anyway. Well, whoever they are. So that’s why I say always, even though you can see, you can catch, even though the person, let’s say, bank robber, you know, bank robber, you can arrest him, but you cannot treat him very badly. You have to treat him or her anyway gently because they are nothing different from you. So you have to treat him. But he did something wrong, that’s why we have to put him in a different place, that is called jail. We say jail, but even though they live in a jail, but they are not different from you. But they did something, that’s why we have to anyway arrest for a while in a different place. In order to reflect upon themselves. *[He chuckles.]* Anyway, we can give an opportunity to come back to the human world, *tathagatagarbha*’s world. 
-
-That is completely the fundamental way of thinking. Where is fundamental way of thinking is placed, you have to accept completely all sentient beings. But if you deal with human beings, [...], very intellectually: you are a bad boy, so you should be in jail. So if you are in jail, you are completely different person. 
+That is completely the fundamental way of thinking. Where this fundamental way of thinking is placed, you have to accept completely all sentient beings. But if you deal with human beings [...] very intellectually: you are a bad boy, so you should be in jail; if you are in jail, you are completely different person. 
 
 So wherever you may be, always there is such an attitude. Such a fundamental way of thinking operates constantly. 
 
 What is the question? 
-
-#### 30:52
 
 **Question:** In a culture where this is fundamentally accepted, wouldn’t it be a very democratic culture? And there wouldn’t be hierarchy? 
 
@@ -159,7 +145,7 @@ What is the question?
 
 **Same person:** But that’s not really true in Japan, is it? 
 
-**Katagiri Roshi:** Well, on the appearance, on the surface aspect of the human world, there is a hierarchy, you know. And also on hierarchies means time and space, very naturally. But I am talking about, where is the fundamental way of thinking is placed. Where is it? There is hierarchical way or not hierarchical way. Where is your relation? Where is the relation among the human beings? Among all sentient beings. Standing where? Hierarchical way, relation in vertical or relation in horizontal. That creates quite different world. Spiritually, quite different. 
+**Katagiri Roshi:** Well, on the appearance, on the surface aspect of the human world, there is a hierarchy, you know. And also on hierarchies means time and space, very naturally. But I am talking about, where the fundamental way of thinking is placed. Where is it? There is hierarchical way or not hierarchical way. Where is the relation among the human beings? Among all sentient beings. Standing where? Hierarchical way, relation in vertical, or relation in horizontal. That creates quite a different world. Spiritually, quite different. 
 
 #### 32:24
 
