@@ -17,7 +17,7 @@ This series of transcripts is in draft stage.
 - [Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 - [Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6)
 - [Talk 7](1984-05-04-Awakening-of-Faith-Talk-7)
-- Talk 8
+- [Talk 8](1984-05-11-Awakening-of-Faith-Talk-8)
 - Talk 9: Two Kinds of Nowness
 - Talk 10: Time
 - Talk 11: Alayavijnana and Tathagatagarbha
@@ -39,7 +39,7 @@ This series of transcripts is in draft stage.
 ###### Series 4
 
 - Talk 29
-- Talk 30 - *Currently not  available. Audio file is a duplicate of Talk 29.*
+- Talk 30 - *Currently not available. Audio file is a duplicate of Talk 29.*
 - Talk 31
 - Talk 32
 
