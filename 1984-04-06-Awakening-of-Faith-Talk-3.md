@@ -41,55 +41,49 @@ So the interpretation is divided into three chapters. One is “Revelation of th
 
 *Mahayana faith*, not faith *in* Mahayana. The original text says *Mahayana faith* in the Outline. [...] Here it says “The Awakening of Faith,” but sometimes in this translation it says “The Awakening of Faith in Mahayana.” *[Katagiri Roshi makes a noise that sounds a lot like “bleh,” but could be “but.”]* [But] it's not *in* Mahayana, [it’s] *Mahayana faith*, okay? Because faith must be dynamic working, reaching to the limits of phenomena, the limits of human knowledge. At that time, you can really touch the core of existence. So, [...] at that time it is called *dynamic working*, *truth*. 
 
-So [...] “Revelation of True Meaning” is [that] they try to explain the *real* meaning of Mahayana teaching. Or concretely speaking, particularly [...] in terms of our life, “revelation of the true meaning” means [...] what is the overall picture of your life. Simply speaking, you say reality: *real* reality. Real reality, the overall picture of reality; what is the overall picture of reality you are present in from moment to moment. That is “Revelation of *True* Meaning.” So this is the title of Chapter One.
+So [...] “Revelation of True Meaning” is [that] they try to explain the *real* meaning of Mahayana teaching. Or concretely speaking, particularly [...] in terms of our life, “revelation of the true meaning” means [...] what is the overall picture of your life. Simply speaking, you say reality: *real* reality. Real reality, the overall picture of reality: what is the overall picture of reality you are present in from moment to moment. 
+
+That is “Revelation of *True* Meaning.” So this is the title of Chapter One.
+
+#### 6:50
 
 And then, this Chapter One is also divided into two sections. [The first] is called [...] “One Mind and Its Two Aspects.”
 
 > I. One Mind and Its Two Aspects
 > 
-> The revelation of the true meaning [...] by [...] that the principle of One Mind has two aspects. One is the aspect of Mind in terms of the Absolute [...], and the other is the aspect of Mind in terms of phenomena [...]. Each of these two aspects embraces all states of existence. Why? Because these two aspects are mutually inclusive.
+> The revelation of the true meaning by that the principle of One Mind has two aspects. One is the aspect of Mind in terms of the Absolute, and the other is the aspect of Mind in terms of phenomena. Each of these two aspects embraces all states of existence. Why? Because these two aspects are mutually inclusive.
 
-The last sentence is translated in a different way according to D. T. Suzuki. He says, "Both are so closely interrelated that one cannot be separated from the other." 
-
-Well, anyway:
-
-#### 8:57
+The last sentence is translated in a different way according to D. T. Suzuki. He says, "Both are so closely interrelated that one cannot be separated from the other." Well, anyway:
 
 > The revelation of the true meaning by that the principle of One Mind has two aspects. 
 
-In this case “the principle” means *dharma*. *Dharma* is translated as “the principle” here, in this translation. So, “dharma of one-mind.” 
+In this case “the principle” means *dharma*. *Dharma* is translated as “the principle” here, in this translation. So, “dharma of one-mind”. 
 
-Look at page 28, “Part Two (Outline),” the third paragraph: 
+Look at page 28, “Part Two (Outline)”, the third paragraph: 
 
 > The principle is "the Mind of the sentient being." This Mind includes in itself all states of being of the phenomenal world and the transcendental world. On the basis of this Mind, the meanings of Mahayana may be unfolded. 
 
-In this case also “the principle” refers to *dharma*. “The dharma is the mind of the sentient being. This mind includes in [itself] all states of being of the phenomenal world and the transcendental world. On the basis of this mind, the meanings of Mahayana may be unfolded.” This statement is described in detail in this paragraph I read, “One Mind and Two Aspects.” So that's why here it says, the revelation of the true meaning by that principle [of] the dharma of the one-mind has two aspects. 
+In this case also “the principle” refers to *dharma*. “The dharma is the mind of the sentient being. This mind includes in [itself] all states of being of the phenomenal world and the transcendental world. On the basis of this mind, the meanings of Mahayana may be unfolded.” This statement is described in detail in this paragraph I read, “One Mind and Two Aspects”. So that's why here it says, “the revelation of the true meaning by that principle [of] the dharma of the one-mind has two aspects.” 
 
-So from this point, *one-mind* means *dharma*. One-mind is dharma, dharma is one-mind. One-mind means universal entity. You can say *absolute*, you can say *truth*. 
+So from this point, *one-mind* means *dharma*. One-mind is dharma, dharma is one-mind. One-mind means *universal entity*. You can say *absolute*, you can say *truth*. 
 
-In the Avatamsaka school, *Avatamsaka Sutra*, we say *Mind Only*. Mind Only, this is also one-mind; [it is the] same meaning [as] one-mind. The teaching of the Mind Only comes from this, *The Awakening of Faith*. 
+In the Avatamsaka school, the *Avatamsaka Sutra*, we say “*Mind Only*”. Mind Only, this is also one-mind; [it is the] same meaning [as] one-mind. The teaching of the Mind Only comes from this, *The Awakening of Faith*. 
 
-So this book has lots of teachings. Zen teachings are also here. This book tried to collect the essence of the Buddhist teaching. So from this book, the Shin school comes out, Zen comes out from this teaching, *Avatamsaka Sutra*, and also the Buddhist psychology. So this book is kind of a... what would you say... “digest” of Buddhist teaching. That's why this book is very popular. 
+So this book has lots of teachings; Zen teachings are also here. This book tried to collect the essence of the Buddhist teaching; so from this book, the Shin school comes out, Zen comes out from this teaching, *Avatamsaka Sutra*, and also the Buddhist psychology. So this book is kind of a... what would you say... “digest” of Buddhist teaching. That's why this book is very popular. 
 
-Usually one-mind is understood as the absolute in the philosophical sense. But here it says, one-mind, dharma, is the mind of the all sentient beings. [This is] not [the] ontological, philosophical sense. Dharma is not the philosophical sense, but that is the mind of all sentient beings. So that means all of us. So dharma or one-mind is the mind of all sentient beings: the mind of the tape recorder, the mind of all of us. 
+Usually one-mind is understood as *the absolute* in the philosophical sense. But here it says, one-mind, dharma, is the mind of the all sentient beings. [This is] not [the] ontological, philosophical sense; dharma is not the philosophical sense, but [it] is the mind of all sentient beings. So that means all of us. Dharma or one-mind is the mind of all sentient beings: the mind of the tape recorder, the mind of all of us. So [it comes] very close. If you understand one-mind as philosophical or psychological, it's kind of an idea. But if you understand one-mind as the mind of all sentient beings, it comes very close. That's why in Part Two (Outline), first of all it says [that] dharma is the mind of sentient beings. This is very important. 
 
-So [it comes] very close. If you understand one-mind as philosophical or psychological, it's kind of an idea. But if you understand one-mind as the mind of all sentient beings, it comes very close. 
+And also, this one-mind unfolds Mahayana teaching. So all Mahayana teaching comes from one-mind. [...] Idealistically you say *truth*, or the *buddha-nature*, or *dharma-nature*, or *tathagatagarbha* – whatever you say – but the Mahayana teaching comes from the mind of all sentient beings. That teaching comes from all of you, from your life. That's why here it says the dharma is the mind of all sentient beings. 
 
-That's why in Part Two (Outline), first of all it says [that] dharma is the mind of sentient beings. This is very important. 
-
-And also, this one-mind unfolds Mahayana teaching. So all Mahayana teaching comes from one-mind. That is [...], idealistically, you say *truth*, or the *buddha-nature*, or *dharma-nature*, or *tathagatagarbha* – whatever you say – but the Mahayana teaching comes from the mind of all sentient beings. That teaching comes from all of you, from your life. 
-
-That's why here it says, the dharma is the mind of all sentient beings.
-
-That's why I [always say] Buddha’s teaching is human life. It's not philosophy! It's philosophy because life is very complicated. That's why we have to understand it as best as we can. [...] In order to understand the human life philosophically, psychologically... well, it becomes very complicated. But it's really connected with human life. If you don't understand the philosophical aspect of Buddhist teaching in relation with human life, it's nothing but, what would you say, metaphysical, philosophical. It’s just ideas. 
+That's why I [always say] Buddha’s teaching is human life. It's not philosophy! It's philosophy because life is very complicated; that's why we have to understand it as best as we can. [...] In order to understand the human life philosophically, psychologically... well, it becomes very complicated. But it's really connected with human life. If you don't understand the philosophical aspect of Buddhist teaching in relation with human life, it's nothing but, what would you say, metaphysical, philosophical. It’s just ideas. 
 
 When I went to university, [...] all the teachers gave lectures on the *Madhyamakas*, and the *Avatamsaka Sutras*, and emptiness... Whatever they taught, all of their teaching was really cold. Their teaching had nothing to do with our lives. 
 
-So [...] when the truth is seen in terms of [...] the phenomenal world of human suffering, in other words the samsaric world, truth is called “the mind of all sentient beings.” But, when the truth is seen from the absolute – no delusions, no confusions, et cetera – it is called one-mind, we say one-mind. So, there are many words there, but they all have [almost] the same meaning. But when the truth is seen from a different angle, at that time, truth has different words. One-mind, the mind of all sentient beings. Or *tathagatagarbha* means you have buddha-nature, you are already buddha-nature, buddha. This is *tathagatagarbha*. You are already *stored*; *garbha* means “storage.” “Dharma container,” your body is dharma container, *garbha*. *Tathagata* means *buddha*. 
+So [...] when the truth is seen in terms of [...] the phenomenal world of human suffering, in other words the samsaric world, truth is called “the mind of all sentient beings.” But, when the truth is seen from the absolute – no delusions, no confusions, et cetera – it is called “one-mind”, we say one-mind. So there are many words there, but they all have [almost] the same meaning. But when the truth is seen from a different angle, at that time, truth has different words. One-mind, the mind of all sentient beings. Or *tathagatagarbha* means you have buddha-nature, you are already buddha-nature, buddha; this is *tathagatagarbha*. You are already *stored*; *garbha* means “storage.” “Dharma container”: your body is dharma container, *garbha*. *Tathagata* means *buddha*. 
 
 #### 20:18
 
-So, “... the principle” – the dharma – “of One Mind has two aspects.”
+So, “the principle” – the dharma – “of One Mind has two aspects...”
 
 > One is the aspect of Mind in terms of the Absolute ...
 
