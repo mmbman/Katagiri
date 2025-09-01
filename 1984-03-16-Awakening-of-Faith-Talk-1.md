@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 1: Introduction and Invocation"
 
 ### Summary
 
-Katagiri Roshi briefly introduces *The Awakening of Faith* and goes over the structure of the book. After answering a few questions, he comments on the Invocation, followed by another question.
+Katagiri Roshi briefly introduces *The Awakening of Faith*, goes over the structure of the book, and comments on the Invocation.
 
 ### Transcript
 
