@@ -261,11 +261,11 @@ Okay. Do you have questions?
 
 For instance, when you do zazen, that is simple zazen. *Buddha* means, if you are buddha, and then “you should act as a buddha in zazen” means ... well, what do you mean by this? Zazen and you are not separated, zazen and you are interconnected, interpenetrated – having a great, wonderful created world there, created life there, between zazen and you. Very nice creation there, created life. But we don’t do it. Look at the trees and winter: wonderful creation there. But we don’t do it. We are always doing zazen, but [we’re] always complaining, and daydreaming, and always thinking, chasing after thoughts. Don’t you think so? We are always creating a gap between zazen and us. 
 
-So it’s very difficult to create universal life, created life. I say *group creation*, okay? *[He chuckles.]* *Group* creation. *Sangha* means by the sangha you have to have group creation, wonderful creation in life. That means each person must communicate very closely; don’t create a gap. But that is very difficult. If you live like this, very naturally you are fighting, you know? In many ways. Competing, always. 
+So it’s very difficult to create universal life, [creative] life. I say *group creation*, okay? *[He chuckles.]* *Group* creation. *Sangha* means by the sangha you have to have group creation, wonderful creation in life. That means each person must communicate very closely; don’t create a gap. But that is very difficult. If you live like this, very naturally you are fighting, you know? In many ways. Competing, always. 
 
 But look at the trees and birds, and winter: very naturally, there is wonderful creation there. That’s why we are really caught by the beauty of nature. Completely beyond human speculation. Why do we like nature? We like it ... because we can see it. That’s a beautiful scene. We have [it] already, that’s why we can see that something beautiful which nature has. But actually, we don’t do it! That’s why we are really caught by nature and dream [of] that nature. At that time, we forget completely how to practice this. So always dreaming, and [being excited about] the beauty of nature. That’s why people want to go to nature, et cetera. 
 
-Well, we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha.” So that is from day to day you have to practice. There is no... what would you say... no end. Day to day, you have to do it. 
+Well, we have to practice, anyway. We have to live our lives just like nature. That is called “act as a buddha.” So that is from day to day you have to practice. There is no end. Day to day, you have to do it. 
 
 #### 1:16:12 end of recording
 
