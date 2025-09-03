@@ -85,7 +85,7 @@ So [...] when the truth is seen in terms of [...] the phenomenal world of human 
 
 So, “the principle” – the dharma – “of One Mind has two aspects...”
 
-> One is the aspect of Mind in terms of the Absolute ...
+> One is the aspect of Mind in terms of the Absolute, ...
 
 So-called *truth*...
 
@@ -99,23 +99,23 @@ And also,
 
 Each of these two aspects, the absolute and phenomena, embraces all sentient beings. 
 
-So that means [the] real reality we live, from day to day, is called one-mind in terms of the absolute. So real reality is completely absolute, completely no comment. Constantly you are there, wherever you may go. You make a mistake, you don't make a mistake, or crying, laughing, or whatever you say, you are doing [it] right in the middle of real reality, based on one-mind. This is, philosophically we say, one-mind. And then, we *act*. When we act, we think, we cry, we suffer, many things. This is the phenomenal world. So the phenomenal world is always going in the realm of the absolute. Nowhere to escape [to]. 
+That means [the] real reality we live, from day to day, is called *one-mind* in terms of the absolute. So real reality is completely absolute, completely no comment. Constantly you are there, wherever you may go. You make a mistake, you don't make a mistake, or crying, laughing, or whatever you say, you are doing [it] right in the middle of real reality, based on one-mind. This is, philosophically we say, one-mind, and then we *act*. When we act, we think, we cry, we suffer, many things. This is the phenomenal world. So the phenomenal world is always going in the realm of the absolute. Nowhere to escape [to]. 
 
-So this is the very important outlook on human life, the human world. Whatever you think – tape recorder, microphone, trees, birds, winters, whatever you think – anyway, all sentient beings exist just like this. So, you should have outlook on human life, human world according to this teaching. 
+So this is the very important outlook on human life, the human world. Whatever you think – tape recorder, microphone, trees, birds, winters, whatever you think – anyway, all sentient beings exist just like this. So, you should have [an] outlook on human life, the human world, according to this teaching. 
 
 That's why here it says, “Each of these two aspects embraces all state of existence.”
 
 > Why? Because these two aspects are mutually inclusive.
 
-Inclusive; you cannot separate them. They are two, but they are not two, they are one. But it's not one: if you say “one,” it seems to be combined, two things. It’s not combination of two things. That is a little difficult understanding. [...] Philosophically, intellectually you can understand it, but [...] it is very difficult for us to find a way how to live in that real reality, on the basis of interrelated with truth and phenomena. It's pretty difficult. Not only Buddhism, but [...] Western philosophy, or many philosophers anyway, explain the truth and phenomena, but it's very difficult to find philosophers to teach us how to live, how to dwell in there constantly, how to act, how to live in peace and harmony. It's pretty hard. 
+Inclusive; you cannot separate them. They are two, but they are not two, they are one. But it's not one; if you say “one” it seems to be combined, two things. It’s not the combination of two things. That is a little difficult understanding. [...] Philosophically, intellectually you can understand it, but [...] it is very difficult for us to find a way how to live in that real reality, on the basis of interrelated with truth and phenomena. It's pretty difficult. Not only Buddhism, but [...] Western philosophy, or many philosophers anyway, explain the truth and phenomena, but it's very difficult to find philosophers to teach us how to live, how to dwell in there constantly, how to act, how to live in peace and harmony. It's pretty hard. 
 
-But Buddhism constantly teaches us that point. That's why from this point, the goal of Buddhism is not understanding the meaning of liberation or the experience of liberation; [that’s] not the final goal. The final goal is the understanding of liberation, experience of liberation, *but*, you have to have deep compassion to help all sentient beings on the basis of liberation. This is called liberation. You have to help!
+But Buddhism constantly teaches us that point. That's why from this point, the goal of Buddhism is not understanding the meaning of liberation or the experience of liberation; [that’s] not the final goal. The final goal is the understanding of liberation, experience of liberation, *but* you have to have deep compassion to help all sentient beings on the basis of liberation. This is called liberation. You have to help!
 
-So that is because, if you become [liberated], very naturally you can help. This is *real* liberation. But if you don't help all sentient beings: even though you understand, even though you experience liberation, it doesn't make sense. 
+That is because, if you become [liberated], very naturally you can help. This is *real* liberation. But if you don't help all sentient beings, even though you understand, even though you experience liberation, it doesn't make sense. 
 
-So, the final goal of Buddhism is understanding, experiencing liberation, *but* you have to put it into practice, in order to help all sentient beings. That is the final goal. So finally, right in the middle of the practice of helping all sentient beings, completely no idea, [...] no perception of liberation. You should *forget* it. You have to be free from liberation, and *then* you can help. 
+So, the final goal of Buddhism is understanding [and] experiencing liberation, *but* you have to put it into practice, in order to help all sentient beings. That is the final goal. So finally, right in the middle of the practice of helping all sentient beings, completely no idea, [...] no perception of liberation. You should *forget* it. You have to be free from liberation, and *then* you can help. 
 
-That's why always there is a negative expression there: “no help,” “no liberation.” Okay? That is called *nirvana*, we say “nirvana.”
+That's why always there is a negative expression there: “no help,” “no liberation.” Okay? That is called *nirvana*; we say “nirvana”.
 
 *Nirvana* is final liberation, completely final liberation. So, [...] according to the universe, nirvana is kind of a black hole, you know? *[He chuckles.]* Enlightenment, delusions, sufferings, and pleasures: all stuff are completely sucked in and disappear. Nevertheless, you are really [working] there. 
 
@@ -125,9 +125,9 @@ So that's why [it says], “because these two aspects are mutually inclusive.”
 
 I think in order to understand the human world, human beings, you should keep this point in mind: phenomena and truth are interactive, interpenetrated, interdependent, constantly. So that is totally, as a whole, we say, *dynamic working*. 
  
-[It is] just like kind of a statue of the Buddha made of gold. And if you see this statue, maybe you say, “[It’s] gold.” Yes, it's gold. But on the other hand, someone says, “It's a Buddha statue!” Because, it's a Buddha statue. Whatever you say, it hits the mark, because it's a Buddha statue, but on the other hand, it is gold. So [if] you say “gold,” it's right, because the Buddha statue is made of gold. So whatever part of the Buddha statue is taken by you, it's gold. But without gold, you cannot make the Buddha statue. 
+[It is kind of] just like a statue of the Buddha made of gold. And if you see this statue, maybe you say, “[It’s] gold.” Yes, it's gold. But on the other hand, someone says, “It's a Buddha statue!” Because, it's a Buddha statue. Whatever you say, it hits the mark, because it's a Buddha statue, but on the other hand, it is gold. So [if] you say “gold,” it's right, because the Buddha statue is made of gold, so whatever part of the Buddha statue is taken by you, it's gold. But without gold, you cannot make the Buddha statue. 
 
-The Buddha statue is the phenomenal world. The gold is truth, absolute, one-mind. The mind of all sentient beings. Your basic nature is exactly gold. 
+The Buddha statue is the phenomenal world. The gold is truth, absolute, one-mind – the mind of all sentient beings. Your basic nature is exactly gold. 
 
 And then that gold and Buddha statue are exactly one. You cannot separate it. So without it, without the gold, without the absolute or the mind of all sentient beings, without buddha-nature, without truth – you cannot exist. Just like Roger, just like Katagiri. [...] Just like [the] table. 
 
