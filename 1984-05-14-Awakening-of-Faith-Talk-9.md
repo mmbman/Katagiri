@@ -149,9 +149,11 @@ So that is called *Mind in Terms of the Truth*.
 
 So [now we will look at] *The Mind in Terms of Phenomena*. 
 
-So far, One Mind has been in terms of the truth. But this time, One Mind is described [as] phenomena. So there are two things: One Mind described by The Mind as Truth, and The Mind as Phenomena. One Mind can be seen from the truth, and phenomena. 
+So far, One Mind [has been] in terms of the truth. But this time, One Mind is described [as] phenomena. So there are two things, One Mind described by The Mind as Truth, and The Mind as Phenomena. Truth, and phenomena. One Mind can be seen from the truth, and phenomena. 
 
-It is just like spring and flowers. When spring comes, flowers bloom. In common sense, you say spring comes first, and flowers bloom. But actually not; spring and flowers come together. So spring itself is quiet, because you don’t know what spring is. Spring itself is very still and quiet, but [also] spring is pretty dynamic, because you feel warm, you feel excited, and you can see the green grasses and the flowers blooming, so spring operates in everything. In human life, animate and inanimate beings. Air, ground, wherever you may go, spring is constantly operating. It’s very dynamic. But on the other hand, what is spring? We don’t know. Spring itself is very quiet. 
+It is just like spring and flowers. When spring comes, flowers bloom. In common sense, you say spring comes first and flowers bloom, but actually not: spring and flowers come together. 
+
+So spring itself is quiet, because you don’t know what spring is. Spring itself is very still and quiet, but [also] spring is pretty dynamic, because you feel warm, you feel excited, and you can see the green grasses and the flowers blooming, so spring operates in everything. In human life, animate and inanimate beings. Air, ground, wherever you may go, spring is constantly operating. It’s very dynamic. But on the other hand, what is spring? We don’t know. Spring itself is very quiet. 
 
 So spring itself is quiet and still, but it is not separate from flowers and all sentient beings. Spring is present in the flowers and yet goes beyond the flowers. So you may not say that spring comes first and flowers are something added later to spring. That is not real understanding of spring and flowers. Spring and flowers are like one piece of paper with two aspects. This is exactly the relationship between spring and flowers. This is the relationship between truth and phenomena: one piece of paper with two aspects. That’s why one mind can be described by two: the truth, and phenomena. Because they are already there. Descriptions of one mind like that are necessary for us, because two aspects are already with one mind. If you want to use one piece of paper, you should know which is back, which is front. You should know which you should use. So very naturally there is discrimination there: back and front. That’s why here, one mind is described by mind as truth, and the mind as phenomena. Just like Ryokan said, which I mention very often, “The falling maple leaf, showing back and front.”
 
@@ -159,13 +161,13 @@ So spring itself is quiet and still, but it is not separate from flowers and all
 
 So let’s go to the new chapter, *The Mind in Terms of Phenomena*. 
 
-First of all, I want to ask you: what is the phenomena like? Can you say it simply? What is the characteristic of phenomena? What’s going on in the phenomenal world? 
+First of all, I want to ask you: what is *phenomena* like? Can you say it simply? What is the characteristic of phenomena? What’s going on in the phenomenal world? 
 
 **Someone:** It’s always changing.
 
 **Katagiri Roshi:** Changing. Good. Yes. That is really characteristic of phenomena.
 
-So the mind as phenomena means the mind as the world which is constantly changing, appearing and disappearing. This is the mind as phenomena. 
+So *the mind as phenomena* means the mind as the world which is constantly changing, appearing and disappearing. This is the mind as phenomena. 
 
 So, why do many things change? What makes things change? 
 
@@ -195,15 +197,13 @@ So, where are you there? Where do you live in this time? How can you say it? Wha
 
 So you are always living in nowness, constantly *now*. But you have to know a little bit what nowness is. 
 
-#### 36:14
+There are two kinds of nowness. One is *nowness following the time process*; nowness following the stream of time. This is the nowness you live in. Second, *nowness operating time*. You operate time.
 
-There are two kinds of nowness. One is *nowness following the time process*. Nowness following the stream of time. This is the nowness you live in. Second, *nowness operating time*. You operate time. Do you understand?
+The first one, *nowness following the steam of time*, means you are already right in the middle of the stream. You cannot [handle] it; completely you are there. It’s like being on a boat. You cannot do anything, so you just be there, and you are just going. That is one characteristic of nowness. That’s why I say *nowness following the stream of time*. 
 
-The first one, nowness following the steam of time, means you are already right in the middle of the stream. You cannot [handle] it; completely you are there. It’s like being on a boat. You cannot do anything, so you just be there, and you are just going. That is one characteristic of nowness. That’s why I say *nowness following the stream of time*. 
+The second, *nowness [where] you operate time*, means you should oar the boat. In “Life and Death” in *Shōbōgenzō*, Dōgen Zenji explains that life is just like being on the boat, but you have to oar the boat. You cannot always be [just] being on the boat. That means you cannot always take a nap on the boat; you cannot always take a nap on the stream of time. You have to do something, right in the middle of the stream of time. That is to oar the boat. That [is the meaning of], [as] I say, *nowness [where] you operate time*. Do you understand? Maybe the English is not correct, but anyway... 
 
-The second, *nowness [where] you operate time*, means you should oar the boat. In “Life and Death” in *Shōbōgenzō*, Dōgen Zenji explains that life is just like being on the boat, but you have to oar the boat. You cannot always be [just] being on the boat. That means you cannot always take a nap on the boat; you cannot always take a nap on the stream of time. You have to do something, right in the middle of the stream of time. That is to oar the boat. That means, I say, *nowness [where] you operate time*. Do you understand? Maybe the English is not correct, but anyway... 
-
-So the first one, nowness following the stream of time, that is in terms of relation with the past and future. And also it is continuing with... Can you say what kind of nowness you are living in, in relation with the past and the future? 
+So the first one, *nowness following the stream of time*, that is in terms of relation with the past and future. And also it is continuing with... Can you say what kind of nowness you are living in, in relation with the past and the future? 
 
 **Someone:** Rocking the boat, or getting off the boat?
 
@@ -237,9 +237,9 @@ So that is nowness. What happens in the nowness? What happens in the rhythm of t
 
 **Katagiri Roshi:** No. You cannot control [it]. You are just passengers on the boat, with all sentient beings. Grasses, crickets, and birds, all sentient beings are completely on the boat. And that boat, and all sentient beings, and the water, boat, everything is in the time process. So [there is] nothing to control. All you have to do is just be there, just go. But discriminating mind doesn’t agree. So this [means] attachment can be created. 
 
-The second kind of nowness, *you operate time*, is, according to Unmon Zen Master (Yunmen Wenyan), “I am using the time and not dragged away by time.” So you are always following the twenty-four hours; at that time you are living in the nowness, just following the stream of time. But according to Unmon Zen Master, he said, “I am not dragged away by twenty-four hour time.” But he uses time. In other words, he can oar the boat. That is the *nowness [where] you can operate time*. 
+The second kind of nowness, *you operate time*, is, according to Unmon Zen Master (Yunmen Wenyan), “I am using the time and not dragged away by time.” So you are always following the twenty-four hours; at that time you are living in the nowness, just following the stream of time. But according to Unmon Zen Master, he said, “I am not dragged away by twenty-four hour time,” but he uses time. In other words, he can oar the boat. That is the *nowness [where] you can operate time*. 
 
-So you must be very subjective. One the one hand, you cannot be subjective in the time process, because you just follow. But on the other hand, you must be very subjective. You should take the initiative to act, to have activity. So this is the *nowness [where] you operate time*; that is the second nowness. 
+So you must be very subjective. One the one hand, you cannot be subjective in the time process, because you just follow, but on the other hand, you must be very subjective. You should take the initiative to act, to have activity. So this is the *nowness [where] you operate time*; that is the second nowness. 
 
 This nowness is that which is *always* in now. Never changed; always there. 
 
@@ -445,7 +445,7 @@ Do you have some questions?
 
 **Someone:** Hojo-san? I just wanted to say one point about the mental affliction we were talking about? It seems like that very strong thing that we all have around perfectionism, [to do things] right. So it’s like Buddhist detachment that teaches us to just let it go and stay with the moment and take care of the moment, versus that beating ourselves up.
 
-**Katagiri Roshi:** Mm-hmm. Sure. That’s why we have to understand human life, human consciousness, et cetera. Because human consciousness operates in a very complicated way. So that is called ignorance, in this book. If you read page fifty, you can see the technical term *[seventy] thoughts arise*. Those thoughts, in other words discriminating mind, is really working in a very complicated way. That’s why we pretty easily create mental afflictions. Through the mental afflictions we can create stress, conflict, and anxiety, fears, et cetera. And then finally people cannot escape from stress and conflict and fear, [so] very naturally we want to do something to express them. And then that expression is sometimes abusive, sometimes violent.
+**Katagiri Roshi:** Mm-hmm. Sure. That’s why we have to understand human life, human consciousness, et cetera. Because human consciousness operates in a very complicated way. So that is called *ignorance*, in this book. If you read page fifty, you can see the technical term *[seventy] thoughts arise*. Those thoughts, in other words discriminating mind, are really working in a very complicated way. That’s why we pretty easily create mental afflictions. Through the mental afflictions we can create stress, conflict, and anxiety, fears, et cetera. And then finally people cannot escape from stress and conflict and fear, [so] very naturally we want to do something to express them. And then that expression is sometimes abusive, sometimes violent.
 
 [...]
 
