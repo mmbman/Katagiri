@@ -3,7 +3,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 ---
 ## October 18, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: 
+#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-19-Shobogenzo-Kokyo-Talk-2) | [List](list#1986) | Series: 
 
 ### Transcript
 
@@ -279,4 +279,4 @@ Well, what does it mean? What do you want to ask me?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: 
+#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-19-Shobogenzo-Kokyo-Talk-2) | [List](list#1986) | Series: 
