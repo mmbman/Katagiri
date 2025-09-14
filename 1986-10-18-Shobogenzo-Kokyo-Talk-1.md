@@ -7,7 +7,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 
 ### Transcript
 
-<p align="center"><b>This transcript is in rough draft stage.</b></p>
+<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/form-and-mirror-1-of-2" target="_blank">Listen to this talk</a>
