@@ -5,6 +5,10 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 
 #### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-19-Shobogenzo-Kokyo-Talk-2) | [List](list#1986) | Series: 
 
+### Summary
+
+Katagiri Roshi discusses chapter of *Shobogenzo* titled *Kokyo*, or “The Ancient Mirror”. The ancient mirror is that which reflects everything. “Reflecting everything” means that practice is not just about beings coming together in peace and harmony, but also about appreciating the many differences between them. 
+
 ### Transcript
 
 <p align="center"><b>This transcript is in draft stage.</b></p>
@@ -23,7 +27,7 @@ So, in the United States, you have already lots of historical background, religi
 
 So, Dōgen Zenji [talks about this] in *Shōbōgenzō* – the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror.” This is a very interesting chapter. 
 
-I mentioned *mirror* is that which you can see the essential nature of human life reflected in that mirror. So that mirror implies kind of vastness, vast expanse of sky, or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth.” 
+I mentioned *mirror* is that which you can see the essential nature of human life reflected in that mirror. So that mirror implies kind of vastness, vast expanse of sky, or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth”. 
 
 So this is a mirror. In other words, “what is a mirror?” means “what is the truth?” 
 
