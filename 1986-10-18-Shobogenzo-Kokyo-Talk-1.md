@@ -3,7 +3,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 ---
 ## October 18, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1987-01-10-Dogen-Four-Points) | [List](list#1986) | Series: 
+#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: 
 
 ### Transcript
 
@@ -159,7 +159,7 @@ And the third point, there is an interesting story.
 > 
 > “I don’t agree.”
 > 
-> “What then?” 
+> “What, then?” 
 > 
 > “Ask me again, please.” 
 > 
@@ -167,17 +167,15 @@ And the third point, there is an interesting story.
 > 
 > “It will disintegrate.” 
 
-It means, Xuansha talks about something: when the clear mirror meets with another clear mirror, then what happens? “What happens” means, when you see the exactly clear mirror, because you are also a clear mirror, so when the clear mirror meets with clear mirror, what happens? Then Seppō (Xuefeng) says, “Both.” Both clear mirrors means I and you disappear. Because both are clear mirror. I and you are clear mirror. 
+Xuansha [asks] about something: when the clear mirror meets with another clear mirror, then what happens? [That] means, when you see the exactly clear mirror, [...] you are also a clear mirror, so when the clear mirror meets a clear mirror, what happens? Then Seppō (Xuefeng) says, “Both.” “Both clear mirrors” means I and you disappear. Because both are clear mirror; I and you are clear mirror. 
 
-And then Gensha Zen Master (Xuansha) says, “I am not satisfied [with] that one.” 
+And then Gensha Zen Master (Xuansha) says, “I am not satisfied [with] that.” 
 
 So Seppō says, “How about you? How can you say?”
 
-And then Gensha Zen Master says, “It completely disintegrates.” 
+Gensha Zen Master says, “It completely disintegrates.” In other words, ... *[there is some discussion about the correct word]* ... *slivers*, *fragments*. [...] Myriad, myriad pieces; [...] completely tiny, tiny broken pieces. 
 
-In other words, *[there is some discussion about the correct word,]* *slivers*. [...] Myriad, myriad broken pieces. Completely broken – tiny, tiny broken pieces. 
-
-And then Dōgen Zenji try to explain it, comment on this story. And finally, in the last part of explanation, he says:
+And then Dōgen Zenji tries to explain it, commenting on this story. And finally, in the last part of explanation, he says:
 
 > What then is the shape of the broken pieces? 
 
@@ -187,39 +185,35 @@ He says it is:
 
 (*Transcriber’s Note:* From the Sōtōshū *Shōbōgenzō* translation: “Blue depths ten thousand ages old, the moon in an empty realm.”)
 
-It means, we try to understand, we try to approach to what the truth is, what the clear mirror is. Through our experience, through our studies, through our practice, we try to. And then when you reach exactly true clear mirror, means you meet exactly that clear mirror. Complete, there is no particular mirror, between the you and mirror. So, mirror is completely broken pieces. 
+It means: we try to understand, we try to approach to what the truth is, what the clear mirror is, through our experience, through our studies, through our practice. We try to [understand]. And then when you reach exactly [the] true clear mirror, that means when you meet exactly that clear mirror, completely there is no particular mirror between you and the mirror. So, the mirror is completely broken pieces. 
 
-What do I mean? That means, finally, broken pieces of culture, your lifestyle, your life. When you get up in the morning, this is a mirror. When you do gassho, this is a mirror. When you see the trees in autumn, this is a mirror. You can see the essential nature of human existence. So, tree is not a part of the creature [...] different from of human beings. You can see the trees; through that you can see your life. So, finally, tree is clear mirror. 
+What do I mean? That means, finally, broken pieces of culture, your lifestyle, your life. When you get up in the morning, this is a mirror. When you do gassho, this is a mirror. When you see the trees in autumn, this is a mirror. You can see the essential nature of human existence. So, the tree is not a part of the creature [...] different from human beings. You can see the trees; through that, you can see your life. So finally, tree is clear mirror. 
 
-When you talk with a mirror, this is a poem. You can create a poem. But the poem is nothing but a mirror. Through the mirror, you can see that kind of a sentimental and huge world, something more than intellectual. But it is not *exactly*. Something you have to attach to it, but through that words, there is a complete inconceivable world there. That means essential nature of human existence. Through the poem, you have to see this. Through the trees, you have to see this essential nature of human existence. 
+When you talk with a mirror, this is a poem, you can create a poem. But the poem is nothing but the mirror. Through the mirror, you can see that kind of sentimental and huge world, something more than the intellectual. It is not *exactly* something you have to attach to, but through those words, there is a completely inconceivable world there. That means the essential nature of human existence. Through the poem, you have to see this. Through the trees, you have to see this essential nature of human existence. 
 
 So, very naturally, your five *skandhas*, your body, is your mirror. Your thinking is also your mirror. 
 
-If you have a particular occupation, so-called mountaineer, mountaineer is your mirror. So, through the mountaineer, you can learn life of the trees, life of the birds, life of the frogs. Life of the Americans, life of the Japanese – you can learn. Through the rock climbers, you can see the same life of the trees and frogs and rivers and skies. 
+If you have a particular occupation, so-called mountaineer: mountaineer is your mirror. So, through the mountaineer, you can learn life of the trees, life of the birds, life of the frogs. Life of the Americans, life of the Japanese – you can learn. Through the rock climbers, you can see the same life of the trees and the frogs and rivers and skies. 
 
-So, that’s why, we try to see what the real mirror is, where our life is reflected simultaneously with all sentient beings. All sentient beings are reflected in the mirror. 
+So that’s why we try to see what the real mirror is, where our life is reflected simultaneously with all sentient beings; all sentient beings are reflected in the mirror. And then when you see this mirror, what happens? No partitions, so-called “here is the particular mirror.” No. 
 
-And then when you see this mirror, what happens? 
-
-No partitions, so-called “here is the particular mirror.” No. 
-
-So, completely when you see that mirror, your life is completely broken pieces. It means your nose is just your nose. Your five *skandhas* are just five *skandhas*. 
+So, when you see that mirror, your life is completely broken pieces. It means your nose is just your nose. Your five *skandhas* are just five *skandhas*. 
 
 *[Tape change.]*
 
-We have to see. We have to see, we have to learn. We have to learn your body, your mind, your life, anyway. 
+... We have to see. We have to see, we have to learn. We have to learn your body, your mind, your life. 
 
-So, that’s why Dōgen Zenji says to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
+So that’s why Dōgen Zenji says that to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
 
-But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe. Because we have lots of prejudice. Just like an octopus. 
+But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe, because we have lots of prejudice. Just like an octopus. 
 
-So, one by one, we have to take it off, those prejudices. 
+So, one by one, we have to take off those prejudices. 
 
-So, what is the practice? In order to meet this mirror, we have to practice the same things as Buddhas and ancestors in the past did. This is our practice. Not only the Japanese: the Americans, and the Europeans, whoever you are, we have to practice this. 
+So, what is the practice? In order to meet this mirror, we have to practice the same things as buddhas and ancestors in the past did. This is our practice. Not only the Japanese: the Americans, and the Europeans; whoever you are, we have to practice this. 
 
-Our essential, simple practice is, basically, simple practice is the *zazen* we do. 
+[...] Basically, the simple practice is the *zazen* we do. 
 
-So, what is zazen? Zazen is exactly... I think, [to] take off your each prejudice. How? Just sit down. Zazen itself is [to] become a huge mirror. Your life is reflected, beyond your speculation. So, let’s reflect your body and mind in that mirror. That is, just sit down there. And naturally, you can see. 
+So, what is zazen? Zazen is exactly... well, I think, [to] take off [each of your] prejudices. How? Just sit down. Zazen itself is [to become a] huge mirror. Your life is reflected, beyond your speculation. So, let’s reflect your body and mind in that mirror: that is, just sit down there. Naturally, you can see. 
 
 This is a very basic, simple practice we do. 
 
@@ -227,51 +221,55 @@ Okay. Do you have a question?
 
 #### 43:26
 
-**Question:** What happens when... I don’t know if I am phrasing this correctly, okay? When a clear mirror meets a mirror that is not clear? 
+**Question:** What happens when... I don’t know if I’m going to be phrasing this correctly, okay? When a clear mirror meets a mirror that is not clear? 
 
-**Katagiri Roshi:** If you see two mirrors... *[He laughs.]* ... it’s not clear. But, originally it’s very clear, that’s why Seppō Zen Master says, “Both,” “both of them disappear.” Clear mirror, your body and mind is very transparent, my body and mind is completely transparent – and meet together and put together – both disappear. Do you understand? Just like a Casper. 
+**Katagiri Roshi:** If you see two mirrors... *[He laughs.]* ... it’s not clear. But originally it’s very clear, that’s why Seppō Zen Master says “both,” “both of them disappear.” Clear mirror: your body and mind is very transparent, my body and mind is completely transparent – and meet together and put [them] together – both disappear. Do you understand? Just like a Casper. 
 
 *[Laughter.]*
 
 **Someone:** Like what?
 
-**Katagiri Roshi:** “Casper.” Two Caspers see each other, meet together, walk together – finally disappear. 
+**Katagiri Roshi:** “Casper.” Two Caspers see each other, meet together, walk together... finally, [they] disappear. 
 
 #### 44:40
 
-**Question:** Hojo-san? How does a mirror get back to that clear state? How does a tarnished, dirty, disgusting mirror *[they chuckles]* turn into a clear mirror again? 
+**Question:** Hojo-san? How does a mirror get back to that clear state? 
+
+**Katagiri Roshi:** Hmm?
+
+**Questioner:** How does a tarnished, dirty, disgusting mirror *[they chuckle]* turn into a clear mirror again? 
 
 **Katagiri Roshi:** Well, it’s *always* a clear mirror. 
 
 **Questioner:** Why doesn’t it always *seem* clear? 
 
-**Katagiri Roshi:** That is your understanding. But originally... That’s why the essential nature of human exists, not only your mirror. If you see mirror just in terms of your point of view, it’s not clear. But it’s originally clear. Just like a mirror of the trees, a mirror of the flowers, a mirror of the sky. 
+**Katagiri Roshi:** That is your understanding. That’s why the essential nature of human exists, not only your mirror. If you see the mirror just in terms of your point of view, it’s not clear. But it’s originally clear. Just like a mirror of the trees, a mirror of the frogs, and a mirror of the sky. 
 
-So, all are clear, completely. From the beginning to end, it’s clear. Alright? 
+So all are clear, completely. From the beginning to end, it’s clear. Alright? 
 
-You say, “Uh-uh-uh.” 
+Well, you say, “Uh-uh...” 
 
 **Questioner:** How do you get from there to there? How do you see that? 
 
-**Katagiri Roshi:** You say, “Uh-uh.” This is already you accept a clear mirror; that’s why you say, “Uh-uh.” Do you understand? 
+**Katagiri Roshi:** You say, “uh-uh”:  This is already you accept a clear mirror; that’s why you say “uh-uh”. Do you understand? 
 
 **Someone:** *[Laughs.]* Have mercy!
 
-**Katagiri Roshi:** Before you say, “Uh-uh,” you already accept a clear mirror. That’s why you say, “Uh-uh.” Do you understand? Can you? No? 
+**Katagiri Roshi:** Before you say, “Uh-uh,” you already accept a clear mirror, that’s why you say, “Uh-uh.” Do you understand? Can you? No? 
 
 **Questioner:** I don’t understand the last thing you said. 
 
-**Katagiri Roshi:** Well, it means, for instance: I originally accept all of you, before I think or I don’t think. Alright? And then I say, “I don’t want to accept *you*.” That means what? What do I mean? I already accept you. That’s why I say, “I don’t accept you.” Because already through my life [I accept], you know. 
+**Katagiri Roshi:** Well, it means, for instance: I originally accept all of you, before I think or I don’t think. Alright? And then I say, “I don’t want to accept *you*.” That means what? What do I mean? I already accept you – that’s why I say “I don’t accept you.” Because already through my life [I accept], you know. 
 
-And then I can see Bob. And then I see, “Oh, Bob. How are you?” When my feeling is good, I say, “How are you?” We shake hands. But I don’t feel good, I don’t want to shake his hand. So whatever I do, already – I like him or I don’t like him – is just like a bubble. Before that, I already accept him. 
+And then I can see Bob. And then I see, “Oh, Bob. How are you?” When my feeling is good, I say, “How are you?” We shake hands. But if I don’t feel good, I don’t want to shake hands. So whatever I do – I like him or I don’t like him – is just like bubbles. Before that, I already accept him. 
 
-So that’s why clear mirror is completely clear now.
+So that’s why the clear mirror is completely clear now.
 
 **Questioner:** Okay, let me ask this in a different way. You completely accept everybody. To you, likes and dislikes are like little bubbles. That’s not the way they are to me. 
 
 **Katagiri Roshi:** Well, even though you say so, that is your life, anyway. That is for you. 
 
-So what does it mean? What do you want to ask me?
+Well, what does it mean? What do you want to ask me?
 
 *[Laughter.]*
 
@@ -281,4 +279,4 @@ So what does it mean? What do you want to ask me?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1987-01-10-Dogen-Four-Points) | [List](list#1986) | Series: 
+#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: 
