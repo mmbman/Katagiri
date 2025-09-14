@@ -348,7 +348,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 12
 1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 13
 
-1. *Shōbōgenzō Kokyo*: Form and Mirror – Talk 1
+1. [*Shōbōgenzō Kokyo*: Form and Mirror – Talk 1](1986-10-18-Shobogenzo-Kokyo-Talk-1)
 1. *Shōbōgenzō Kokyo*: Form and Mirror – Talk 2
 
 1. [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
