@@ -15,35 +15,31 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 2"
 
 #### 0:00
 
-I would like to consider again what I said yesterday, because it is important things, and also a little difficult to understand. So I would like to consider it once more with you. The point is, what is the mirror that the essence of human existence is reflected in? 
+I would like to consider again what I said yesterday, because these are important things, and also a little difficult to understand... So I would like to consider it once more with you. The point is, what is the mirror that the essence of human existence is reflected in? 
 
 What is a mirror? I mentioned yesterday: if you look at your life, there are many kinds of mirrors which are called *culture*. But if you want to practice spiritual life, I think we should know what the spiritual mirror is like. Even though you don’t have experience of this kind of mirror, as best as we can we try to *approach* to that mirror. What is it like? What [is its] structure? How is it working with us? So as best as we can, we try to approach to it.
 
-That’s why I [told you] you yesterday, according to *Kokyo*, “Ancient Mirror,” [written] by Dōgen, there were three points, [which] I mentioned. 
+That’s why I [told you] you yesterday [about] *Kokyo*, “Ancient Mirror,” [written] by Dōgen. There were three points [which] I mentioned. 
 
-The first point is *co-existent place*. The ancient mirror is the *co-existent place* where all beings walk in peace, in harmony. Beyond races, thoughts, social position, personality, forms... beyond all things. Where everything is reflected in that mirror. This is *co-existent place*. 
+The first point is *a co-existent place*. The ancient mirror is the co-existent place where all beings walk in peace, in harmony. Beyond races, thoughts, social position, personality, forms... beyond all things. Everything is reflected in that mirror. This is *co-existent place*. 
 
 So very naturally, a bird and butterfly walk in peace, in harmony. Japanese monkeys walk with elephants in South Africa, in peace, in harmony, talking to each other. 
 
-Saint Francis, who spread Christianity in Japan, was [noted as] a holy person who could speak with a bird. I think the bird and Saint Francis stood up in a co-existent place. They walked in peace, in harmony. 
+Saint Francis, who spread Christianity in Japan, was noted as a holy person who could speak with a bird. I think the bird and Saint Francis stood up in a co-existent place. They walked in peace, in harmony. 
 
-So very naturally, when you and when the butterfly and when the bird are reflected in that mirror, very naturally they are the essence of their existence, anyway they talk to each other. Not *form*, karmic life – not [the] karmic form of their life – the essence of their life talks, meets together in the same place, and walks together and talks together. This is the [first] point I mentioned yesterday. 
+So when you and when the butterfly and when the bird are reflected in that mirror, very naturally the essence of their existence talks to each other. Not the *form*, not [the] karmic form of their life – the essence of their life talks, meets together in the same place, and walks together and talks together. This is the first point I mentioned yesterday. 
 
-So very naturally, if you seek for spiritual life, I think your mind becomes soft, [and also] your look becomes the same look as ancestors and buddhas. You know the look of the, well, whatever spiritual person. How can I say, Christian minister. There are many Christian ministers in United States. From now on, anyway pay attention to the Christian minister, whoever they are. Well, there are many kinds of levels of priest: top level, and middle level, *[he laughs]*, and lower level – it doesn’t matter. Anyway, just see them, and I think if you see those people, I think there is one particular look there, [which] you can see. And also they are very soft and kind, compassionate. 
+So very naturally, if you seek for spiritual life, I think your mind becomes soft, and also your look becomes the same look as the ancestors and buddhas. Look at, well, whatever spiritual person – how can I say... Christian minister. There are many Christian ministers in United States. From now on, pay attention to the Christian ministers, whoever they are. Well, there are many kinds of levels of priest: top level, and middle level *[he laughs]*, and lower level – it doesn’t matter. Anyway, just see them; and I think if you see those people, I think there is one particular look there, [which] you can see. And also they are very soft and kind, compassionate. 
 
-So very naturally, there is one look. The same one look, the same and one soft, compassionate mind. And also the same one type of walking; something like that. Very naturally they are walking where? One path. That is called *practice*, we say. And also anyone who walks on that one path, very naturally they can have the same result: straightforwardness, honesty, magnanimity, compassion, wisdom. Very naturally. 
+So very naturally, there is one look: the same and one look, and the same and one soft, compassionate mind. And also the same and one type of walking; something like that. Very naturally they are walking where? On one path. That is called *practice*, we say. And also anyone who walks on that one path, very naturally they can have the same result: straightforwardness, honesty, magnanimity, compassion, wisdom. Very naturally. 
 
-So that’s why I say that the ancient mirror is *co-existent place*, where all sentient beings can do same things, and can get same things as buddhas and ancestors. That’s why we say “mind to mind”. We transmit dharma “mind to mind”.
-
-And also one of the analogies is to pour the water from one cup to another, exactly. 
+So that’s why I say that the ancient mirror is [a] *co-existent place*, where all sentient beings can do the same things, and can get the same things as buddhas and ancestors. That’s why we say “mind to mind”; we transmit dharma “mind to mind”. And also one of the analogies is to pour the water from one cup to another, exactly. 
 
 This is one point. Is that alright, the first one? 
 
-#### 
+#### 08:40
 
-The second point is a little bit difficult. I [talk about it] yesterday. The second point of the ancient mirror is characterized to receive an *I* and *you* – your face, your look. You know, the *I* and *you* stand up right in front of the ancient mirror, which has no front, no back, no inside, no outside. A transparent mirror. It’s impossible to ... certain forms reflect in it, in the common sense. But that ancient mirror can accept your look and my look, if you stand up. Immediately. 
-
-So you stand up and I stand up in front of that kind of mirror, and then I can see your look, and you look [and] you can see my look. And the two faces stand up and come together. 
+The second point is a little bit difficult. I [talked about it] yesterday. The second point of the ancient mirror is characterized to receive an *I* and *you* – your face, your look. You know, the *I* and *you* stand up right in front of the ancient mirror, which has no front, no back, no inside, no outside. A transparent mirror. [...] Certain forms reflect in it, in the common sense. But that ancient mirror can accept your look and my look, if you stand up – immediately. So you stand up and I stand up in front of that kind of mirror, and then I can see your look, and you look [and] you can see my look. And the two faces stand up and come together. 
 
 And simultaneously, if you continue to look at your face and my face – if I look at your face, in the mirror... I think my look, my face, is penetrated into your heart. It becomes one. In other words, my reflection and your reflection become transparent, simultaneously. 
 
@@ -133,7 +129,7 @@ Yes. So, Zen teaching always tells you to deal with everyday life as a buddha. E
 
 But we don’t understand this. That’s why Dōgen Zenji [writes] like this, and also we have to talk about this. 
 
-So a little bit you don’t understand exactly what the point of the Zen teaching is. Usually through a book, Zen teaching is to find the solution of a *koan*, a Zen puzzle. I don’t think [this] is real. Or [through a book] you see that Zen is to attain enlightenment, this is the main purpose. I don’t think this is Zen. It is a *part* of Zen, okay? But not the whole.
+So a little bit you don’t understand exactly what the point of the Zen teaching is. Usually through a book, Zen teaching is to find the solution of a *koan*, a Zen puzzle. I don’t think this is real. Or [through a book] you see that Zen is to attain enlightenment, this is the main purpose. I don’t think this is Zen. It is a *part* of Zen, okay? But not the whole.
 
 Okay. Do you have a question? 
 
