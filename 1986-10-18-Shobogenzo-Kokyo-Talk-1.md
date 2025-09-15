@@ -187,8 +187,6 @@ He says it is:
 
 > “Eternally deep water and the moon in the sky.”
 
-(*Transcriber’s Note:* From the Sōtōshū *Shōbōgenzō* translation: “Blue depths ten thousand ages old, the moon in an empty realm.”)
-
 It means: we try to understand, we try to approach to what the truth is, what the clear mirror is, through our experience, through our studies, through our practice. We try to [understand]. And then when you reach exactly [the] true clear mirror, that means when you meet exactly that clear mirror, completely there is no particular mirror between you and the mirror. So, the mirror is completely broken pieces. 
 
 What do I mean? That means, finally, broken pieces of culture, your lifestyle, your life. When you get up in the morning, this is a mirror. When you do gassho, this is a mirror. When you see the trees in autumn, this is a mirror. You can see the essential nature of human existence. So, the tree is not a part of the creature [...] different from human beings. You can see the trees; through that, you can see your life. So finally, tree is clear mirror. 
@@ -209,9 +207,7 @@ So, when you see that mirror, your life is completely broken pieces. It means yo
 
 So that’s why Dōgen Zenji says that to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
 
-But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe, because we have lots of prejudice. Just like an octopus. 
-
-So, one by one, we have to take off those prejudices. 
+But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe, because we have lots of prejudice. Just like an octopus. So, one by one, we have to take off those prejudices. 
 
 So, what is the practice? In order to meet this mirror, we have to practice the same things as buddhas and ancestors in the past did. This is our practice. Not only the Japanese: the Americans, and the Europeans; whoever you are, we have to practice this. 
 
