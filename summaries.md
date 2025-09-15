@@ -558,6 +558,12 @@ Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The A
 
 <br/>
 
+##### [Shōbōgenzō Kokyo: Form and Mirror – Talk 2](1986-10-19-Shobogenzo-Kokyo-Talk-2)
+
+Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”.
+
+<br/>
+
 ##### [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 
 Summary not yet available.

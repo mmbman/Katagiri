@@ -5,6 +5,10 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 2"
 
 #### [Previous](1986-10-18-Shobogenzo-Kokyo-Talk-1) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: 
 
+### Summary
+
+Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”.
+
 ### Transcript
 
 <p align="center"><b>This transcript is in draft stage.</b></p>
