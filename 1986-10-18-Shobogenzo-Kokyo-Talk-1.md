@@ -25,7 +25,7 @@ So, in the United States, you have already lots of historical background, religi
 
 [...] What is a mirror in which the essence of man's existence is reflected? What is the mirror? Not only the cultural forms, but we have to understand what is the mirror that the essential nature of human life is reflected in. 
 
-So, Dōgen Zenji [talks about this] in *Shōbōgenzō* – the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror.” This is a very interesting chapter. 
+So, Dōgen Zenji [talks about this] in *Shōbōgenzō* – the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror”. This is a very interesting chapter. 
 
 I mentioned *mirror* is that which you can see the essential nature of human life reflected in that mirror. So that mirror implies kind of vastness, vast expanse of sky, or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth”. 
 
