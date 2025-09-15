@@ -41,21 +41,21 @@ This is one point. Is that alright, the first one?
 
 The second point is a little bit difficult. I [talked about it] yesterday. The second point of the ancient mirror is characterized to receive an *I* and *you* – your face, your look. You know, the *I* and *you* stand up right in front of the ancient mirror, which has no front, no back, no inside, no outside. A transparent mirror. [...] Certain forms reflect in it, in the common sense. But that ancient mirror can accept your look and my look, if you stand up – immediately. So you stand up and I stand up in front of that kind of mirror, and then I can see your look, and you look [and] you can see my look. And the two faces stand up and come together. 
 
-And simultaneously, if you continue to look at your face and my face – if I look at your face, in the mirror... I think my look, my face, is penetrated into your heart. It becomes one. In other words, my reflection and your reflection become transparent, simultaneously. 
+And simultaneously, if you continue to look at your face and my face – [and] if I look at your face in the mirror – I think my look, my face, is penetrated into your heart. [It becomes] one. In other words, my reflection and your reflection become transparent, simultaneously. 
 
-If your reflection and my reflection are not transparent, I think that your reflection and my reflection are just dead. Because *I* and *you* are beings who are constantly moving, functioning, interpenetrated, [interconnected]. In order to do this, you cannot keep your frame, so-called “my look”. And I cannot maintain my frame, so-called five *skandhas*, Katagiri’s frame. No. If I am reflected in the ancient mirror, I immediately become transparent. 
+If your reflection and my reflection are not transparent, I think that your reflection and my reflection are just dead. Because *I* and *you* are beings who are constantly moving, functioning, interpenetrated, [interconnected]. In order to do this, you cannot keep your frame, so-called “my look”. And I cannot maintain my frame, so-called five *skandhas*, Katagiri’s frame, no. If I am reflected in the ancient mirror, I immediately [become] transparent. 
 
-But in common sense, it’s impossible to do this, because we have very strong customs to attach to the frame. If you don’t have a frame, we are reckless and we are restless, very restless. But in the spiritual life, I think you cannot keep your frame. So very naturally your frame, the frame of your five *skandhas*, are transparent, immediately. 
+But in [the] common sense, it’s impossible to do this, because we have very strong customs to attach to the frame. If we don’t have a frame, we are restless, very restless. But in the spiritual life, I think you cannot keep your frame. So very naturally your frame, the frame of your five *skandhas*, are transparent, immediately. 
 
-For instance, I [often say], the piece of wood tied to a string and revolving, turn in a circle. And then at that time, what can you see? Can you see the piece of wood? What you can see? 
+For instance, I [often say], the piece of wood tied to a string and revolving, turning in a circle. And then at that time, what can you see? Can you see the piece of wood? What you can see? 
 
 **People:** Circle?
 
-**Katagiri Roshi:** Circle! But in common sense, it’s impossible to make the one piece of wood [a] circle, because it’s [the] frame of the one piece of circle. But when the one piece of circle starts to function, it creates circle. So that means the frame of the piece of wood breaks into pieces. In other words, it’s *emancipated*, it’s *liberated*, originally. 
+**Katagiri Roshi:** Circle! But in common sense, it’s impossible to make the one piece of wood [a] circle, because it’s [the] *frame* of the one piece of circle. But when [the] one piece of circle starts to function, it creates circle. So that means the frame of the piece of wood breaks into pieces. In other words, it’s *emancipated*, it’s *liberated*, originally. 
 
 So your five *skandhas*, your six senses, are liberated, originally. That’s why in *Zenki*, “The Whole Works,” Dōgen Zenji says, “All sentient beings are emancipation and total manifestation.” 
 
-So *total manifestation* is all things you can see through your eyes, ears... the form of trees you can see. But what is manifested beings you can see through your six senses? Dōgen Zenji [says], they are originally liberated. So liberated beings manifest themselves as a form. Do you understand? 
+So *total manifestation* is all things you can see through your eyes, ears... the form of trees you can see. But what are manifested beings you can see through your six senses? Dōgen Zenji [says], they are originally liberated. So liberated beings manifest themselves as a form. Do you understand? 
 
 That’s why if your life is reflected in the ancient mirror, you become transparent. It means you’re working; your life is really working with all sentient beings. If you always hold your frame, you never create a circle; you are nothing but a piece of wood. 
 
