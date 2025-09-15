@@ -75,7 +75,7 @@ Of course, you can appreciate somebody; you know, they’re always living somewh
 
 So that’s why the second point of the ancient mirror is, you and I and all sentient beings are reflected in that mirror and [are] transparent, penetrated, and liberated, very naturally. Each single being is liberated by transparency. 
 
-The next moment, immediately from that transparent being, and then your face coming up clearly again, from that mirror. You know, once your life, your five *skandhas* transparent, and immediately your five *skandhas* are coming up again. That is called *soku*: creation. Your life; creative life. (*Transcriber’s Note:* *soku* might be as in *shiki soku ze kū, kū soku ze shiki*: "form is itself emptiness; emptiness is itself form.")
+The next moment, immediately from that transparent being, and then your face coming up clearly again, from that mirror. You know, once your life, your five *skandhas* transparent, and immediately your five *skandhas* are coming up again. That is called *soku*: creation. Your life; creative life. (*Transcriber’s Note:* *soku* might be 即 as in *shiki soku ze kū, kū soku ze shiki* – "form is itself emptiness; emptiness is itself form" – or 足 as in *rin-en gusoku*, a translation of *mandala*; see [“Turning the Three Poisons into Wheels”](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
 
 But originally you are not different person. Katagiri is Katagiri. You are you. But when you are even once reflected in that mirror, you are transparent immediately, and coming up again. That is the frame of five *skandhas*. And then from that five *skandhas*, a kind of light is coming up. Okay? *[He chuckles.]* Light. 
 
