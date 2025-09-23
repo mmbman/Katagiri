@@ -175,13 +175,13 @@ And then Gensha Zen Master (Xuansha) says, “I am not satisfied [with] that.”
 
 So Seppō says, “How about you? How can you say?”
 
-Gensha Zen Master says, “It completely disintegrates.” In other words, ... *[there is some discussion about the correct word]* ... *slivers*, *fragments*. [...] Myriad, myriad pieces; [...] completely tiny, tiny broken pieces. 
+Gensha Zen Master says, “It completely disintegrates.” In other words, ... *[there is some discussion about the correct word]* ... slivers, fragments. [...] Myriad, myriad pieces; [...] completely tiny, tiny broken pieces. 
 
 And then Dōgen Zenji tries to explain it, commenting on this story. And finally, in the last part of explanation, he says:
 
 > What then is the shape of the broken pieces? 
 
-He says it is:
+... he says it is:
 
 > “Eternally deep water and the moon in the sky.”
 
