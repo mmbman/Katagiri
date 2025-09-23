@@ -554,7 +554,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 
 ##### [Shōbōgenzō Kokyo: Form and Mirror – Talk 1](1986-10-18-Shobogenzo-Kokyo-Talk-1)
 
-Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The Ancient Mirror”. The ancient mirror is that which reflects everything. “Reflecting everything” means that practice is not just about beings coming together in peace and harmony, but also about appreciating the many differences between them. 
+Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The Ancient Mirror”. The ancient mirror is that which reflects everything; sometimes it is called “the truth”. “Reflecting everything” means that practice is not just about beings coming together in peace and harmony, but also about appreciating the many differences between them. 
 
 <br/>
 

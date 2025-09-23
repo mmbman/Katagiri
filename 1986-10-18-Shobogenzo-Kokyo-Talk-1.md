@@ -7,7 +7,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 
 ### Summary
 
-Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The Ancient Mirror”. The ancient mirror is that which reflects everything. “Reflecting everything” means that practice is not just about beings coming together in peace and harmony, but also about appreciating the many differences between them. 
+Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The Ancient Mirror”. The ancient mirror is that which reflects everything; sometimes it is called “the truth”. “Reflecting everything” means that practice is not just about beings coming together in peace and harmony, but also about appreciating the many differences between them. 
 
 ### Transcript
 
