@@ -19,7 +19,7 @@ Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The A
 
 #### 00:00
 
-There are many cultural forms in every country, through which we can understand people's life, and histories, and heart. “There are many cultural forms” means customs, habits, manners, and rituals... many forms. And those forms are not merely forms, because they are just like a mirror, [in] which people's lives are reflected. So that's why we have to make every possible effort to understand different cultures: because it is not merely forms, it is the mirror. We can see our mind, our life in it. 
+There are many cultural forms in every country, through which we can understand people's lives, and histories, and heart. “There are many cultural forms” means customs, habits, manners, and rituals... many forms. And those forms are not merely forms, because they are just like a mirror, [in] which people's lives are reflected. So that's why we have to make every possible effort to understand different cultures: because it is not merely forms, it is a mirror. We can see our mind, our life in it. 
 
 So, in the United States, you have already lots of historical background, religious background, and also cultural background: many forms. Through those forms, people understand who you are, what kind of life you have followed. So, your cultural forms are very important for us. 
 
@@ -27,7 +27,7 @@ So, in the United States, you have already lots of historical background, religi
 
 Dōgen Zenji [talks about this] in *Shōbōgenzō* – the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror”. This is a very interesting chapter. 
 
-I mentioned *mirror* is that [in] which you can see the essential nature of human life reflected. So that mirror implies kind of vastness: vast expanse of sky or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth”.
+I mentioned the *mirror* is that [in] which you can see the essential nature of human life reflected. So that mirror implies a kind of vastness: a vast expanse of sky or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth”. 
 
 This is a mirror. In other words, “what is a mirror?” means “what is the truth?” 
 
@@ -45,9 +45,9 @@ This is the first point. What is a mirror? Dōgen Zenji says:
 
 “Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, and transmitted it: tried to hand it down from generation to generation. So that mirror is very personal, but it’s not personal, because many buddhas and many ancestors tried to receive and preserve and transmit it from generation to generation – the *same* mirror. So it is *public*, completely public; it’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it [by yourself]; you have to receive it and maintain it and preserve it and transmit it to next generations. This is natural.
 
-So what is the essence of human life which you have attained – enlightenment – saying how sublime human life is, how important human life is? This is in [you], this enlightenment is really personal – but it’s not personal, it’s really for everyone. Naturally it’s coming up, and you try to receive it and maintain it and transmit it. You want to say something about it to your sons, to your daughters, to your friends, to the next generations. So it becomes public.
+So what is the essence of human life which you have attained – enlightenment – saying how sublime human life is, how important human life is? This is in [you]; this enlightenment is really personal – but it’s not personal, it’s really for everyone. Naturally it’s coming up, and you try to receive it and maintain it and transmit it. You want to say something about it to your sons, to your daughters, to your friends, to the next generations. So it becomes public.
 
-So, that is a mirror. *Mirror* means the same and one place where all sentient beings live in peace, in harmony, beyond your speculation. So-called *truth*, we say. *Truth* is an inexplainable state of existence, which is constantly going as [things] truly are. [Temporarily we call that] *truth*. Sometimes we say *universe*, the *whole universe*. Because it’s pretty hard to explain it in words. 
+So, that is a mirror. *Mirror* means the same and one place where all sentient beings live in peace, in harmony, beyond your speculation. So-called *truth*, we say. *Truth* is an unexplainable state of existence, which is constantly going as [things] truly are. [Temporarily we call that] *truth*. Sometimes we say *universe*, the *whole universe*. Because it’s pretty hard to explain it in words. 
 
 #### 10:04
 
@@ -59,17 +59,17 @@ If buddhas and ancestors are reflected in that mirror, all buddhas and ancestors
 
 And also, the face, the look is of course different, but they are the same. All buddhas and ancestors, same look, same face – different, but they are the same and one. So exactly they are different, but you can [feel] the same feeling. 
 
-Do you understand? For instance, [if you are] American, if you [have lived] in United States for many, many years: everyone has a different look, but if your life is reflected in the same mirror, so-called American culture, you can see the same look. Can’t you? Sure, you can see, “Oh, you are American.” *[He chuckles.]*
+Do you understand? For instance, [if you are] American, if you [have lived] in United States for many, many years: everyone has a different look, but if your life is reflected in the same mirror, so-called American culture, you can see the same look, can’t you? Sure, you can see: “Oh, you are American.” *[He chuckles.]*
 
 Yes, you can. *[Laughter.]* 
 
 Well, from now on, you try. *[He laughs.]*
 
-Particularly when you go to Europe... not necessarily in Japan; Japan is completely different, you know? All are Japanese. But if you go to Europe, you are almost the same as Europeans, but still you are American. [People] can realize; people [ask], “Are you American?” Yes, you can see. So, the looks are different, but exactly the same look: so-called American. 
+Particularly when you go to Europe... not necessarily Japan; Japan is completely different, you know? All are Japanese. But if you go to Europe, you are almost the same as Europeans, but still you are American. [People] can [see]; people [ask], “Are you American?” Yes, you can see. So, the looks are different, but exactly the same look: so-called American. 
 
-But not [a cultural] mirror: if your life is reflected in the huge spiritual mirror, exactly everyone has the same look. Yes, it is true. Completely beyond races, completely beyond the cultural background, you become exactly the same look. 
+But [if it is] not [a cultural] mirror, if your life is reflected in the huge spiritual mirror, everyone has exactly the same look. Yes, it is true. Completely beyond races, completely beyond the cultural background, you become exactly the same look. 
 
-And also, he says [...] “shape” and “mold”. [...] “Shape” means, you know, the same type, same form. *Gassho*, this is a shape – you know, the *gassho* form. If you do *gassho*, there is a certain shape there. If you do zazen, you have the same shape. [There are the] so-called five *skandhas* – nose, mouth, and ears – but exactly the same shape. If your life is reflected in the spiritual [mirror], that huge mirror, your shape becomes the same with buddhas, ancestors, everyone. If you don’t believe me, do zazen! *[He laughs.]* Your shape becomes the same. Even if you don’t face me, I can see the same shape from your back. 
+And also, he says [...] “shape” and “mold”. [...] “Shape” means, you know, the same type, same form. *Gassho*: this is a shape – you know, the *gassho* form. If you do *gassho*, there is a certain shape there. If you do zazen, you have the same shape. [There are the] so-called five *skandhas* – nose, mouth, and ears – but exactly the same shape. If your life is reflected in the spiritual [mirror], that huge mirror, your shape becomes the same with buddhas, ancestors, everyone. If you don’t believe me, do zazen! *[He laughs.]* Your shape becomes the same. Even if you don’t face me, I can see the same shape from your back. 
 
 So this is true. 
 
@@ -79,27 +79,31 @@ That’s why in Zen we say, “wherever you may go, or whatever you may be, you 
 
 This is called *samadhi*. We say *samadhi* in Buddhism. 
 
-And also, “practice and enlightenment”. So as to reach this same and one with view, and faith, shape, and mold: we try to practice. And then through that practice, you will see a certain result. 
+And also, “practice and enlightenment”. So as to reach this same and one with view, faith, shape, and mold, we try to practice. And then through that practice, you will see a certain result. 
 
-So I think naturally, if your life is reflected in that mirror, you have a same and one type of life. And whatever you do, you are always going on the same road with the people; exactly the same. This is the practice. 
+So I think naturally, if your life is reflected in that mirror, you have a same and one type of life. And whatever you do, you are always going on the same road with the people; exactly the same. This is the practice. And then, the same result. That means you can walk hand-in-hand with people. That is what? [That is] peace, harmony, we say.
 
-And then, the same result. That means you can walk hand-in-hand with people. That is what? [That is] peace, harmony, we say.
+#### 17:46
 
-So, when your life is completely reflected in that mirror, you can have the same and one pattern, and your looks, your heart, your lifestyles are all the same. But from that same and one pattern, there are myriad, myriad different types of life coming up, freely, constantly, under all circumstances. What is that? This is a practice. And what is this? Through that practice, what will you get? That is a result, so-called peace and harmony, in your life. 
+So, when your life is completely reflected in *that* mirror, you can have the same and one pattern, and your looks, your heart, your lifestyles are all the same. But from that same and one pattern, there are myriad, myriad different types of life coming up, freely, constantly, under all circumstances. 
+
+What is this? This is a practice. And [...] through that practice, what will you get? That is a result, so-called peace and harmony in your life. 
 
 So, that’s why Dōgen Zenji says it here like this: 
 
 > When the Barbarian comes, he is reflected in that mirror.
 
-Anyway, when the Barbarian, [or the] American comes... *[someone laughs]* ... Americans are reflected; Japanese comes, Japanese are reflected. Naturally; with no complaints. 
+Anyway, when the Barbarian [or the] American comes... *[someone laughs...]* Americans are reflected. Japanese comes, Japanese are reflected. Naturally; with no complaints. 
  
-When the Christian comes, the Christians are reflected, anyway. But human beings are really stubborn, you know? I always say, we are just like an octopus. *[He chuckles.]* Do you know the octopus? You know, when you become a fisherman, [there’s a] very easy, simple way to catch the octopus. You just put any kind of pot, tied [to a] rope, and many pots on the rope, and then sink them to the bottom of the ocean. And then an octopus gets into each pot. This is called “my territory”. So-called Christianity, Buddhism, Americans – many pots there. Times, or space, and customs. And then each pot starts to move – so-called functioning of American culture, Japanese culture. And each octopus always become *tight*, you know? Whenever the pot moves, always tight. And then finally, we can easily get it. Do you understand? *[He laughs.]* This is all of you. You are just like an octopus. Human beings are just like an octopus.
+When the Christian comes, the Christians are reflected. But human beings are really stubborn, you know? I always say, we are just like an octopus. *[He chuckles.]* Do you know the octopus? You know, when you become a fisherman, [there’s a] very easy, simple way to catch the octopus. You just put any kind of pot, tied [to a] rope, and many pots on the rope, and then sink them to the bottom of the ocean. And then an octopus gets into each pot. This is called “my territory”: so-called Christianity, Buddhism, Americans – many pots there. Time, or space, and customs. And then each pot starts to move: so-called functioning of American culture, Japanese culture. And the octopus always becomes *tight*, you know? Whenever the pot moves, always tight. And then finally, we can easily get it. Do you understand? *[He laughs.]* 
 
-[You] try to see the people, and talk about Buddhism, and Christianity, and the whatever different cultures, and talking about [yourself]. [You say,] “Try to understand,” you know? The more you try to talk, the more people don’t understand you. *[He laughs.]* And then you try to talk about Buddhism, how wonderful it is, how different it is from other religions. People don’t trust you, people don’t understand. 
+This is all of you. You are just like an octopus. Human beings are just like an octopus.
+
+[You] try to see the people, and talk about Buddhism, and Christianity, and the whatever different cultures [are]. And talking about [yourself]. [You say,] “Try to understand,” you know? The more you try to talk, the more people don’t understand you. *[He laughs.]* And then you try to talk about Buddhism, how wonderful it is, how different it is from other religions. People don’t trust you; people don’t understand. 
 
 How stubborn we are! Just like an octopus. 
 
-And then, what is this? This is exactly something people can depend on, and see and believe, but it is nothing but egoistic. That’s it. So finally, what happens? It is called death. [They] commit suicide by themselves, you know? By egoism, by the prejudice, finally the octopus has to die, commit suicide by itself. But people don’t understand this. 
+And then, what is this? This is exactly something people can depend on, and see and believe, but it is nothing but egoism. That’s it. So finally, what happens? It is called death. [They] commit suicide by themselves, you know? By egoism, by prejudice, finally the octopus has to die, commit suicide by itself. But people don’t understand this. 
 
 Okay, this is our first point: what is the mirror. 
 
@@ -109,17 +113,15 @@ The second [point], Dōgen Zenji [says] like this:
 
 > His statement “not dim either inside [or] outside” means that inside is not against outside and vice versa. There is no front or back; both of them are visible as one whole. The words “mind and eye resembling each other” mean that a man sees a man, and that the mind is his eye, both inside and outside the mirror, both of them being visible as one whole. The present self and the world are both the inside and outside of the mirror. There is no difference such as self and others, both of them being visible as one whole. Others are self, self is others. 
 
-Here is the second point of what is a mirror. He says the mirror is completely clear, inside and outside. Completely clear. Actually a usual mirror has a front that is very clear and a back that is not clear – a little bit dim, you know? But this mirror is completely clear inside and outside; and also it doesn’t have a certain concept, so-called inside opposed to outside. Inside is simultaneously outside, outside is simultaneously inside. So there are no particular limitations. 
-
-So that’s why it’s very clear, very clear. In other words, kind of transparent, completely transparent. If you try to see this altar through my body, you can see this altar through my body, exactly, because it’s very clear. 
+Here is the second point of what is a mirror. He says the mirror is completely clear, inside and outside. Completely clear. Actually a usual mirror has a front that is very clear and a back that is not clear – a little bit dim, you know? But this mirror is completely clear inside and outside – and also it doesn’t have a certain concept so-called *inside* opposed to *outside*. Inside is simultaneously outside, outside is simultaneously inside. So there are no particular limitations. That’s why it’s very clear, very clear. In other words, kind of transparent, completely transparent. If you try to see this altar through my body, you can see this altar through my body exactly, because it’s very clear. 
 
 So no inside, no outside. And also he says no front or back. In the usual mirror there are front and back, but actually this mirror doesn’t have a particular category so-called front or back. And also both of them are visible as one whole. 
 
-This is the actual, true mirror. If you want to see the essential nature of human existence through that mirror, that mirror must be completely clear, without any limitation of outside or inside, or front or back; exactly clear. But it is a mirror; when you stand up, your life is reflected. 
+This is the actual, true mirror. If you want to see the essential nature of human existence through that mirror, that mirror must be completely clear, without any limitation of outside or inside, or front or back; exactly clear. But it is a mirror: when you stand up, your life is reflected. 
 
 So that is the image of the mirror.
 
-But you use the word mirror, I think we naturally we can imagine kind of a front and back; otherwise it’s very difficult to understand the mirror. So let’s use a front and back. If it has front and back, what is this? What’s the relation between the front and back? It says, “it is like mind and eyes.” Here it says, 
+But you use the word *mirror*, I think we naturally imagine kind of a front and back; otherwise it’s very difficult to understand the mirror. So let’s use a front and back. If it has front and back, what is this? What’s the relation between the front and back? It says “it is like mind and eyes.” Here it says, 
 
 > ... the words “mind and eyes resembling each other” mean that a man sees a man, and the mind is his eye both inside and outside the mirror, both of them being visible as one whole.
 
@@ -129,13 +131,13 @@ Mind itself constantly manifests itself in the eye. And the eye manifests itself
 
 So this is just like a person looks at person. You look at yourself. 
 
-Or maybe, there is a Zen story that if you look at the well, the well looks at you. So well and you are the same. The donkey pokes his head into the well and looks at his face, and then [when the] donkey looks at the well, the well looks at the donkey. Finally, donkey looks at donkey, well looks at well. Because donkey and well: in the donkey, there is a well, in the well there is a donkey. So who is seeing whom? 
+Or maybe, there is a Zen story that if you look at the well, the well looks at you. So the well and you are the same. The donkey pokes his head into the well and looks at his face, and then [when the] donkey looks at the well, the well looks at the donkey. Finally, donkey looks at donkey, well looks at well. Because donkey and well: in the donkey, there is a well, in the well there is a donkey. So who is seeing whom? 
 
 Nothing. Just when you see the donkey, the donkey looks at what? Donkey. 
 
 This is exactly the state of the functioning of the mirror. 
 
-And,
+And:
 
 > The present self and the world are both the inside and outside of the mirror. There is no difference such as self and others, both of them being visible as one whole. Others are self and self is others. 
 
@@ -143,13 +145,13 @@ So that mirror is exactly the same and one place, where all sentient beings coex
 
 So very naturally camels are reflected in that mirror with elephants in Africa. Africa’s elephant and camel talks with each other, walking with each other in the same place. 
 
-Or, if you look at this mirror, *I* look at the mirror, *you* stand up in the mirror. And then both are different faces. Different forms, different lifestyles. But if your life is reflected in that mirror and I am reflected in that mirror, different faces come together and finally different faces become one. So your looks, my looks are reflected in the same mirror, but it’s the same. If you look at that mirror very calmly, you can see the difference, but through that difference you can see the same. 
+Or, if you look at this mirror, *I* look at the mirror, *you* stand up in the mirror, and then both are different faces, different forms, different lifestyles. But if your life is reflected in that mirror and I am reflected in that mirror, different faces come together and finally different faces become one. So your looks, my looks are reflected in the same mirror, but it’s the same. If you look at that mirror very calmly, you can see the difference, but through that difference you can see the same. 
 
 That’s why we have to make every possible effort to understand different cultures, different personalities. Why do we have to stand up in the different personalities? Why do we have to live with the people who have completely different personalities? *Why*? Because we are the same. 
 
 So let’s live together in peace and harmony, with people who have completely different lifestyles, personalities from you. That means you have to stand up in that mirror. The people stand up in that mirror, and with a calm mind continually [they] see different shapes, different faces. Finally, different faces become one and the same face, through that exactly same essential nature of human existence. 
 
-This is a spiritual mirror. So-called *ancient mirror*. So-called *truth*. 
+This is a spiritual mirror, so-called “ancient mirror”. So-called *truth*. 
 
 #### 33:34
 
