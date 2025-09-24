@@ -189,23 +189,21 @@ And then Dōgen Zenji tries to explain it, commenting on this story. And finally
 
 It means: we try to understand, we try to approach to what the truth is, what the clear mirror is, through our experience, through our studies, through our practice. We try to [understand]. And then when you reach exactly [the] true clear mirror, that means when you meet exactly that clear mirror, completely there is no particular mirror between you and the mirror. So, the mirror is completely broken pieces. 
 
-What do I mean? That means, finally, broken pieces of culture, your lifestyle, your life. When you get up in the morning, this is a mirror. When you do gassho, this is a mirror. When you see the trees in autumn, this is a mirror. You can see the essential nature of human existence. So, the tree is not a part of the creature [...] different from human beings. You can see the trees; through that, you can see your life. So finally, tree is clear mirror. 
+What do I mean? It means, finally, broken pieces of culture, your lifestyle, your life. When you get up in the morning, this is a mirror. When you do gassho, this is a mirror. When you see the trees in autumn, this is a mirror. You can see the essential nature of human existence. So, the tree is not a part of the creature [...] different from human beings. You can see the trees; through that, you can see your life. So finally, tree is clear mirror. 
 
-When you talk with a mirror, this is a poem, you can create a poem. But the poem is nothing but the mirror. Through the mirror, you can see that kind of sentimental and huge world, something more than the intellectual. It is not *exactly* something you have to attach to, but through those words, there is a completely inconceivable world there. That means the essential nature of human existence. Through the poem, you have to see this. Through the trees, you have to see this essential nature of human existence. 
+When you talk with a mirror, this is a poem. You can create a poem; but the poem is nothing but the mirror. Through the mirror, you can see that kind of sentimental and huge world, something more than the intellectual. It is not *exactly* something you have to attach to, but through those words, there is a completely inconceivable world there; that means the essential nature of human existence. Through the poem you have to see this. Through the trees, you have to see this essential nature of human existence. 
 
 So, very naturally, your five *skandhas*, your body, is your mirror. Your thinking is also your mirror. 
 
-If you have a particular occupation, so-called mountaineer: mountaineer is your mirror. So, through the mountaineer, you can learn life of the trees, life of the birds, life of the frogs. Life of the Americans, life of the Japanese – you can learn. Through the rock climbers, you can see the same life of the trees and the frogs and rivers and skies. 
+If you have a particular occupation, so-called *mountaineer*: mountaineer is your mirror. So, through the mountaineer, you can learn the life of the trees, life of the birds, life of the frogs. Life of the Americans, life of the Japanese – you can learn. Through the rock climbers, you can see the same life of the trees and the frogs and rivers and skies. 
 
-So that’s why we try to see what the real mirror is, where our life is reflected simultaneously with all sentient beings; all sentient beings are reflected in the mirror. And then when you see this mirror, what happens? No partitions, so-called “here is the particular mirror.” No. 
+So that’s why we try to see what the real mirror is, where our life is reflected simultaneously with all sentient beings, all sentient beings are reflected in the mirror. And then when you see this mirror, what happens? [There are] no partitions, so-called “here is the particular mirror.” No. 
 
 So, when you see that mirror, your life is completely broken pieces. It means your nose is just your nose. Your five *skandhas* are just five *skandhas*. 
 
 *[Tape change.]*
 
-... We have to see. We have to see, we have to learn. We have to learn your body, your mind, your life. 
-
-So that’s why Dōgen Zenji says that to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
+... We have to see; we have to learn. We have to learn your body, your mind, your life. So that’s why Dōgen Zenji says that to study Buddhism is to study the self. Very naturally, we have to start to learn what human life is. 
 
 But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe, because we have lots of prejudice. Just like an octopus. So, one by one, we have to take off those prejudices. 
 
@@ -243,7 +241,7 @@ Okay. Do you have a question?
 
 **Questioner:** Why doesn’t it always *seem* clear? 
 
-**Katagiri Roshi:** That is your understanding. That’s why the essential nature of human exists, not only your mirror. If you see the mirror just in terms of your point of view, it’s not clear. But it’s originally clear. Just like a mirror of the trees, a mirror of the frogs, and a mirror of the sky. 
+**Katagiri Roshi:** That is your understanding. That’s why the essential nature of humans exists, not only your mirror. If you see the mirror just in terms of your point of view, it’s not clear. But it’s originally clear; just like a mirror of the trees, a mirror of the frogs, and a mirror of the sky. 
 
 So all are clear, completely. From the beginning to end, it’s clear. Alright? 
 
