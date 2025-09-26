@@ -7,7 +7,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 2"
 
 ### Summary
 
-Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized at “a co-existent place”, “transformation”, and “the forms return”.
+Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “the forms renewed”.
 
 ### Transcript
 
@@ -201,7 +201,7 @@ That is experiencing that, you know, your life reflected in the spiritual life, 
 
 ... perfect maturity is, the persimmon drops on the ground, and all the guts come out. *[He laughs.]* This is a perfect maturity. Do you understand? It doesn’t stay on the branch. Naturally, it falls, and all the guts come out. [It is] never coming back to the branch. [It is] free; liberated. 
 
-So whatever happens... not whatever happens. Every single aspect of human life, okay? Your life is really alive. That is total, perfect maturity. This is the final goal of spiritual life you are seeking for. 
+So whatever happens... not whatever happens. Every single aspect of human life, your life is really alive. That is total, perfect maturity. This is the final goal of spiritual life you are seeking for. 
 
 **Someone:** Roshi? Do you mean that like a student and a teacher, when a student is mature, then they leave? 
 
@@ -239,7 +239,7 @@ So whatever happens... not whatever happens. Every single aspect of human life, 
 
 **Someone:** When the persimmon falls on the ground and opens its guts, then very quickly it becomes part of the ground. It becomes compost. 
 
-**Katagiri Roshi:** No. It’s every single piece stands up again and shoots. 
+**Katagiri Roshi:** No. It’s [that] every single piece stands up again and shoots. 
 
 **Someone:** Like a new plant growing? 
 
@@ -247,7 +247,7 @@ So whatever happens... not whatever happens. Every single aspect of human life, 
 
 **Someone:** Not growing out of the persimmon?
 
-**Katagiri Roshi:** So [...] your life really re-arrived. 
+**Katagiri Roshi:** So [...] your life really re-arrives. 
 
 #### 
 
@@ -267,13 +267,15 @@ Disintegrate, what would that be?
 
 **Questioner:** Shatter. That’s a form too, the shattering? 
 
-**Katagiri Roshi:** Uh, yes, but it is completely liberated form. Liberated form means... how can I say? Mature. If you become mature. No, that’s not a good example. How can I say? 
+**Katagiri Roshi:** Uh, yes, but it is completely liberated form. *Liberated form* means... how can I say? Mature. If you become mature. No, that’s not a good example. How can I say? 
 
 ... Well, just like the body. Master of the judo, master of the football player. In the beginning, you have to continually train your body. Then if you become mature as a football player or judo player. Your five *skandhas*, this body, is a frame of a five *skandhas* which seems to be rigid. But, if you become mature, it’s not rigid. It’s always the frame, the same body, but when you play judo, your body becomes [like] a bow, very soft. 
 
 So, each fragment seems to be same as before. But, if you are reflected in the mirror and experience deeply something, then you are liberated. Transformed. Fragment. 
 
-So you can deal with your five *skandhas* in a different way, beyond your consciousness. Is that okay? That’s why your life re-arrives. That is called *transformation*, we say: spiritual transformation. Turn [over] your life; turn [over] a new leaf. Something like that. 
+So you can deal with your five *skandhas* in a different way, beyond your consciousness.
+
+That’s why your life re-arrives. That is called *transformation*, we say: spiritual transformation. Turn [over] your life; turn [over] a new leaf. Something like that. 
 
 Okay? Is that clear? 
 
@@ -283,19 +285,19 @@ Okay? Is that clear?
 
 **Someone:** I was going to say, a life functioning, rather than a life kind of caught by our idea...
 
-**Katagiri Roshi:** I think that they constantly... I think before you come to the Zen center, before you do zazen, I think, look at your life in the past – you know, how often we took care of everything carelessly. But after coming to the Zen center and sitting zazen, and listening to the Buddha’s teaching, and even though you don’t understand the real meaning of Buddha’s teachings, still something penetrated your life. So, even though you don’t like to listen, the teachings so-called, “Take care of microphone with your sincere heart,” as well as taking care of your life, exactly. Always listening to this one, very naturally, unconsciously or consciously, you can deal with your book, and something like that. You can wrap the book with a wrapping cloth, and hold it with a sincere heart. 
+**Katagiri Roshi:** I think that they constantly... I think before you come to the Zen center, before you do zazen, look at your life in the past – you know, how often we took care of everything carelessly. But after coming to the Zen center and sitting zazen and listening to the Buddha’s teaching, even though you don’t understand the real meaning of Buddha’s teachings, still something penetrated your life. So, even though you don’t like to listen, the teachings, so-called “take care of the microphone with your sincere heart,” as well as taking care of your life, exactly. Always listening to this, very naturally, unconsciously or consciously, you can deal with your book, and something like that. You can wrap the book with a wrapping cloth, and hold it with a sincere heart. 
 
 This is a quite different life. You don’t know, actually. But, your everyday life is completely different.
 
-So before you come to the Zen center, look at your life, anyway. Very naturally a different attitude toward your life, toward others’ life. You can see. 
+So before you come to the Zen center, look at your life. Very naturally a different attitude toward your life, toward others’ life, you can see. 
 
-And then, maturity means, you have to do it, you know, day by day. So, take care of your book, your toilet paper, and your boots, and your pants, et cetera, every day with a sincere heart. That is called maturity. Maturity is not talking about concept. Maturity is a way to *demonstrate* your life, based on that ancient mirror. You have to demonstrate. 
+And then, maturity means, you have to do it day by day. So, take care of your book, your toilet paper, and your boots, and your pants, et cetera, every day with a sincere heart. That is called maturity. Maturity is not talking about concepts, maturity is a way to *demonstrate* your life, based on that ancient mirror. You have to demonstrate. 
 
 So that’s why, how can you demonstrate? I try to demonstrate. When you demonstrate, your life perhaps can be exactly reflected in that ancient mirror, beyond your speculation. 
 
 That’s why I tell you. So, very naturally you do it. This is called maturity. 
 
-Each fragment is really encompassed by this maturity. So, very naturally, different way of life coming up.
+Each fragment is really encompassed by this maturity. So, very naturally, a different way of life is coming up.
 
 Is that clear? 
 
@@ -305,7 +307,7 @@ Is that clear?
 
 **Question:** Almost?
 
-**Katagiri Roshi:** Almost. The definition of freedom is different from maturity. *Maturity* is more paying attention to the quality of living life, aliveness in life. Liberation or freedom is a kind of pretty vast meaning. General. General attitude towards human life, okay? Liberation, freedom. 
+**Katagiri Roshi:** Almost. The definition of freedom is different from maturity. *Maturity* is more paying attention to the quality of living life, aliveness in life. Liberation or freedom is a kind of pretty vast meaning, general. General attitude towards human life, okay? Liberation, freedom. 
 
 You know freedom or liberation, but you don’t know how to live in liberation. In the world of freedom, we don’t know. That’s why we need maturity. We have to make our life mature. Then, maturity makes your life, causes your life to live in the world of liberation. Is that clear? 
 
@@ -313,7 +315,7 @@ You know freedom or liberation, but you don’t know how to live in liberation. 
 
 **Katagiri Roshi:** Sure, already. 
 
-**Questioner:** The definition of freedom: is it a *kind of* maturity? More bigger?
+**Questioner:** The definition of freedom: is it a *kind of* maturity? More, bigger?
 
 **Katagiri Roshi:** A kind of what? 
 
@@ -347,7 +349,7 @@ But we always try to decide to be liberated. *[He laughs.]* It’s impossible.
 
 **Katagiri Roshi:** Truth. 
 
-**Questioner:** Truth. Okay. So this kind of the ultimate, we’re talking about the ultimate now, and whatever, in terms of the metaphor of an ancient mirror. Right? 
+**Questioner:** Truth. Okay. So this is kind of the ultimate, we’re talking about the ultimate now, and whatever, in terms of the metaphor of an ancient mirror. Right? 
 
 **Katagiri Roshi:** Uh-huh.
 
@@ -357,7 +359,7 @@ But we always try to decide to be liberated. *[He laughs.]* It’s impossible.
 
 **Questioner:** Okay. The second point...
 
-**Katagiri Roshi:** That the truth is ancient mirror – what that place is like. That is the first point. 
+**Katagiri Roshi:** That the truth is [the] ancient mirror – what that place is like. That is the first point. 
 
 **Questioner:** What that place is like. 
 
@@ -373,19 +375,19 @@ But we always try to decide to be liberated. *[He laughs.]* It’s impossible.
 
 **Questioner:** Okay. No frame... 
 
-**Katagiri Roshi:** No frame. So that’s why I say *transparent*. That means *transformed*; you are transformed. Five *skandhas* immediately transformed. And your frames disappear and create another form. Re-form, re-form, re-form. Re-formation? Reform, reform, exactly. Reform, the five *skandhas*. That is the second. Transformation. 
+**Katagiri Roshi:** No frame. So that’s why I say *transparent*. That means *transformed*; you are transformed. Five *skandhas* immediately transformed, and your frames disappear and create another form. Re-form, re-form, re-form. Re-formation? Re-form, re-form, exactly. Re-form the five *skandhas*. That is the second. Transformation. 
 
 **Questioner:** Right. And the third point is that the forms come up again?
 
-**Katagiri Roshi:** Yes. That is that story, through that story. 
+**Katagiri Roshi:** Yes. That is [explained] through that story. 
 
-We shouldn’t forget that third one. Otherwise you cannot take care of your life, in so-called free freedom. You never experience freedom, perfect freedom. You cannot live in a peaceful world. You cannot build up a peaceful world if you forget the third point. Whatever reason you have, even though your motivation spiritually is good, the result is a little bit confused. 
+We shouldn’t forget that third one. Otherwise you cannot take care of your life, in so-called freedom. You never experience perfect freedom, you cannot live in a peaceful world, you cannot build up a peaceful world if you forget the third point. Whatever reason you have, even though your motivation spiritually is good, the result is a little bit confused. 
 
-Like the human world. Look at the human world. The first motivation is pretty good, to believe something, to help. In order to help all sentient beings, we believe this and that, etc. Finally, under that beautiful faith... we fight. That always happens in the world. Don’t you think so? 
+Like the human world. Look at the human world: the first motivation is pretty good, to believe something, to help. In order to help all sentient beings, we believe this and that, et cetera. Finally, under that beautiful faith... we fight. That always happens in the world. Don’t you think so? 
 
-That’s why constantly you have to make your mind and body calm down and *be*. Reflect your body experience once more again in that mirror, and break into the shatters. And then come back, exactly everyday life, with all sentient beings. 
+That’s why constantly you have to make your mind and body calm down and *be*. Reflect your body experience once more again in that mirror, and break into the shatters. And then come back exactly [to] everyday life, with all sentient beings. 
 
-In other words, you have to demonstrate, you have to show, actually, practically, peaceful life. If you experience spiritual life reflected in that ancient mirror, you have to *demonstrate*, actually. It’s not the philosophical fascination or psychological fascination through the words. No. It’s very concrete, human life. 
+In other words, you have to demonstrate, you have to show actual, practical, peaceful life. If you experience spiritual life reflected in that ancient mirror, you have to *demonstrate*, actually. It’s not the philosophical fascination or psychological fascination through the words. No. It’s very concrete: human life. 
 
 **Someone:** So the way to open your heart is through the transformation?
 
