@@ -3,7 +3,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 1"
 ---
 ## October 18, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-19-Shobogenzo-Kokyo-Talk-2) | [List](list#1986) | Series: 
+#### [Previous](1986-07-23-Verse-of-Opening-the-Sutra) | [Next](1986-10-19-Shobogenzo-Kokyo-Talk-2) | [List](list#1986) | Series: [*Kokyo*](kokyo)
 
 ### Summary
 
@@ -19,17 +19,15 @@ Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The A
 
 #### 00:00
 
-There are many cultural forms in every country, through which we can understand people's lives, and histories, and heart. “There are many cultural forms” means customs, habits, manners, and rituals... many forms. And those forms are not merely forms, because they are just like a mirror, [in] which people's lives are reflected. So that's why we have to make every possible effort to understand different cultures: because it is not merely forms, it is a mirror. We can see our mind, our life in it. 
+There are many cultural forms in every country, through which we can understand people's lives, and histories, and heart. “There are many cultural forms” means customs, habits, manners, and rituals... many forms. And those forms are not merely forms, because they are just like a *mirror*, [in] which people's lives are reflected. So that's why we have to make every possible effort to understand different cultures: because they are not merely forms, they are a mirror. We can see our mind, our life in it. 
 
-So, in the United States, you have already lots of historical background, religious background, and also cultural background: many forms. Through those forms, people understand who you are, what kind of life you have followed. So, your cultural forms are very important for us. 
+In the United States, you have already lots of historical background, religious background, and also cultural background: many forms. Through those forms, people understand who you are, what kind of life you have followed. So, your cultural forms are very important for us. 
 
 [...] What is [the] mirror in which the essence of [humanity]'s existence is reflected? What is [that] mirror? Not only the cultural forms, but we have to understand what is the mirror that the essential nature of human life is reflected in. 
 
-Dōgen Zenji [talks about this] in *Shōbōgenzō* – the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror”. This is a very interesting chapter. 
+Dōgen Zenji [talks about this] in *Shōbōgenzō*: the title is *Kokyo* in Japanese, which means literally “Old Mirror” or “Ancient Mirror”. This is a very interesting chapter. 
 
-I mentioned the *mirror* is that [in] which you can see the essential nature of human life reflected. So that mirror implies a kind of vastness: a vast expanse of sky or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth”. 
-
-This is a mirror. In other words, “what is a mirror?” means “what is the truth?” 
+I mentioned the *mirror* is that [in] which you can see the essential nature of human life reflected. So that mirror implies a kind of vast expanse of sky or space, where all sentient beings coexist simultaneously in peace, in silence, in harmony. Plainly speaking, maybe it is called sometimes “the truth”. This is a mirror. In other words, “what is the mirror?” means “what is the truth?” 
 
 So, how is that mirror exercised? How does that mirror reflect? How do all sentient beings reflect in that mirror? 
 
@@ -37,13 +35,15 @@ So, how is that mirror exercised? How does that mirror reflect? How do all senti
 
 [In the] first point, Dōgen Zenji [talks about] this. It is a little bit difficult, but I will explain later, okay? 
 
-> It is the ancient mirror that buddhas and patriarchs have received, preserved, and transmitted personally. They are all the same and one with view, face, shape, mold, practice, and enlightenment. When the barbarian comes, he is reflected in that mirror – eight thousand or ten thousand. Also, when the Chinese comes, he is reflected in it, containing one moment or ten thousand years. Also, when the past, the present, or the buddhas and ancestors come, they are reflected. 
+> It is the ancient mirror that buddhas and ancestors have received, preserved, and transmitted personally. They are all the same and one with view, face, shape, mold, practice, and enlightenment. When the barbarian comes, he is reflected in that mirror – eight thousand or ten thousand. When the Chinese comes, he is reflected in it, containing one moment or ten thousand years. Also, when the past, the present, or the buddhas and ancestors come, they are reflected. 
 
-This is the first point. What is a mirror? Dōgen Zenji says:
+This is the first point: what is the mirror? 
 
-> It is the ancient mirror that Buddhas and ancestors have received and preserved and transmitted personally. 
+Dōgen Zenji says:
 
-“Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, and transmitted it: tried to hand it down from generation to generation. So that mirror is very personal, but it’s not personal, because many buddhas and many ancestors tried to receive and preserve and transmit it from generation to generation – the *same* mirror. So it is *public*, completely public; it’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it [by yourself]; you have to receive it and maintain it and preserve it and transmit it to next generations. This is natural.
+> It is the ancient mirror that buddhas and ancestors have received and preserved and transmitted personally. 
+
+“Personally” means historically or personally, anyway from generation to generation, each single buddha and ancestor received this mirror and preserved, maintained, and transmitted it: tried to hand it down from generation to generation. So that mirror is very personal – but it’s not personal, because many buddhas and many ancestors tried to receive and preserve and transmit it from generation to generation, the *same* mirror. So it is *public*, completely public. It’s personal, but it’s public. That means you cannot hold it by yourself. If you realize how important, how sublime human life is through your life, you cannot hold it [by yourself]; you have to receive it and maintain it and preserve it and transmit it to next generations. This is natural.
 
 So what is the essence of human life which you have attained – enlightenment – saying how sublime human life is, how important human life is? This is in [you]; this enlightenment is really personal – but it’s not personal, it’s really for everyone. Naturally it’s coming up, and you try to receive it and maintain it and transmit it. You want to say something about it to your sons, to your daughters, to your friends, to the next generations. So it becomes public.
 

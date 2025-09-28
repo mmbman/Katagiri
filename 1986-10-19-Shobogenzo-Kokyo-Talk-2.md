@@ -3,11 +3,11 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 2"
 ---
 ## October 19, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-10-18-Shobogenzo-Kokyo-Talk-1) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: 
+#### [Previous](1986-10-18-Shobogenzo-Kokyo-Talk-1) | [Next](1986-10-31-Tiantai-Buddhism-Talk-1) | [List](list#1986) | Series: [*Kokyo*](kokyo)
 
 ### Summary
 
-Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “the forms renewed”.
+Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “renewing the forms”.
 
 ### Transcript
 

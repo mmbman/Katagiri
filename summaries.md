@@ -560,7 +560,7 @@ Katagiri Roshi discusses the chapter of *Shobogenzo* titled *Kokyo*, or “The A
 
 ##### [Shōbōgenzō Kokyo: Form and Mirror – Talk 2](1986-10-19-Shobogenzo-Kokyo-Talk-2)
 
-Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “the forms renewed”.
+Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “renewing the forms”.
 
 <br/>
 
