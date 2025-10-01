@@ -79,21 +79,21 @@ So that’s why the second point of the ancient mirror is [that] you and I and a
 
 #### 20:15
 
-The next moment, immediately from that transparent being, then your face is coming up clearly again, from that mirror. You know, once your life, your five *skandhas* [are] transparent, immediately your five *skandhas* are coming up again. That is called *soku*: creation. Your life; creative life. (*Transcriber’s Note:* *Soku* might be 足 as in *rin-en gusoku*, a translation of *mandala* – see [“Turning the Three Poisons into Wheels”](1986-06-28-Turning-the-Three-Poisons-into-Wheels) – or perhaps 即 as in *shiki soku ze kū, kū soku ze shiki*: "form is itself emptiness; emptiness is itself form".)
+The next moment, immediately from that transparent being your face is coming up clearly again, from that mirror. You know, once your life, your five *skandhas* [are] transparent, immediately your five *skandhas* are coming up again. That is called *soku*: creation [of] your life; [this is] creative life. (*Transcriber’s Note:* *Soku* might be 足 as in *rin-en gusoku*, a translation of *mandala* – see [“Turning the Three Poisons into Wheels”](1986-06-28-Turning-the-Three-Poisons-into-Wheels) – or perhaps 即 as in *shiki soku ze kū, kū soku ze shiki*: "form is itself emptiness; emptiness is itself form".)
 
-Originally you are not a different person: Katagiri is Katagiri, you are you. But when you are even once reflected in that mirror, you are transparent immediately, and coming up again. That is the frame of five *skandhas*. And then from those five *skandhas*, a kind of light is coming up. Okay? *[He chuckles.]* Light. 
+Originally you are not a different person: Katagiri is Katagiri, you are you. But when you are even once reflected in that mirror, you are transparent immediately, and coming up again. That is the frame of five *skandhas*. And then from those five *skandhas*, a kind of “light” is coming up. Okay? *[He chuckles.]* Light. 
 
-In other words, no mirrors. That’s why [there is] the third point I [talked about], the stories. When the clear mirror meets the clear mirror, the mirror breaks into [slivers], shatters. And then as you [see the clear] ancient mirror, including the reflection of the trees, birds, and insects, butterflies, birds, and you and I, Americans, Japanese – all the reflections break into [slivers]. 
+In other words, no mirrors. That’s why [there is] the third point I [talked about], the stories. When the clear mirror meets the clear mirror, the mirror breaks into [slivers], shatters. And then the clear ancient mirror – including the reflection of the trees, birds, and insects, butterflies, birds, and you and I, Americans, Japanese – all the reflections break into [slivers]. 
 
-What do I mean? Before you can see the mirror, before you can see the reflection of all sentient beings, there is already [the] great vast openness of the sky, [openness of] space there. So no gap between, no reflection there. No reflections, no partition there; no discrimination there. When you see the clear mirror exactly, you are the clear mirror and see the clear mirror, then all of a sudden the mirror [shatters]. At that time, it means before the clear mirror, before all the reflections, there is completely huge vast openness of sky or space. This is called *akasha*, we say in Sanskrit, which means a place where all sentient beings can live in peace, in harmony, without any obstruction. This is called *akasha*. In English it’s very difficult to translate it. Sometimes *space* or *sky* – but something more than space. 
+What do I mean? Before you can see the mirror, before you can see the reflection of all sentient beings, there is already [the] great vast openness of the sky, [openness of] space there. So no gap between, no reflection there; no reflections, no partition there; no discrimination there. When you see the clear mirror exactly, you are the clear mirror and see the clear mirror, then all of a sudden the mirror [shatters]. At that time, it means before the clear mirror, before all the reflections, there is completely huge vast openness of sky or space. This is called *akasha*, we say in Sanskrit. Which means a place where all sentient beings can live in peace, in harmony, without any obstruction; this is called *akasha*. In English it’s very difficult to translate it. Sometimes *space* or *sky* – but something more than space. 
 
 So this is the third point. At that time, in the third point, I think there is no particular mirror, so-called ancient mirror, [and no] particular reflection you have to see in the particular mirror. Already there is great space, a vast openness of space. Which means no discrimination, no partitions – nothing. So that means when you see the tree, the tree is already nothing but the ancient mirror. Because [there are] no partitions, no discrimination. 
 
-So from that, the tree is what? The tree is nothing but the renewed frame of the tree, coming from transparency, reflected in the mirror. So the tree is kind of [like a] new snake after [shedding] the skin. New frame, new snake. If your life is reflected in the mirror, even if you don’t see it, it’s already [that] your life is a new snake, new human life. 
+So from that tree, the tree is what? The tree is nothing but the renewed frame of the tree, coming from transparency, reflected in the mirror. So the tree is kind of [like a] new snake after [shedding] the skin. New frame, new snake. If your life is reflected in the mirror, even if you don’t see it, it’s already [that] your life is a new snake, a new human life. 
 
 And then, at that time, you can really appreciate it – because it’s shining. So if you see the trees, they’re shining; the trees are shining. The trees are not the trees you usually see, separate from us; it is already *we*. We are trees; trees are we. So very naturally there is a total communication there. 
 
-That’s why Saint Francis talks about God, talks about human beings, with a bird. That person is really a visionary spirit. *[He chuckles.]* If you want to be a priest, you have to have this kind of a spirit. Otherwise, you cannot go *any* place – and you have to go to foreign countries, like Saint Francis, you know? Going to the different countries, and he didn’t know *anybody*, but he had to go and spread Christianity among different people in the different countries with the different cultures. So culture, human beings, all are the same, anyway. 
+That’s why Saint Francis talks about God, talks about human beings, with a bird. That person is really a visionary spirit. *[He chuckles.]* If you want to be a priest, you have to have this kind of a spirit. Otherwise, you cannot go *any* place. You have to go to foreign countries, like Saint Francis, you know? Going to the different countries, and he didn’t know *anybody*, but he had to go and spread Christianity among different people in the different countries with the different cultures. So culture, human beings, all are the same, anyway. 
 
 [...] This is the third point. 
 
@@ -101,21 +101,21 @@ That’s why Saint Francis talks about God, talks about human beings, with a bir
 
 So very naturally, Zen Buddhism always emphasizes the way to live in terms of this third point. That’s why when you see the trees, or when you deal with your eating bowl, the eating bowl is not merely the eating bowl, it is nothing but the Buddha’s face. So that’s why you have to take best care of the eating bowl – [and] your five *skandhas*, [and the] table – even though you don’t know. 
 
-[But] if I say, “Even though you don’t know, please take care of it” – at that time, you hesitate. Immediately you withdraw, because [you think], “If I do it, I [will] become blind.” Don’t you think so? Because you have already very strong prejudice, so-called “self-protection”. *[He chuckles.]* *Very* strong. So if I say so, you don’t accept it; you resist it – because always you emphasize “privacy,” *[he chuckles,]* or the *individual*. If I say, “Please do it, even though you don’t understand it; receive it, and do it,” you don’t do it. You don’t *want* to do it. 
+[But] if I say, “Even though you don’t know, please take care of it” – at that time, you hesitate. Immediately you withdraw, because [you think], “If I do it, I [will] become blind.” Don’t you think so? Because you have already very strong prejudice: so-called “self-protection”. *[He chuckles.]* *Very* strong. So if I say so, you don’t accept it, you resist it. Because always you emphasize “privacy,” *[he chuckles,]* or the *individual*. If I say, “Please do it; even though you don’t understand it, receive it, and do it,” you don’t do it. You don’t *want* to do it. 
 
 So that’s why I try to explain it. The more I try to explain it, the more you *seem* to understand, but the more you are confused. *[A couple people laugh.]* So that’s why some day, somewhere, I have to say, “Keep your mouth shut; just do it!” *[Laughter.]* But immediately you don’t do it! Because you don’t *want* to do it. Then I start again to explain it! *[Laughter.]* [So] how far are we going, to where? We are going to confusion, finally. That’s why I stop it! I don’t know how often I have to do this. *[He laughs.]* Maybe my whole life. *[Laughter.]* 
 
-You know [...] Avalokiteshvara’s cries? Do you understand *Avalokiteshvara*, in Sanskrit? That is “the cries of observation of the world.” [...] Avalokiteshvara observes the human world very deeply, closely. From the deep profound observation of the world, he or she can know... some cry, some sound. We don’t know what it is. This is just like a repetition: something compels us to repeat in a circle. We don’t want to do it, but we do it, constantly. But Avalokiteshvara always expresses her compassion over all sentient beings. That’s why he or she starts to explain again: “Don’t cry. I am here. I am patient, so I can still have lots of rules to explain and to demonstrate how to live in this world.” And then the human beings start to listen to her. But finally, they don’t understand it. Finally, they still cry. [Apparently] they understand what she said, but in the deep level, still they are crying. Some confusion there. They don’t understand what it is. So still they are groping for [something], in the deep level. 
+You know [...] Avalokiteshvara’s cries? Do you understand *Avalokiteshvara* in Sanskrit? That is “the cries of observation of the world”. [...] Avalokiteshvara observes the human world very deeply, closely. From the deep profound observation of the world, he or she can know... some cry, some sound. We don’t know what it is. This is just like repetition: something compels us to repeat in a circle. We don’t want to do it, but we do it, constantly. But Avalokiteshvara always expresses her compassion over all sentient beings. That’s why he or she starts to explain again: “Don’t cry. I am here. I am patient, so I can still have lots of rules to explain and to demonstrate how to live in this world.” And then the human beings start to listen to her. But finally, they don’t understand it. Finally, they still cry. [Apparently] they understand what she said, but in the deep level, still they are crying. Some confusion there. They don’t understand what it is. So still they are groping for [something], in the deep level. 
 
-So Avalokiteshvara knows pretty well. That’s why Avalokiteshvara says, “Please, let’s just walk together. Don’t talk.” And then on the way to walk, still people always want to be free from Avalokiteshvara: “I want to do something by myself.” So Avalokiteshvara lets you go. And then confusion, and then coming back again and listen to her [...] explain it, and then finally Avalokiteshvara says, “Keep your mouth shut. Let’s walk.” And then again. The same thing going. 
+So Avalokiteshvara knows pretty well. That’s why she says, “Please, let’s just walk together. Don’t talk.” And then on the way to walk, still people always want to be free from Avalokiteshvara: “I want to do something by myself.” So Avalokiteshvara lets you go. And then confusion, and then coming back again and listen to her [...] explain it, and then finally Avalokiteshvara says, “Keep your mouth shut. Let’s walk.” And then again. The same thing going. 
 
-Who is Avalokiteshvara? You. Us. Exactly this body: *this is* Avalokiteshvara. 
+Who is Avalokiteshvara? *You*. Us. Exactly this body: *this is* Avalokiteshvara. 
 
 Who creates this Avalokiteshvara? It doesn’t matter whether this Avalokiteshvara is a real, existing being or not. It doesn’t matter. This is [that] Avalokiteshvara is exactly you, all of you! 
 
 So very naturally, we have to continually do it. 
 
-Uh... where are we? 
+Uh... [where were we]? 
 
 **Someone:** Two mirrors.
 
@@ -129,13 +129,13 @@ Uh... where are we?
 
 **Katagiri Roshi:** ... I forgot why I talked about Avalokiteshvara. 
 
-**Someone:** *[Unintelligible.]*
+**Someone:** [You were talking about] taking care of, like, our bowls, and everything is Buddha’s face, and why we don’t listen to you? 
 
 **Katagiri Roshi:** Oh, oh, right. Thank you. *[He laughs.]*
 
-Yes. So, Zen teaching always tells you to deal with everyday life as a buddha. Even though you don’t understand, please do it – because that practice is exactly a way to reflect your five *skandhas* in that spiritual ancient mirror. Simultaneously, as [well as doing] zazen – exactly the same. But we don’t understand this. That’s why Dōgen Zenji [writes] like this, and also we have to talk about this. 
+Yes. So, Zen teaching always tells you to deal with everyday life as a buddha. Even though you don’t understand, please do it – because that practice is exactly a way to reflect your five *skandhas* in that spiritual ancient mirror, simultaneously. As well as doing zazen – exactly the same. But we don’t understand this. That’s why Dōgen Zenji [writes] like this, and also we have to talk about this. 
 
-So a little bit you don’t understand exactly what the point of the Zen teaching is. Usually [according to books], Zen teaching is to find the solution of a *koan*, a Zen puzzle. I don’t think this is real. Or [in a book] you see “Zen is to attain enlightenment, this is the main purpose.” I don’t think this is Zen. It is a *part* of Zen, okay? *[He laughs.]* But not the whole.
+So a little bit you don’t understand exactly what the point of the Zen teaching is. Usually [according to books], Zen teaching is to find the solution of a *koan*, a Zen puzzle. I don’t think this is real. Or [in a book] you see “Zen is to attain enlightenment; this is the main purpose.” I don’t think this is Zen. It is a *part* of Zen, okay? *[He laughs.]* But not the whole.
 
 Okay. Do you have a question? 
 
@@ -143,13 +143,13 @@ Okay. Do you have a question?
 
 **Question:** Hojo-san? Is looking in the ancient mirror, is that the same as Ocean Seal Samadhi?
 
-**Katagiri Roshi:** Ocean Sealed Samadhi is... Yes, the ancient mirror is expressed in a different way. Ocean Seal Samadhi is how the ancient mirror works with all sentient beings; that is *samadhi*. 
+**Katagiri Roshi:** Ocean Seal Samadhi is... Yes, the ancient mirror is expressed in a different way. Ocean Seal Samadhi is how the ancient mirror works with all sentient beings; that is a *samadhi*. 
 
-*Samadhi* is, what would you say, continuous activity. Continuous activity of *akasha*. *Akasha* means vast openness of existence. That is *samadhi*. And penetrating that continuous activity of existence, and interpenetration into all living beings. This is *samadhi*. 
+*Samadhi* is, what would you say, continuous activity; continuous activity of *akasha*. *Akasha* means vast openness of existence. That is *samadhi*. And penetrating that continuous activity of existence, and interpenetration into all living beings. This is *samadhi*. 
 
 So that’s why we are living in the Ocean Seal Samadhi. 
 
-**Questioner:** So if you look in the mirror, does that penetrate into all living beings? 
+**Questioner:** But if you look in the mirror, does that penetrate into all living beings? 
 
 **Katagiri Roshi:** Right, that’s true. 
 
