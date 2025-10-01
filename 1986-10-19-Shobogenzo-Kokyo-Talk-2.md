@@ -7,7 +7,7 @@ title: "Shōbōgenzō Kokyo: Form and Mirror – Talk 2"
 
 ### Summary
 
-Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “renewing the forms”.
+Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s *Kokyo*, “The Ancient Mirror”, which can briefly be summarized as saying that the ancient mirror is “a co-existent place”, “spiritual transformation”, and “renewal of forms”.
 
 ### Transcript
 
@@ -21,37 +21,37 @@ Katagiri Roshi further clarifies the three main points in Zen Master Dōgen’s 
 
 I would like to consider again what I [talked about] yesterday, because these are important things, and also a little difficult to understand... So I would like to consider it once more with you. The point is, what is the mirror that the essence of human existence is reflected in? 
 
-What is a mirror? I mentioned yesterday: if you look at your life, there are many kinds of mirrors which are called *culture*. But if you want to practice spiritual life, I think we should know what the *spiritual* mirror is like. Even though you don’t have experience of this kind of mirror, as best as we can we try to *approach* to that mirror. What is it like? What [is its] structure? How is it working with us? So as best as we can, we try to approach to it.
+What is a mirror? I [said] yesterday: if you look at your life, there are many kinds of mirrors which are called *culture*. But if you want to practice spiritual life, I think we should know what the *spiritual* mirror is like. Even though you don’t have experience of this kind of mirror, as best as we can we try to *approach* to that mirror. What is it like? What [is its] structure? How is it working with us? So as best as we can, we try to approach to it.
 
-That’s why I [told you] you yesterday [about] *Kokyo*, “Ancient Mirror,” [written] by Dōgen. There were three points [which] I mentioned. 
+That’s why I told you yesterday [about] *Kokyo*, “Ancient Mirror,” [written] by Dōgen. There were three points [which] I mentioned. 
 
 The first point is *a co-existent place*. The ancient mirror is the co-existent place where all beings walk in peace, in harmony. Beyond races, thoughts, social position, personality, forms... beyond all things. Everything is reflected in that mirror. This is *co-existent place*. 
 
-So very naturally, a bird and butterfly walk in peace, in harmony. Japanese monkeys walk with elephants in South Africa, in peace, in harmony, talking to each other. 
+So very naturally, a bird and butterfly walk in peace, in harmony. Japanese monkeys walk with elephants in Africa, in peace, in harmony, talking to each other. 
 
-Saint Francis, who spread Christianity in Japan, was noted as a holy person who could speak with a bird. I think the bird and Saint Francis stood up in a co-existent place. They walked in peace, in harmony. (*Transcriber’s Note:* This is Saint Francis Xavier, not Saint Francis of Assisi.)
+Saint Francis, who spread Christianity in Japan, was noted as a holy person who could speak with a bird. I think the bird and Saint Francis stood up in the co-existent place. They walked in peace, in harmony. (*Transcriber’s Note:* This is Saint Francis Xavier, not Saint Francis of Assisi.)
 
 So when you and when the butterfly and when the bird are reflected in that mirror, very naturally the essence of their existence talks to each other. Not the *form*, not [the] karmic form of their life – the *essence* of their life talks, meets together in the same place, and walks together and talks together. This is the first point I mentioned yesterday. 
 
-So very naturally, if you seek for spiritual life, I think your mind becomes soft, and also your look becomes the same look as the ancestors and buddhas. Look at, well, whatever spiritual person – how can I say... Christian minister. There are many Christian ministers in the United States. From now on, pay attention to the Christian ministers, whoever they are. Well, there are many kind of levels of priest: top level, and middle level *[he laughs]*, and lower level – it doesn’t matter. Anyway, just see them; and I think if you see those people, I think there is one particular look there [which] you can see. And also they are very soft and kind, compassionate. 
+So very naturally, if you seek for spiritual life, I think your mind becomes soft, and also your look becomes the same look as the ancestors and buddhas. Look at, well, whatever spiritual person... how can I say... Christian minister. There are many Christian ministers in the United States. From now on, pay attention to the Christian ministers, whoever they are. Well, there are many kind of levels of priest: top level, and middle level *[he laughs]*, and lower level – it doesn’t matter. Anyway, just see them; and I think if you see those people, I think there is one particular look there, [which] you can see. And also they are very soft and kind, compassionate. 
 
-So very naturally, there is one look: the same and one look, and the same and one soft, compassionate mind. And also the same and one type of walking; something like that. Very naturally they are walking where? On one path. That is called *practice*, we say. And also anyone who walks on that one path, very naturally they can have the same result: straightforwardness, honesty, magnanimity, compassion, wisdom. Very naturally. 
+So very naturally, there is one look: the same and one look, and the same and one soft, compassionate mind. And also the same and one type of walking; something like that. Very naturally they are walking – where? On one path. That is called *practice*, we say. And also anyone who walks on that one path, very naturally they can have the same result: straightforwardness, honesty, magnanimity, compassion, wisdom. Very naturally. 
 
-So that’s why I say that the ancient mirror is [a] *co-existent place*, where all sentient beings can do the same things, and can get the same things as buddhas and ancestors. That’s why we say “mind to mind”: we transmit dharma “mind to mind”. And also one of the analogies is to pour the water from one cup to another, exactly. 
+So that’s why I say that the ancient mirror is [the] *co-existent place*, where all sentient beings can do the same things, and can get the same things as buddhas and ancestors. That’s why we say “mind to mind”: we transmit dharma “mind to mind”. And also one of the analogies is to pour the water from one cup to another, exactly. 
 
 This is one point. Is that alright, the first one? 
 
 #### 08:40
 
-The second point is a little bit difficult. I [talked about it] yesterday. The second point of the ancient mirror is characterized to receive an *I* and *you* – your face, your look. You know, the *I* and *you* stand up right in front of the ancient mirror, which has no front, no back, no inside, no outside – a transparent mirror. [...] Certain forms reflect in it, in the common sense. But that ancient mirror can accept your look and my look, if you stand up – immediately. So you stand up and I stand up in front of that kind of mirror, and then I can see your look, and you look [and] you can see my look. And the two faces stand up and come together. 
+The second point is a little bit difficult. I [talked about it] yesterday. The second point of the ancient mirror is characterized [by receiving] an *I* and *you* – your face, your look. You know, the *I* and *you* stand up right in front of the ancient mirror, which has no front, no back, no inside, no outside – a transparent mirror. [...] It’s impossible [for] certain forms to reflect in it, in the common sense. But that ancient mirror can accept your look and my look, if you stand up – immediately. So you stand up and I stand up in front of that kind of mirror, and then I can see your look, and you look [and] you can see my look, and the two faces stand up and come together. 
 
-And simultaneously, if you continue to look at your face and my face, [and] if I look at your face in the mirror – I think my look, my face, is penetrated into your heart. [It becomes] one. In other words, my reflection and your reflection become transparent, simultaneously. 
+And simultaneously, if you continue to look at your face and my face, [and] if I look at your face in the mirror – I think my look, my face, is penetrated into your heart. [They become] one. In other words, my reflection and your reflection become transparent, simultaneously. 
 
 If your reflection and my reflection are not transparent, I think that your reflection and my reflection are just dead. Because *I* and *you* are beings who are constantly moving, functioning, interpenetrated, [interconnected]. In order to do this, you cannot keep your frame, so-called “my look”. And I cannot maintain my frame, so-called five *skandhas*, Katagiri’s frame – no. If I am reflected in the ancient mirror, I immediately [become] transparent. 
 
 But in [the] common sense, it’s impossible to do this, because we have very strong customs to attach to the frame. If we don’t have a frame, we are restless, very restless. But in the spiritual life, I think you cannot keep your frame. So very naturally your frame, the frame of your five *skandhas*, are transparent, immediately. 
 
-For instance, I [often say], the piece of wood tied to a string and revolving, turning in a circle. And then at that time, what can you see? Can you see the piece of wood? What you can see? 
+For instance, I [often talk about] the piece of wood tied to a string and revolving, turning in a circle. And then at that time, what can you see? Can you see the piece of wood? What can you see? 
 
 **People:** A circle?
 
@@ -61,21 +61,19 @@ So your five *skandhas*, your six senses, are liberated, originally. That’s wh
 
 So *total manifestation* is all things you can see through your eyes, ears... the form of trees you can see. But what are manifested beings you can see through your six senses? Dōgen Zenji [says], they are originally liberated. So liberated beings manifest themselves as a form. Do you understand? 
 
-That’s why if your life is reflected in the ancient mirror, you become transparent. It means you’re working; your life is really working with all sentient beings. If you always hold your frame, you never create a circle; you are nothing but a piece of wood. 
+That’s why if your life is reflected in the ancient mirror, you become transparent. It means you’re working; your life is really working with all sentient beings. If you always hold your frame, you never create a circle; you are nothing but a piece of wood. So the piece of wood is just a piece of wood, separate from all other beings. 
 
-A piece of wood is just a piece of wood, separate from all other beings. So even a piece of wood is not a separate being, but it is really piece of wood connected or interpenetrated with all sentient beings. That’s why if you turn that piece of wood, it creates a circle. 
+Even a piece of wood is not a separate being, but it is really a piece of wood connected or interpenetrated with all sentient beings. That’s why if you turn that piece of wood, it creates a circle. 
 
-So very naturally if your body, [your] five *skandhas* are reflected in the mirror, you are transparent immediately, my look becomes penetrated into your heart. 
+So very naturally if your body, [your] five *skandhas* are reflected in the mirror, you are transparent immediately, my look becomes penetrated into your heart. You can experience this. 
 
-You can experience this. For instance, when I was fourteen, my mother died. At that time I cried and cried. While I was crying, my mother is always in front of me. I never got the one, because always mother is far from [me]. The more I tried to get, to be one with my mother – my mother died already, so the more I realized that mother was going away from me. So that’s why it made me sad, really sad. So everyday, cry and cry. Finally, all of a sudden, my mother comes into my heart. And then I could stop crying at night all of a sudden. I don’t know why, but at that time I felt my mother came to my heart. Naturally, very smoothly. 
+For instance, when I was fourteen, my mother died. At that time I cried and cried. While I was crying, my mother was always in front of me. I never got the [oneness], because [I always thought] mother is far from [me]. The more I tried to get [oneness] with my mother – my mother died already, so the more I realized that my mother was going away from me. So that’s why it made me sad, really sad. So everyday, cry and cry... Finally, all of a sudden, my mother came into my heart. And then I could stop crying at night, all of a sudden. I don’t know why, but at that time I felt my mother came to my heart. Naturally, very smoothly. [...] My mother is reflected in the same mirror [where] I see my reflection, so my mother [and] my face become one. 
 
-So that’s why mother is reflected in the same mirror. I see my reflection. So my mother [and] my face become one. 
+I think if you look at your friends, if you look at your parents... I think someday you [will] really appreciate your parents, or your brothers and sisters... or somebody, whoever. Even one person. If you really feel appreciation, [...] at that time, of course that person is in front of you, but you can’t see the person in front of you: he or she must be alive in your heart. So very naturally, a very deep appreciation appears. It’s kind of [like] spring water coming up. You cannot stop it. Then, very naturally, you really appreciate him or her. 
 
-Well, I think if you look at your friends, if you look at your parents – I think someday you [will] really appreciate your parents, or your brothers and sisters, or somebody, whoever. Even one person: if you really feel appreciation, if you really feel appreciated, at that time, of course that person is in front of you, but you can’t see the person in front of you. He or she must be alive in your heart. So very naturally, a very deep appreciation appears. It’s kind of [like] spring water coming up. You cannot stop it. Then, very naturally, you really appreciate him or her. 
+Well, some day, okay? Some day you will experience like this. 
 
-Well, someday. Someday you will experience like this. 
-
-Of course, you can appreciate somebody, you know, they’re always living somewhere, and then you can appreciate it. But that appreciation is not touching your heart. Very deep appreciation really touches your heart, and it’s coming up from your heart, wherever he or she lives, far from you or whatever... or [in] the other world. It’s really [appreciation]. 
+Of course, you can appreciate somebody, you know, they’re living somewhere and then you can appreciate it, but that appreciation is not touching your heart. Very deep appreciation really touches your heart, and it’s coming up from your heart – wherever he or she lives, far from you – or [in] the other world. It’s really [appreciation]. 
 
 So that’s why the second point of the ancient mirror is [that] you and I and all sentient beings are reflected in that mirror and [are] transparent, penetrated, and liberated, very naturally. Each single being is liberated by transparency. 
 
