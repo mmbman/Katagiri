@@ -363,23 +363,23 @@ But we always try to decide to be liberated. *[He laughs.]* It’s impossible.
 
 **Questioner:** Okay. The second point... is what? All beings interpenetrate? 
 
-**Katagiri Roshi:** Interpenetrate, yes. So each frame of your five *skandhas* never remains in the certain frame. 
+**Katagiri Roshi:** Interpenetrate, yes. So each frame of your five *skandhas* never remain in the certain frame. 
 
 **Questioner:** Okay. No frame... 
 
-**Katagiri Roshi:** No frame. So that’s why I say *transparent*. That means *transformed*; you are transformed. Five *skandhas* immediately transformed, and your frames disappear and create another form. Re-form... Re-formation? Re-form, re-form, exactly. Re-form the five *skandhas*. That is the third. Excuse me... second. Transformation. 
+**Katagiri Roshi:** No frame. So that’s why I say *transparent*. That means *transformed*. You are transformed; [your] five *skandhas* immediately transformed. And your frames disappear and create another form. Re-form... Re-formation? Re-form, re-form. Re-form the five *skandhas*. That is the third... Excuse me, second. Transformation. 
 
 **Questioner:** Right. And the third point is that the forms come up again?
 
 **Katagiri Roshi:** Yes. That is [explained] through that story. 
 
-We shouldn’t forget that third one. Otherwise you cannot take care of your life, in so-called freedom. You never experience perfect freedom, you cannot live in a peaceful world, you cannot build up a peaceful world if you forget the third point. Whatever reason you have, even though your motivation spiritually is good, the result is a little bit confused. 
+We shouldn’t forget that third one. Otherwise you cannot take care of your life in so-called freedom. You never experience perfect freedom, you cannot live in a peaceful world, you cannot build up a peaceful world if you forget the third point. Whatever reason you have, even if your motivation spiritually is good, the result is a little bit confused. 
 
 Like the human world. Look at the human world: the first motivation is pretty good, to believe something, to help. In order to help all sentient beings, we believe this and that, et cetera. Finally, under that beautiful faith... we fight. That always happens in the world. Don’t you think so? 
 
-That’s why constantly you have to make your mind and body calm down and *be*. Reflect your body experience once more again in that mirror, and break into the shatters. And then come back exactly [to] everyday life, with all sentient beings. 
+That’s why constantly you have to make your mind and body calm down and *be*. Reflect your body experience once more again in that mirror, and break into the [slivers]. And then come back exactly [to] everyday life, with all sentient beings. 
 
-In other words, you have to demonstrate, you have to show actual, practical, peaceful life. If you experience spiritual life reflected in that ancient mirror, you have to *demonstrate*, actually. It’s not the philosophical fascination or psychological fascination through the words. No. It’s very concrete: human life. 
+In other words, you have to demonstrate, you have to show actual, practical, peaceful life. If you experience spiritual life reflected in that ancient mirror, you have to *demonstrate* [it], actually. It’s not the philosophical fascination or psychological fascination through the words. No. It’s very concrete. Human life. 
 
 **Someone:** So the way to open your heart is through the transformation?
 
@@ -389,7 +389,7 @@ In other words, you have to demonstrate, you have to show actual, practical, pea
 
 **Katagiri Roshi:** Avalokiteshvara.
 
-#### end of recording
+#### 1:04:42 end of recording
 
 ---
 
