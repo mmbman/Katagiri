@@ -173,7 +173,7 @@ So very naturally your whole body and mind is characterized by homeostasis, cons
 
 So when you join human society, still you can really experience this feeling of being present stably and securely; on the other hand, feeling of desire to be present. Both. But both are completely working in equality. So that is keeping balance; exactly keeping balance. 
 
-You cannot always keep calm... because you have to act! Even though you sit down, it is acting. Even though you don’t say anything, it is acting. So in order to act, you need vitality, energy. Don’t you think so? 
+You cannot always keep calm... because you have to act! Even if you sit down, it is acting. Even if you don’t say anything, it is acting. So in order to act, you need vitality, energy. Don’t you think so? 
 
 So, both. But both don’t interrupt each other. Exactly keeping balance. This is characteristic of your bodies, externally or internally. That is called *homeostasis*. Completely. 
 
