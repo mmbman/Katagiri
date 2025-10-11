@@ -115,7 +115,7 @@ But how do ordinary men do this kind of zazen?  So, that’s why, “It is truly
 
 Well, there is already [the] dualistic sense there. We always start to practice zazen in order to get the *satori*, in order to get the happiness, something like that. So, if you start to practice zazen on the basis of this idea, very naturally, *satori* or something wonderful is far from us. So, I am not an enlightened person, I am not a happy person, so I need happiness, I need enlightenment or satori. And then, you really try to do. That is one of the techniques – you know, always, wherever you may go, always people teach you in that way. This is ordinary life. Schools, business, and whatever – [in the] usual everyday life, always there is [technique] in that way. But, I think spiritual life or religious life is not to emphasize in taking care of human life in that way. No. If you do it, very naturally, you never get perfect peace, or happy, or repose in bliss. You never settle down yourself in repose and bliss, so-called perfect peace. 
 
-So, very naturally, the spiritual life emphasizes something completely different from what we have usually done. It is completely different from [our] usual way of life. So, that is *non-dualism* we say. But *non-dualism* seems to be something far from us. But non-dualism is exactly within us. 
+So, very naturally, the spiritual life emphasizes something completely different from what we have usually done. It is completely different from [our] usual way of life. So, that is *non-dualism* we say. But *nondualism* seems to be something far from us. But nondualism is exactly within us. 
 
 I think this question, number three, I think many people have this kind of question. 
 

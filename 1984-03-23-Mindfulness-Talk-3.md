@@ -137,13 +137,15 @@ But according to everyday life, we always judge first. Our life depends on a sen
 
 That’s why Shakyamuni Buddha says, “All sentient beings are Buddha,” buddha-nature. That means you should be free from [having] a sense of value *first*. Stand up in the realm of the-same-and-one-nature of all sentient beings. That means emptiness.
 
-Practically speaking, that is *detachment*. Or more [completely] speaking, your action must be just like water: passing by, without leaving the trace of your doing. That’s pretty hard. It’s simple, but it’s a very hard practice, because action is always stinky, very stinky. Personal, individual stinkiness there. Because action is based on thinking, evaluation, judgement, et cetera. So action is not so simple. So that’s why when you have to act, there must be something that is called *practice*, which [...] leads you to stand up straight in emptiness. That is practice. 
+Practically speaking, that is *detachment*. Or more [completely] speaking, your action must be just like water: passing by, without leaving the trace of your doing. 
+
+That’s pretty hard. It’s simple, but it’s a very hard practice, because action is always stinky, very stinky. Personal, individual stinkiness there. Because action is based on thinking, evaluation, judgement, et cetera. So action is not so simple. So that’s why when you have to act, there must be something that is called *practice*, which [...] leads you to stand up straight in emptiness. That is practice. 
 
 So if you see the tape recorder, [...] before I deal with the tape recorder by my affective preferences, let’s meet the tape recorder *as it is*. And let’s meet myself too, as it really is. So tape recorder and I, all are set up there, in peace, in the-same-and-one-nature. That’s very simple, but it’s very hard. Because the moment when you meet, myriad judgements come up.
 
 So let’s put all things, subject and object, in the equal situation. That is establishing the state of mind which is like a wall, emptiness. 
 
-What do [I] mean, to establish a state of mind which is emptiness? That is to abide firmly in non-dualism; that means abiding firmly in one-pointedness. That means *be one with*. Instead of setting up the tape recorder and I, “before I establish affective preferences” means tape recorder and I exactly are placed in equal situations. That means become one. That is very simple, but practically it is very hard, because always our judgement and evaluation work there. So that’s why we have to practice like this, constantly.
+What do [I] mean, to establish a state of mind which is emptiness? That is to abide firmly in nondualism; that means abiding firmly in one-pointedness. That means *be one with*. Instead of setting up the tape recorder and I, “before I establish affective preferences” means tape recorder and I exactly are placed in equal situations. That means become one. That is very simple, but practically it is very hard, because always our judgement and evaluation work there. So that’s why we have to practice like this, constantly.
 
 So abiding firmly in nondualism, that is called emptiness. How can we do this? This is zazen. Zazen is a very simple practice. That is *shamata*, we say. Let’s abide firmly in emptiness, so-called *shamata*. Quiescence. *Samadhi*. Because [you] become one with; no gap between tape recorder and I. No dualistic sense. That is *shamata*. 
 
