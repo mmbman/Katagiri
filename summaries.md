@@ -450,7 +450,7 @@ In an extended dialog, Katagiri Roshi addresses the question of why we call trut
 
 ##### [What Is Buddhist Faith? (Introduction to Buddhism)](1985-06-22-Introduction-to-Buddhism)
 
-What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
+What does *faith* mean in Buddhism? Buddhist faith is “practicing within the intimacy between our life and emptiness”. In other words, Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how we should practice religious faith, including principles of patience, wholeheartedness, and non-attachment. Along the way, he talks about quarks, and shares a story about driving on the freeway in Los Angeles. 
 
 <br/>
 

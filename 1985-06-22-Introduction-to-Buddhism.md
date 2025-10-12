@@ -7,7 +7,7 @@ title: "What Is Buddhist Faith? (Introduction to Buddhism)"
 
 ### Summary
 
-What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how “the way we should practice within the intimacy between our lives and emptiness” is “to bear up, to enjoy, to desire, and to be limpid and clear.” Along the way, he talks about quarks, and driving on the freeway in Los Angeles. The original title of this talk was “Introduction to Buddhism.”
+What does *faith* mean in Buddhism? Buddhist faith is “practicing within the intimacy between our life and emptiness”. In other words, Buddhist faith is intimacy with total dynamic working. Katagiri Roshi discusses how we should practice religious faith, including principles of patience, wholeheartedness, and non-attachment. Along the way, he talks about quarks, and shares a story about driving on the freeway in Los Angeles. 
 
 ### Transcript
 
@@ -15,7 +15,9 @@ What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with tot
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/introduction-to-buddhism" target="_blank">Listen to this talk</a>
 </p>
 
-(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might initially think he is talking about “the faith” in the sense of “a system of religious belief.” But what he is actually talking about is more fundamental: *Buddhist faith* – that is, the meaning of *faith* within Buddhism. It seems that in this case he was simply adding an extraneous “the”. So for clarity, I have substituted “Buddhist faith” for “the Buddhist faith.”)
+(*Transcriber’s Note:* In this talk, Katagiri Roshi often says “the Buddhist faith,” so one might think he is talking about “the faith” in the sense of “a system of religious belief.” But what he is actually talking about is more fundamental: *Buddhist faith* – that is, the meaning of *faith* within Buddhism. Based on careful reading of this and many other talks, it seems he was more or less adding an extraneous “the”, so for clarity, I have substituted “Buddhist faith” for “the Buddhist faith” in most cases. However, a case could be made the other direction: that “practicing within the intimacy between our life and emptiness” is *the* Buddhist faith.) 
+
+(*Transcriber’s Note:* I have changed the title of this talk from “Introduction to Buddhism” to “What is Buddhist Faith?”.)
 
 #### 0:00
 
@@ -23,13 +25,13 @@ What does *faith* actually mean in Buddhism? Buddhist faith is intimacy with tot
 
 It’s pretty difficult to understand Buddhist faith in the usual sense, because if you study Buddhism, generally, the central philosophy of Buddhism is emptiness. From beginning to end, Buddhist teaching clearly emphasizes the teaching of emptiness as the ultimate nature of existence. 
 
-Emptiness means ... emptiness. If you say “the ultimate nature of existence is emptiness,” and then you say, “I understand” – at that time, what you have understood about the emptiness of existence is no longer empty, because you [have] attached to the emptiness. Do you understand? 
+Emptiness means emptiness. If you say “the ultimate nature of existence is emptiness,” and then you say, “I understand” – at that time, what you have understood about the emptiness of existence is no longer empty, because you [have] attached to the emptiness. Do you understand? 
 
 *[Laughter.]*
 
 The moment where you attach to emptiness, emptiness is no longer empty, because you see there’s something you can grasp. Conceptually, mentally, or physically, you can have it; so it is no longer emptiness. That’s why Buddhism constantly emphasizes the ‘emptiness’ of existence. 
 
-From this point, Buddhist faith is to know there is nothing to believe in. Nothing to believe in, nothing to know. Because if you know emptiness, it’s not emptiness. So you have to know there is *nothing* to know. This is the human situation – for *all* of you, whoever you are. 
+From this point, Buddhist faith is to know there is nothing to believe in. Nothing to believe in, nothing to know. Because if you *know* emptiness, it’s not emptiness. So you have to know there is *nothing* to know. This is the human situation – for *all* of you, whoever you are. 
 
 So what is Buddhist faith? If you want to know the definition of Buddhist faith, Buddhist faith is to believe there is nothing to know, to believe in the human situation where you are standing in completely nothing to know. This is Buddhist faith: nothing to know. 
 
@@ -37,7 +39,7 @@ But it is very difficult for human beings to believe in *nothing to know*. That�
 
 If you don’t believe me, please go to a church and ask about God. Even the ministers, priests – no priest will try to explain what God is. Nothing. What is God? Or truth? What is the truth? 
 
-But anyway, it’s very difficult to live our lives without depending on anything. So-called emptiness, emptiness, emptiness: that’s pretty hard for human beings. That’s why century after century, human beings try to help you, because human beings try to get something to depend on. That’s why we put a certain name on it. So-called ‘god’, divinities, angels, spiritualities; you can say so. And then we say, “Yes, I believe in God.” At that time, you are really hanging on to the idea of God. It’s not *real* God. Real God is exactly emptiness. If I say so, maybe I could be scolded by Christian people, but this is very true. If you don’t believe this, please go to a church and *ask*, “Who can answer to this?”
+But anyway, it’s very difficult to live our lives without depending on anything. So-called *emptiness, emptiness, emptiness*: that’s pretty hard for human beings. That’s why century after century, human beings try to help you, because human beings try to get something to depend on. That’s why we put a certain name on it. So-called ‘god’, divinities, angels, spiritualities; you can say so. And then we say, “Yes, I believe in God.” At that time, you are really hanging on to the idea of God. It’s not *real* God. Real God is exactly emptiness. If I say so, maybe I could be scolded by Christian people, but this is very true. If you don’t believe this, please go to a church and *ask*, “Who can answer to this?”
 
 In the history of Buddhism, Buddhism is really different from other religions, because Buddhism constantly pays attention to that emptiness [alone] without putting any name on it. Constantly see it, constantly face the emptiness as an ultimate nature of existence, exactly. Constantly. Because, that emptiness is nothing to know. That emptiness means nothing to know, or to depend on, or to believe with your mind, with your heart – nothing! But on the other hand, that nothing is exactly something which makes your life *alive*. Because that nothingness is not something separate from your life. From where does that nothingness come? Nothingness comes from every single human being, every single one of the “all sentient beings”.
 
@@ -45,7 +47,7 @@ Emptiness is not a philosophical or psychological or religious concept, it’s s
 
 Even intellectually, you can see this a little bit. But on the other hand, your intellectual sense doesn’t accept it, because you hate it. *[Some chuckles.]* You don’t like it. And then I say, “I will give you some candy to believe.” And then you’re so happy. *[Laughter.]* And then you love me so much: “Thank you, Katagiri.” *[More laughter.]* But Buddhism doesn’t trick you. Even though you cry, or even though you scream, Buddhism doesn’t trick you. Constantly Buddhism tries to put you right in the middle of emptiness. Because it is the ultimate nature of existence, and simultaneously it is your life. And your life and emptiness are working very closely. That is called ‘intimacy’.
 
-I talked about ‘intimacy’ at Hokyoji temple. At that time one of the psychologists said to me, “I understand emptiness because physically I can’t [connect] with anybody with intimacy”. I don’t mean *that* intimacy, okay? Of course, you have to experience intimacy through your body and mind, but you cannot hang on to the concept of intimacy, because that is emptiness. Emptiness and life are exactly connected, and working together. If you hang on to your life, next moment it becomes empty. And then if you see the emptiness, next moment it’s life! Your life is alive! Don’t you know the Prajñāpāramitā Sutra] says, “No nose, no ears, no eyes, no body, no heart.” Then nevertheless, immediately there is a nose, there are eyes, there are ears. How can you [say] “no”? How can you deny “no”?
+I talked about ‘intimacy’ at Hokyoji temple. At that time one of the psychologists said to me, “I understand emptiness because physically I can’t [connect] with anybody with intimacy”. I don’t mean *that* intimacy, okay? Of course, you have to experience intimacy through your body and mind, but you cannot hang on to the concept of intimacy, because that is emptiness. Emptiness and life are exactly connected, and working together. If you hang on to your life, next moment it becomes empty. And then if you see the emptiness, next moment it’s life! Your life is alive! Don’t you know the *Prajñāpāramitā Sutra* says, “No nose, no ears, no eyes, no body, no heart.” Then nevertheless, immediately there is a nose, there are eyes, there are ears. How can you [say] “no”? How can you deny “no”?
 
 So intimacy is no gap, no space between emptiness and your life: exactly connected, working together. And then the purpose of Buddhist practice is to have completely, absolutely no doubt [that there is] no gap between human life and emptiness, [they are] in total working. 
 
@@ -93,8 +95,6 @@ I always say: If you see something beautiful and you are very impressed by somet
 That’s why real dharma is not something you can give, you can think, you can believe; but it’s there, with you. That’s why it’s very close; that’s why [we say] intimacy. This is a belief in Buddhism. We should believe this – even though we don’t. That’s why next, what should we do? That’s why next, there is patience. That patience is, you have to know dharma is completely nothing to hold on to, nothing to throw away, because it’s very close to you. When you try to get it, it becomes far from you. So very naturally, you don’t know what it is. That’s why you have to practice patience. 
 
 Next, “the patience of sound and echo.” It means that emptiness has lots of sounds, and also echoes, reverberating constantly, over every inch of your life. Emptiness is very quiet, tranquil; but that tranquility is not necessarily *still*, because it is penetrating every inch of your life. Emptiness is very quiet, and simultaneously dynamic, because it is supporting you. That’s why when you are very confused, emptiness makes you calm. You can bump your head into trouble and make a big bump on your forehead, but it doesn’t matter how many bumps you have; finally, all you can do is to make yourself calm. In other words, realizing the total picture of your life. So from this point, whatever you do, that emptiness is supporting you. That emptiness is penetrating to every inch of your life, whoever you are. That is called the patience of sound and echo, reverberations.
-
-#### 38:14
 
 The next one is “the patience of flexibility and adaptability”. Flexibleness, and also adaptableness.  Emptiness is very flexible. If you touch it, it turns into something. 
 
