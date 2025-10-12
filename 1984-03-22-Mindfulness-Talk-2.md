@@ -175,7 +175,7 @@ So if everything becomes zero, [then you think] it doesn’t matter, just live t
 
 **Same person:** But what I’m saying is that when you’re thinking about it, it’s already happened. 
 
-**Katagiri Roshi:** Yeah, it already happened, because *the entire universe*, so-called in *total dynamic working*, means that which myriad beings exist in peace and harmony, that’s it. And then at that time the myriad beings must [relate] with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist; that is *the entire universe*. “Entire universe” means all beings exist. But that is still an idea, so next moment, how does the entire universe exist? That why we say *total dynamic working*. 
+**Katagiri Roshi:** Yeah, it already happened, because *the entire universe*, so-called in *total dynamic working*, means that which myriad beings exist in peace and harmony, that’s it. And then at that time the myriad beings must [relate] with each-other, in order to notice, in order to realize what each individual entity is. So very naturally all beings exist; that is *the entire universe*. “Entire universe” means all beings exist. But that is still an idea, so next moment, how does the entire universe exist? That’s why we say *total dynamic working*. 
 
 So total dynamic working as the whole entire universe means each individual must relate with *I*. Otherwise, function doesn’t come into [existence]. 
 
