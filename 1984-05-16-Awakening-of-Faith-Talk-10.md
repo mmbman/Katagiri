@@ -116,21 +116,17 @@ But in the samsaric world, unenlightened human beings always try to make an effo
 
 But according to our eyes, we say, "Oh, Buddha is in our life, our world." Because Buddha always connected with all sentient beings, helping. But attitude, spiritual attitude, spiritual security is just going naturally as they are. So, no problem. No samsaric world. But in terms of our eyes, we believe, "Oh, Buddha is just like us, living in the human world." And then we become familiar with the Buddha. And then we want to approach to this kind of Buddha. That is called Buddha's skillful method. Do you understand? To save all sentient beings. But Buddha himself is very straight, very straight. Whatever you say, whatever you express your being, oh, you are Buddha. You are just like a me, just like a human being. Thanks. Whatever you say, Buddha is always in the nowness. Otherwise, Buddha cannot help. 
 
-For instance, if you are psychologist, if you are a teacher, to help somebody, if you are tossed away by, or if you really jump into the other’s suffering, then you cannot help. You have to jump into, connected with the person, but you must be always standing up in nowness. Do you understand that one? You must be you. But it's not always creating a gap. You connected, you jump into, but you are always quiet. And then you can help. 
+For instance, if you are psychologist, or if you are a teacher, to help somebody – if you are tossed away by or if you really jump into the other’s suffering, then you cannot help. You have to jump into [connection] with the person, but you must be always standing up in nowness. Do you understand that? You must be you. But it's not always creating a gap. You connect, you jump into, but you are always quiet. And then, you can help. 
 
-But as a third eye, if you see that situation, oh, that he as a psychologist always jumping into the human suffering and helping. He has been jumping into the samsaric world in his suffering and helping. But I don't think so. He is always [...] in nowness. And then at that time, he can see overall picture, panoramic of human life, human suffering. Okay?
+But as a third [party], if you see that situation, [you think] that he as a psychologist always jumping into the human suffering and helping; he has been jumping into the samsaric world in his suffering and helping. But I don't think so. He is always [...] in nowness. And then at that time he can see the overall picture, the panoramic of human life, human suffering. Okay?
 
 This is Buddha. That is called skillful mind, skillful method. Buddha shows that. 
 
-You can show that. If you really want to help or educate somebody, you must be Buddha. Like this. 
+You can show that. If you really want to help or educate somebody, you must be Buddha, like this. But more or less, you can experience [this]. This is Buddha. 
 
-But more or less, you can experience. This is Buddha. 
+So that's why Buddha is not something extra or apart from you. You are Buddha. Anyway, [...] the Buddha is always operative, constantly, in each one of us. Because you have to connect with all sentient beings and help. How can you help? That is Buddha's skillful method to save all sentient beings. 
 
-So that's why Buddha is not something extra or apart from you. You are Buddha. Anyway, you are all... The Buddha is always operative, anyway, constantly, in each of us, each one of us. Because you have to connect with all sentient beings and help. 
-
-How can you help? So, that is Buddha's skillful method to save all sentient beings. 
-
-And then, that's why in the Buddha statue, Buddha statue always Buddha, but the Buddha statue has always human shape. But a Buddha statue is something more than human shape. But if you don't make the Buddha following the human shape, you don't feel familiar with [it]. Because the Buddha becomes something different from human beings. That's why you don't feel, you don't want to approach. So that's why Buddha appears as a human being. But on the other hand, if you look at the Buddha statue, Buddha, there is something more than human shape. That's why that Buddha statue becomes object of worship. 
+And then, that's why in the Buddha statue, the Buddha statue is always Buddha, but the Buddha statue always has a human shape. A Buddha statue is something more than a human shape; but if you don't make the Buddha following the human shape, you don't feel familiar with it, because the Buddha becomes something different from human beings – that's why you don't feel [comfortable], you don't want to approach it. So that's why Buddha appears as a human being. But on the other hand, if you look at the Buddha statue, there is something more than a human shape. That's why that Buddha statue becomes an object of worship. 
 
 If you want to make a Buddha statue, with wood or metal, whatever, you have to, anyway, carve human shape, simultaneously you should put the spirit there. Not Buddha's spirit that some other people have; your spirit, as a Buddha. Simply put into. At that time, you can create human shape; simultaneously, there is something more than human shape. 
 
