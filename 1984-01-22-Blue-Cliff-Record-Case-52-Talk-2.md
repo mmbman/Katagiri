@@ -10,7 +10,7 @@ title: "Blue Cliff Record Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross
 <p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
-<a href="" target="_blank">Listen to this talk</a>
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-52-lecture-2" target="_blank">Listen to this talk</a>
 </p>
 
 #### 0:00
