@@ -16,39 +16,105 @@ title: "The Awakening of Faith – Talk 10"
 #### 0:00
 
 
-**Katagiri Roshi:**
+**Katagiri Roshi:** [...]
 
-[...]
+The other day, I explained a little bit about phenomena. Phenomena is the samsaric world. And the samsaric world is the world where we are related very closely with discriminating mind. That world is called *time*. The world is going by time. The samsaric world is time. 
 
-Everyone has their book? 
+In [the] common sense, if you look at your life, where you are, it goes without saying that we are always in the present. Okay? So I say *nowness*. We are *now*. 
 
-So from that book, maybe you can get the spirit of Buddhistic faith. [...] 
+So the other day I explained about *nowness*. Do you remember what I said? 
 
-Well, the other day, I explained a little bit about phenomena. Phenomena is the samsaric world. And the samsaric world is the world where we are related very closely with discriminating mind. That world is called *time*. The world is going by the time. The samsaric world is time. 
+*[Unintelligible.]*
 
-So in common sense, if you look at your life, where you are, it goes without saying that we are always in the present. Okay? So I say *nowness*. So we are *now*. 
+**Someone**: There are two kinds of nowness. 
 
-So the other day I explained about nowness. Do you remember? What did I say? 
+**Katagiri Roshi:** Mm-hmm; two kinds of nowness. 
 
-... 
+One is what?
+
+**Someone**: Being in the stream of time?
+
+**Katagiri Roshi:** Mm-hmm; being in the stream of time. That time is [...] the moment, because that nowness is the time in terms of the relationship between past and future. That is nowness. So very naturally, the present in relation with the past and future is nothing but the moment. Alright? This is the present you believe.
+
+So the present you believe is not something you can really depend on because it’s the moment. It has only the length of the moment; very short. 
+
+But we don’t believe that. Consciously or unconsciously we believe the present has a long length of time. So-called *today*, so-called *hours*, et cetera. But I don’t think this is the present. 
+
+So the present you live in is nothing but the length of the time of the moment. That is the place you live. So very naturally that is thus time, nowness, is going in the samsaric world. 
+
+And the second nowness is what? 
+
+**Someone:** Operating time. 
+
+**Katagiri Roshi:** Yes. 
+
+**Someone:** Where you aren’t swept away. You have control.
+
+**Katagiri Roshi:** So, what do you mean? Do you understand that? *Nowness you operate time*. Do you understand that one? Not swept away the time; what do you mean? 
+
+**Someone:** You’re in the of time but you’re rowing the boat... *[unintelligible]*
+
+**Katagiri Roshi:** Mm-hmm. Concretely speaking, in your daily life, what do you do? What do you mean, rowing the boat?
+
+**Someone:** You take care of things as they come up. 
+
+**Katagiri Roshi:** Mm-hmm. Well, everyone does that. But with what kind of attitude should you do it? What spiritual and physical attitude should you have when you deal with?
+
+**Someone:** Well, compassion, where you and the object...
+
+**Katagiri Roshi:** Well, compassion... yes, but compassion is another aspect of attitude. But in a more concrete way?
+
+**Someone**: Mindfulness?
+
+**Katagiri Roshi**: Mindfulness; mm-hmm...
+
+So... When you are mindful of doing something, at that time, how is time going? Which of the two has priority? Time, or you?
+
+**Someone:** You.
+
+**Katagiri:** Yes. Not time; you. But you really act initiatively means using the time. You must be always subjective. You cannot lose the subjectivity, under all circumstances. If you lose sight of yourself, that is called you are in the stream of time. So that is the samsaric world. You are there, but simultaneously you can use the time. Do you understand? Initiatively; that means you must be always there, present constantly as subjectivity, as you are, always. 
+
+That practice is called mindfulness, [someone] says. When you practice mindfulness, where are you? 
+
+**Someone:** Completely right now. 
+
+**Katagiri Roshi:** Right. Completely right now. Is that for a moment, or... what? Can you be nowness for a moment, or, what? 
+
+**Someone:** Eternally.
+
+**Katagiri Roshi:** “Eternally”! Do you understand that? If you practice mindfulness of doing something, then you must be always right now right here. That means the moment? That nowness is the length of a moment? If you believe that, that nowness you live in is nothing but the samsaric world. So if you are in the samsaric world, why do you have to practice mindfulness? Practice of mindfulness completely goes beyond the samsaric world, even though you are living there. 
+
+So, you are in the samsaric world, but you cannot be *enslaved* the samsaric world. You must take the initiative. 
+
+That is, Unmon says, “I use the twelve hours.”
 
 #### 11:30
 
-So you should understand this one through the practice, anyway. For instance, you, yesterday I mentioned, your activity must be on schedule, constantly. At that time, you believe your life is really tossed away by the schedule. So you believe you don't have subjectivity. But you must be subjective. Even though you are always on schedule, you must be yourself. You must be subjective, constantly. That point is not a matter of discussion. You have to do it, every day. You should learn what it is. I can tell you, I can explain it like this, but that is my experience. So you should taste it from your practice. 
+So you should understand this through the practice. 
 
-So what is the nowness, which is called eternal? What is it? Why do you have to practice mindfulness? If you are always in the samsaric world, why do you have to do it? 
+For instance, yesterday I mentioned, [if] your activity must be constantly on schedule, at that time you believe your life is really tossed away by the schedule. So you believe you don't have the subjectivity. But you must be subjective. Even though you are always on the schedule, you must be yourself; you must be subjective, constantly. That point is not a matter of discussion; you have to do it, every day. 
 
-Okay, that's why the other day I mentioned, nowness is that which is always in the present. That present is not the present in relation with the past and the future, which is called samsaric world. Because you are practicing mindfulness. In other words, samadhi. You are constantly dwelling in samadhi there. At that time, it is eternal. It is eternal. 
+So you should learn what it is. I can tell you, I can explain it like this, but that is *my* experience. So you should taste it from your practice. 
 
-So this eternal world, so-called nowness, comes from which is always, always eternal in the nowness. If you are always nowness in the nowness is, okay? Can you explain that nowness? Maybe so. But no matter how long I explain, that is nothing but the explanation of nowness. But that nowness is not, even though explanation of nowness, it doesn't hit the mark. So very naturally nowness is, you can explain the nowness , if you experience, but explanation of nowness is doesn't hit the mark. So very naturally, no matter how long you speak of nowness which is eternal, it's nothing. So it's really [sneaky]. 
+So what is the nowness which is called *eternal*? What is it? Why do you have to practice mindfulness? If you are always in the samsaric world, why do you have to do it? 
 
-So speechless speech. Real nowness is is speechless speech. That means, there is no nowness, no conception, no perception of nowness, but you can be always in nowness. So, in the words, no nowness. But practically, you are there. 
+Okay, that's why the other day I mentioned, nowness is that which is always in the present. That present is not the present in relation with the past and the future, which is called the samsaric world. Because you are practicing mindfulness – in other words, *samadhi*. You are constantly dwelling in samadhi there. At that time, it is eternal. 
 
-Ignorance, you don't know what the ignorance is. Later today I will explain. But it's very vast, [...]. But always there, in your life. The same applies to the nowness, eternal life. Eternal nowness is, you don't know what the eternal nowness is. But you are here. You can do it. 
+So this eternal world, so-called nowness, which is always eternal in the nowness. If you are always nowness in the nowness? Can you explain that nowness? Maybe so. But no matter how long I explain, that is nothing but the *explanation* of nowness. But even though [it is an] explanation of nowness, it doesn't hit the mark. So very naturally you can explain the nowness if you experience it, but the explanation of nowness is doesn't hit the mark. So very naturally, no matter how long you speak of nowness which is eternal – it's nothing. So it's really [sneaky]. 
 
-So that's why it's speechless speech. Real nowness is with speechless speech. Always talking about nowness, real nowness, through your body and mind, if you practice it. If people can feel that, people can appreciate this, the practice you do. 
+So, speechless speech. Real nowness is speechless speech. That means, there is no nowness, no conception, no perception of nowness, but you can be always in nowness. So, in the words, no nowness. But practically, you are there. 
 
-So, that is really nowness. And the Buddha himself, if you say Buddha, Buddha has that nowness constantly, ok? Nowness constantly. Which is silence, which is quiet. Because it's speechless, but it's there. Speechless speech. You know, the real nowness as the speechless speech is always stored in the Buddha's heart. And then this Buddha, physically, [is] connected with all sentient beings. When he connected with all sentient beings, he is not in the [consolatory], he is always in the nowness. Always in the nowness. If you are always in the nowness, your effort is not effort. Your energy is coming up naturally as it is. Just like a stream of water, gushing out of the stream, just like that. But in the samsaric world, unenlightened human beings always try to make an effort. So it makes you exhaust. But Buddha himself is always standing in nowness. And then connected with all sentient beings. So physically, connected with all sentient beings, but he is always in nowness, not in the samsaric world. But according to our eyes, we say, "Oh, Buddha is in our life, our world." Because Buddha always connected with all sentient beings, helping. But attitude, spiritual attitude, spiritual security is just going naturally as they are. So, no problem. No samsaric world. But in terms of our eyes, we believe, "Oh, Buddha is just like us, living in the human world." And then we become familiar with the Buddha. And then we want to approach to this kind of Buddha. That is called Buddha's skillful method. Do you understand? To save all sentient beings. But Buddha himself is very straight, very straight. Whatever you say, whatever you express your being, oh, you are Buddha. You are just like a me, just like a human being. Thanks. Whatever you say, Buddha is always in the nowness. Otherwise, Buddha cannot help. 
+*Ignorance* – you don't know what the ignorance is. Later today I will explain. But it's very vast... vague. But [it’s] always there, in your life. The same applies to the nowness, eternal nowness. We don't know what the eternal nowness is. But you are here. You can do it. 
+
+So that's why [it's] speechless speech; real nowness is really speechless speech. Always talking about nowness, real nowness, through your body and mind, if you practice this. People can feel that; people can appreciate this practice you do. 
+
+So, that is really nowness. And the Buddha himself: if you say Buddha, Buddha has that nowness constantly, okay? Nowness constantly. Which is silent, which is quiet – because it's speechless. But it's there; speechless speech. The real nowness as the speechless speech is always stored in the Buddha's heart. 
+
+And then this Buddha, physically, [is] connected with all sentient beings. When he is connected with all sentient beings, he is not in the samsaric world, he is always in the nowness. Always in the nowness. If you are always in the nowness, your effort is not effort. Your energy is coming up naturally as it is. Just like a stream of water; gushing out of the stream, just like that. 
+
+But in the samsaric world, unenlightened human beings always try to make an effort. So it makes you exhausted. But Buddha himself is always standing in nowness, and then connected with all sentient beings. So physically connected with all sentient beings, but he is always in nowness, not in the samsaric world. 
+
+But according to our eyes, we say, "Oh, Buddha is in our life, our world." Because Buddha always connected with all sentient beings, helping. But attitude, spiritual attitude, spiritual security is just going naturally as they are. So, no problem. No samsaric world. But in terms of our eyes, we believe, "Oh, Buddha is just like us, living in the human world." And then we become familiar with the Buddha. And then we want to approach to this kind of Buddha. That is called Buddha's skillful method. Do you understand? To save all sentient beings. But Buddha himself is very straight, very straight. Whatever you say, whatever you express your being, oh, you are Buddha. You are just like a me, just like a human being. Thanks. Whatever you say, Buddha is always in the nowness. Otherwise, Buddha cannot help. 
 
 For instance, if you are psychologist, if you are a teacher, to help somebody, if you are tossed away by, or if you really jump into the other’s suffering, then you cannot help. You have to jump into, connected with the person, but you must be always standing up in nowness. Do you understand that one? You must be you. But it's not always creating a gap. You connected, you jump into, but you are always quiet. And then you can help. 
 
