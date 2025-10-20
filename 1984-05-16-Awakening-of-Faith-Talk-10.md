@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 10: Time and Ignorance"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+**This transcript is in draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/time" target="_blank">Listen to this talk</a>
@@ -24,7 +24,7 @@ In [the] common sense, if you look at your life, where you are, it goes without 
 
 So the other day I explained about *nowness*. Do you remember what I said? 
 
-*[Unintelligible.]*
+**Someone**: *[Unintelligible.]*
 
 **Someone**: There are two kinds of nowness. 
 
@@ -34,13 +34,13 @@ One is what?
 
 **Someone**: Being in the stream of time?
 
-**Katagiri Roshi:** Mm-hmm; being in the stream of time. That time is [...] the moment, because that nowness is the time in terms of the relationship between past and future; that is nowness. So very naturally, the present in relation with the past and future is nothing but the moment. Alright? This is the present you believe.
+**Katagiri Roshi:** Mm-hmm; being in the stream of time. That [kind of] time is [...] the moment, because that nowness is time in terms of the relationship between past and future. Very naturally, the present in relation with the past and future is nothing but the moment. Alright? This is the present you believe.
 
-So the present you believe is not something you can really depend on because it’s the moment. It has only the length of the moment: very short. 
+So the present you believe is not something you can really depend on, because it’s the moment. It has only the length of the moment: very short. 
 
 But we don’t believe that. Consciously or unconsciously, we believe the present has a long length of time; so-called *today*, so-called *hours*, et cetera. But I don’t think this is the present. 
 
-So the present you live in is nothing but the length of the time of the moment. That is the place you live. So very naturally that is [this] time, nowness, is going in the samsaric world. 
+So the present you live in is nothing but the length of the time of the moment. That is the place you live. So very naturally that is [that this] time, nowness, is going in the samsaric world. 
 
 And the second nowness is what? 
 
@@ -50,7 +50,7 @@ And the second nowness is what?
 
 **Someone:** Where you aren’t swept away. You have control.
 
-**Katagiri Roshi:** So, what do you mean? Do you understand that? “Nowness you operate time”. Do you understand that one? “Not swept away [by] the time” – what do you mean? 
+**Katagiri Roshi:** So, what do you mean? “Nowness [in which] you operate time.” Do you understand that? “Not swept away [by] the time” – what do you mean? 
 
 **Someone:** You’re in the stream of time but you’re rowing the boat... *[unintelligible]*
 
@@ -58,29 +58,29 @@ And the second nowness is what?
 
 **Someone:** You take care of things as they come up. 
 
-**Katagiri Roshi:** Mm-hmm. Well, everyone does that. But with what kind of attitude should you do it? What spiritual and physical attitude should you have when you deal with?
+**Katagiri Roshi:** Mm-hmm. Well, everyone does that. But with what kind of attitude should you do it? What spiritual and physical attitude should you have when you deal with [things]?
 
 **Someone:** Well, compassion, where you and the object...
 
-**Katagiri Roshi:** Well, compassion... yes, but compassion is another aspect of attitude. But in a more concrete way?
+**Katagiri Roshi:** Well, compassion, yes... but compassion is another aspect of attitude. But in a more concrete way?
 
 **Someone**: Mindfulness?
 
 **Katagiri Roshi**: Mindfulness; mm-hmm...
 
-So... When you are mindful of doing something, at that time, how is time going? Which of the two has priority? Time, or you?
+So... when you are mindful of doing something, at that time, how is time going? Which of the two has priority? *Time*, or *you*?
 
 **Someone:** You.
 
-**Katagiri:** Yes. Not time; you. But “you really act initiatively” means using the time. You must be always subjective. You cannot lose the subjectivity, under all circumstances. If you lose sight of yourself, that is called *you are in the stream of time*. 
+**Katagiri:** Yes. Not time; you. But “you really act initiatively” means using the time. You must be always subjective. You cannot lose the subjectivity under [any] circumstances. If you lose sight of yourself, that is called *you are in the stream of time*. 
 
-That is the samsaric world. You are there, but simultaneously you can use the time. Do you understand? Initiatively: that means you must be always there, constantly present as subjectivity, as you are, always. 
+That is the samsaric world. You are there, but simultaneously you can use the time. Do you understand? Initiatively; that means you must be always there, constantly present as subjectivity, as you are, always. 
 
 That practice is called *mindfulness*, [someone] says. When you practice mindfulness, where are you? 
 
 **Someone:** Completely right now. 
 
-**Katagiri Roshi:** Right. Completely right now. Is that for a moment, or... what? Can you be nowness for a moment, or, what? 
+**Katagiri Roshi:** Right. Completely right now. Is that for a moment, or... what? Can you be nowness for a moment, or what? 
 
 **Someone:** Eternally.
 
@@ -94,7 +94,7 @@ That is, Unmon says, “I use the twelve hours.”
 
 So you should understand this through the practice. 
 
-For instance, yesterday I [said], [if] your activity must be constantly on a schedule, at that time you believe your life is really tossed away by the schedule. So you believe you don’t have the subjectivity. But you must be subjective. Even though you are always on the schedule, you must be yourself; you must be subjective, constantly. That point is not a matter of discussion; you have to do it, every day. 
+For instance, yesterday I [said], [if] your activity must be constantly on a schedule, at that time you believe your life is really tossed away by the schedule. So you believe you don’t have the subjectivity. But you must be subjective; even though you are always on the schedule, you must be yourself; you must be subjective, constantly. That point is not a matter of discussion; you have to do it, every day. 
 
 So you should learn what it is. I can tell you, I can explain it like this, but that is *my* experience. So you should taste it from your practice. 
 
@@ -102,15 +102,15 @@ So what is the nowness which is called *eternal*? What is it? Why do you have to
 
 Okay, that’s why the other day I mentioned [that] nowness is that which is always in the present. That present is not the present in relation with the past and the future, which is called the samsaric world. Because you are practicing mindfulness – in other words, *samadhi*. You are constantly dwelling in samadhi there. At that time, it is eternal. 
 
-So this eternal world, so-called nowness, which is always eternal in the nowness. If you are always nowness in the nowness? Can you explain that nowness? Maybe so. But no matter how long I explain, that is nothing but the *explanation* of nowness. But even though [it is an] explanation of nowness, it doesn’t hit the mark. Very naturally you can explain the nowness if you experience it, but the explanation of nowness is doesn’t hit the mark. So very naturally, no matter how long you speak of nowness which is eternal – it’s nothing. So it’s really [sneaky]. 
+So this eternal world, so-called nowness, which is always eternal [...] If you are always nowness, [always] in the nowness – can you explain that nowness? Maybe so. But no matter how long I explain, that is nothing but the *explanation* of nowness. Even though [it is an] explanation of nowness, it doesn’t hit the mark. Very naturally you can explain the nowness if you experience it, but the explanation of nowness is doesn’t hit the mark. So very naturally, no matter how long you speak of nowness which is eternal – it’s nothing. So it’s really [sneaky]. 
 
-So, real nowness is speechless speech. That means, there is no nowness, no conception, no perception of nowness, but you can be always in nowness. So, in words, “no nowness”. But practically, you are there. 
+So real nowness is speechless speech. That means there is no nowness, no conception [or] perception of nowness, but you can be always in nowness. So, in words: “no nowness”. But practically, you are there. 
 
 *Ignorance*: you don’t know what *ignorance* is. Later today I will explain. It’s very vast... vague, but [it’s] always there, in your life. The same applies to eternal nowness. We don’t know what eternal nowness is, but you are here. You can do it. 
 
-So that’s why real nowness is really speechless speech. [It is] always talking about nowness, real nowness, through your body and mind, if you practice this. People can feel that; people can appreciate this practice you do. 
+So that’s why real nowness is really speechless speech. [It is] always talking about nowness, real nowness, through your body and mind, if you practice this. People can feel that; people can appreciate this practice you do. That is really nowness. 
 
-That is really nowness. And the Buddha himself: if you say Buddha, Buddha has that nowness constantly. Nowness constantly, which is silent, which is quiet – because it’s speechless. But it’s there; speechless speech. The real nowness as speechless speech is always stored in the Buddha’s heart. 
+And the Buddha himself: if you say Buddha, Buddha has that nowness constantly. Nowness constantly, which is silent, which is quiet – because it’s speechless. But it’s there; speechless speech. The real nowness as speechless speech is always stored in the Buddha’s heart. 
 
 And then this Buddha, physically, [is] connected with all sentient beings. When he is connected with all sentient beings, he is not in the samsaric world, he is always in the nowness. If you are always in the nowness, your effort is not effort. Your energy is coming up naturally as it is. Just like a stream of water; gushing out of the stream, just like that. 
 
