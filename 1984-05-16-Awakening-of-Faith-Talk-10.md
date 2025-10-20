@@ -140,7 +140,7 @@ So whatever you do, that is always important. You must be Buddha, but you cannot
 
 [...] That is nowness. That’s why the practice of mindfulness, and also being present right-now-right-here, is important. It’s not a kind of religious teaching which is [brainwashing you], okay? Or which is making your consciousness blind. If you practice like this, your mind becomes more clear. Finally, your consciousness starts to work. People don’t believe [this]; if I suggest to do this, [they think it] is kind of [like] army training. But I don’t think so. 
 
-So, this is nowness. In the common sense, you are always in two kinds of nowness. And then: which would you like to choose? Nowness [while] being in the stream of time? Or nowness [where] you operate time? It really depends on you – whatever you may be. And then, that practice creates a quite different human life which is blooming in the future, from moment to moment. 
+So, this is nowness. In the common sense, you are always in two kinds of nowness. And then: which would you like to choose? Nowness [while] being in the stream of time? Or nowness [in which] you operate time? It really depends on you – whatever you may be. And then, that practice creates a quite different human life which is blooming in the future, from moment to moment. 
 
 But look at human beings, the human world. Usually people are just struggling in the realm of nowness, in being in the stream of time; that’s it. 
 
@@ -152,45 +152,49 @@ And then today, I want to say a little bit [more about] time, because nowness is
 
 In the *Abhidharmakosha*, it says that time doesn’t have its own nature, its own substance, but time is produced by all beings. *All beings* means all things, so-called *dharmas* – with the ‘s’, *dharmas*. Time is produced by the dharmas; that is all beings, all things. 
 
-So, what the dharmas, all things means, do you understand *all things*? Time doesn’t have its own nature. Doesn’t have its own nature. Well, what is time? Do you understand this time? Time has a kind of a... if time doesn’t have its own substance, can you explain what [is] the source of time? Is it possible for us to say the source of time, [anything] about the source of time? Yes? Can you? About that. Any other? Don’t think so? 
+So, what the *dharmas*, “all things” means... Do you understand *all things*? Time doesn’t have its own nature. Well, what is time? Do you understand this time? If time doesn’t have its own substance, can you explain what is the source of time? Is it possible for us to say something about the source of time? 
 
-**Someone:** Can you say whatever exists is time? 
+Yes? Can you? [...] 
 
-**Katagiri Roshi:** Well no, I am talking about the statement of time according to *Abhidharmakosha*, saying time doesn’t have its own substance. If so, can you explain about the *source* of time? Can you see the source of time? Or can you believe that there must be a kind of a source of time? 
+**Someone:** Could you say whatever exists is time? 
 
-**Someone:** If there isn’t any time, how can it have a beginning?
+**Katagiri Roshi:** Well no, I am talking about the statement of time according to *Abhidharmakosha*, saying time doesn’t have its own substance. If so, can you explain about the source of time? Can you see the source of time? Or can you believe that there must be a kind of a source of time? 
+
+**Someone:** If there isn’t any time, how can it have a [beginning]?
 
 **Katagiri Roshi:** Mm-hmm. Pretty good.
 
-**Someone:** I think that it is something that we sort of come up with in our minds to [...] in our minds. 
+**Someone:** It seems like it is something that we sort of come up with in our minds [...]
 
 **Katagiri Roshi:** Any other? 
 
-**Someone:** It arises from beginningless [...]. 
+**Someone:** It arises from beginningless [past]. 
 
-**Katagiri Roshi:** Mm-Hmm.
+**Katagiri Roshi:** Mm-hmm.
 
-What does it? *[He laughs, and others laugh.]*
+Or does it? *[He laughs, and others laugh.]*
 
 That means that it doesn’t have its own substance. 
 
 **Someone:** Right, *[unintelligible]*...
 
-**Katagiri Roshi:** It doesn’t have a source. Don’t you think so? 
+**Someone**: That means it doesn’t have a source?
+
+**Katagiri Roshi:** It doesn’t have a source! Don’t you think so? 
 
 **Someone:** What kind of time are you talking about, Roshi? 
 
-**Katagiri Roshi:** Well, according to the *Abhidharmakosha*. Time is not produced by a certain source of time. No, no, not source of time... time doesn’t have its own substance. That’s why time is produced by the change of all things. Alright? 
+**Katagiri Roshi:** Well, according to the *Abhidharmakosha*. [...] Time doesn’t have its own substance. That’s why time is produced by the change of all things. Alright? 
 
-So that’s why I say... Do you understand? Is that alright? If so, “time is produced by all things” means, for example, what do you mean? By all beings, all things. For example? 
+Do you understand? Is that alright? If so, “time is produced by all things” means – well, what do you mean by “all beings”, “all things”, for example? 
 
 **Someone:** *[Unintelligible.]*
 
-**Katagiri Roshi:** Yes. How about this: time is produced by change of all things. What do I mean, for example? 
+**Katagiri Roshi:** Yes. How about this: time is produced by the change of all things. What do I mean, for example? 
 
-**Someone:** Well, everything that has substance has a beginning and an end [...] appears and disappears. So the duration of its manifestation would be time. 
+**Someone:** Well, everything that has substance has a beginning and an end, or appears and disappears. So the duration of its manifestation would be time. 
 
-**Katagiri Roshi:** Mm-hmm. Well, what’s change? What change? 
+**Katagiri Roshi:** Mm-hmm. Well, what changes? 
 
 **Someone:** Well, anything that has... 
 
@@ -198,25 +202,27 @@ So that’s why I say... Do you understand? Is that alright? If so, “time is p
 
 **Someone:** Object. 
 
-**Katagiri Roshi:** Object. All things. Okay? Do you understand? 
+**Katagiri Roshi:** Object. All things. Okay?
 
 All things you can see... The change of all things, time is produced. That is what *Abhidharmakosha* says. Alright? 
 
-If so, for example... This kind of thing is, according to Buddha’s teaching, that is called “All things are impermanent.” Like this. So your objects are impermanent. All right? 
+If so, for example... This kind of thing, according to Buddha’s teaching, that is called “all things are impermanent”. Like this. So your objects are impermanent. All right? 
 
-Or... This is kind of... change of the objects you can see through the six senses, and also change of four seasons, change of nature, and also evolution of creatures. 
+Or... This is kind of... change of the objects you can see through the six senses, and also the change of the four seasons, the change of nature, and also the evolution of creatures. 
 
-And then, by, for example, in other words... in other words, okay? By evolution of creatures, or the change of nature, change of four seasons, time is produced. Alright? If so, this time is kind of time in physics. [...] physics. According to Buddha, Buddha says, “All things are impermanent.” Alright? 
+In other words, by evolution of creatures, or the change of nature, the change of the four seasons, time is produced. 
 
-So, let’s, the other, the... [Vijnanabhava], which means the “Discourse on Mere Consciousness.” Vijnanabhara. That is the “Discourse on Mere Consciousness.” Which means that is the “Discourse on Mere Consciousness.” M-E-R-E. Mere Consciousness. Or, this, the *Daijōkishinron*, “The Awakening of Mahayana Faith.” According to this, the “Discourse on Mere Consciousness,” and also this book, “The Awakening of Mahayana Faith,” they understand that time is produced by the change of the consciousness. Alright? The change of the consciousness, the change of discriminating mind. That is most important in this book.
+If so, this time is kind of the time in physics. According to Buddha, “All things are impermanent.”
+ 
+So, let’s, the other, the... [*Vijñānavāda*], which means the *Discourse on Mere Consciousness*. *Vijñānavāda shastra*, that is the *Discourse on Mere Consciousness*. Or this, the *Daijōkishinron*, *The Awakening of Mahayana Faith*. According to this, the *Discourse on Mere Consciousness*, and also this book, *The Awakening of Mahayana Faith*, they understand that time is produced by the change of the consciousness. Alright? The change of the consciousness, the change of discriminating mind. That is most important in this book.
 
-So, from this point, the change of the mind, by change of the mind, time is produced. This is very natural, okay? According to the 24 hours through your clock, watch, you can see the time, but clock is your object. But if you don’t have a clock, you cannot know the time. But even though you don’t have a clock, you can know, you can notice the time. How? How can you notice the time? Even though you don’t have a watch, how can you notice? 
+So, from this point, by change of the mind, time is produced. This is very natural, okay? According to the 24 hours through your clock or watch, you can see the time. The clock is your object. But if you don’t have a clock, you cannot know the time. But even though you don’t have a clock, you can notice the time. How can you notice the time? Even though you don’t have a watch, how can you know it? 
 
-**Someone:** *[Unintelligible.]*
+**Someone:** [The sun moves.]
 
-**Katagiri Roshi:** This is also pretty good idea of time in physics. Don’t you think so? Yes. ... if there was no time. Because if you are confined in a jail, which is dark, complete dark, nothing, how can you know time? 
+**Katagiri Roshi:** This is also a pretty good idea of time in physics. Don’t you think so? Yes, this is pretty nice. [What if] there were no sun? If you are confined in a jail which is completely dark, nothing; how can you know time? 
 
-**Someone:** It changes.
+**Someone:** It still changes.
 
 **Katagiri Roshi:** What changes? 
 
@@ -226,27 +232,25 @@ So, from this point, the change of the mind, by change of the mind, time is prod
 
 [...]
 
-Yes. You feel hungry, even though you are in a dark room where you cannot see the sun, where you cannot see anything, you cannot think anything, but you still feel time, because when you feel hungry, it’s time to have a meal, so-called lunch, dinner, et cetera. But that is physical body, just physical body is just a physical body, you know, just working. But who knows you are hungry? Who knows you are hungry? 
+Yes. You feel hungry, even though you are in a dark room where you cannot see the sun, where you cannot see anything, you cannot think anything, but you still feel time, because when you feel hungry, it’s time to have a meal, so-called lunch, dinner, et cetera. But that is the physical body. The physical body is just the physical body, you know, just working. But who knows you are hungry? 
 
-[...]
+**Someone:** You do.
 
-You do, yes. 
+**Katagiri Roshi:** You do. Yes. 
 
-[...]
+**Someone:** Mind.
 
-Mind. Yes, consciousness, discriminating mind, anyway knowledge, you are hungry. 
-
-So, even though you are always in a dark room, still you can know the time, because change of mind. 
+**Katagiri Roshi:** Mind! Yes, consciousness, discriminating mind, knows that you are hungry. So, even though you are always in a dark room, still you can know time, because [of the] change of mind. 
 
 **Someone:** Is that a source of time?
 
-**Katagiri Roshi:** No, no, not source. I am talking about how, what is time, what is time like? It has its own source, or substance, or it doesn’t have a source? If it doesn’t have a source, how is a time produced? Do you understand? So, that’s why I am talking about this one. 
+**Katagiri Roshi:** No, no, not source. I am talking about what is time like. Does it have its own source, or substance, or doesn’t it have a source? If it doesn’t have a source, how is the time produced? That’s why I am talking about this. 
 
-But if you faint – what’s happening? What happens if you faint? Hmm? 
+But if you faint – what’s happening? 
 
 **Someone:** Time disappears. 
 
-**Katagiri Roshi:** Disappears. Right. Don’t you think so? If you faint, time disappears. Your time disappears. What do [I] mean, time disappears? 
+**Katagiri Roshi:** Disappears. Right. Don’t you think so? If you faint, time disappears. Your time disappears; what do [I] mean, time disappears? 
 
 **Someone:** You have no recollection of time? 
 
@@ -254,27 +258,35 @@ But if you faint – what’s happening? What happens if you faint? Hmm?
 
 **Someone:** Consciousness.
 
-**Katagiri Roshi:** Consciousness, yes. When time disappears means your consciousness, stream of consciousness stops. Do you understand? Blocked, and then time goes. So, that’s why time is produced change of the mind, consciousness. Alright? That’s very true, don’t you think so? 
+**Katagiri Roshi:** Consciousness! Yes. “Time disappears” means your stream of consciousness stops. Do you understand? [Blocked]. And then, time goes. 
 
-So, this book is very interesting because the human beings can be seen, can be understood in terms of change of consciousness. That is the point this book always concentrates on. But, unfortunately, this book doesn’t mention how the human mind works, how human mind works in the human society when you join the member of society. It doesn’t mention. Just analyze, just understand human beings in terms of consciousness. So, it’s wonderful understanding, but not a concrete way of living. When you join to human society, it doesn’t explain. So, just understanding human beings in terms of consciousness. That is very nice book. So, that’s why time is produced by the change of consciousness. Alright? 
+So, that’s why time is produced by change of the mind, consciousness. Alright? That’s really true, don’t you think so? 
+
+So this book is very interesting, because human beings can be seen, can be understood in terms of change of consciousness. That is the point this book always concentrates on. But unfortunately this book doesn’t [talk about] how the human mind works in human society, when you [are a] member of society. It doesn’t [talk about that] – just analyzing and understanding human beings in terms of consciousness. So, it’s a wonderful understanding, but not a concrete way of living. When you join human society, it doesn’t explain. So just understanding human beings in terms of consciousness; that is a very nice book. 
+
+So, that’s why time is produced by the change of consciousness.
 
 #### 43:37
 
-And then look at the consciousness, our consciousness. So, consciousness is always going, moving, constantly, or whatever you feel. Under all circumstances, consciousness is always working. Operating. This is wonderful in a sense, because this is, that’s the continuation, continuous, continuous, you know, the working of a human consciousness creates human culture, the discriminating mind, et cetera. But, on the other hand, very difficult. Because, under all circumstances, still you can create the human culture, you can go any place. But a human body doesn’t develop under certain circumstances. If you become sick, it’s very difficult to think wonderful world, because you cannot develop yourself, you know? So if human body becomes sick, so-called under circumstances, very difficult to develop human life. 
+And then, look at consciousness, our consciousness. 
 
-But on the other hand, conscious world is quite different from physical world. Alright? Even though you are sick, or even though under the unfavorable situation, or even though under very dangerous, very dangerous situation, still you can think, you can develop your life, develop human life. That’s why we create constantly human culture. But on the other hand, it’s wonderful, because it’s giving the vitality to live...
+Consciousness is always going, moving, constantly, whatever you feel. Under all circumstances, consciousness is always working, operating. This is wonderful in a sense, because the continuous working of human consciousness creates human culture, the discriminating mind, et cetera. But, on the other hand, very difficult. Because, under all circumstances, still you can create the human culture, you can go any place. But a human body doesn’t develop under certain circumstances. If you become sick, it’s very difficult to think [it’s a] wonderful world, because you cannot develop yourself, you know? So if the human body becomes sick, so-called under circumstances, [it’s] very difficult to develop human life. 
+
+But on the other hand, the conscious world is quite different from the physical world. Even though you are sick, or even though under an unfavorable situation, or even though under a very dangerous situation, still you can think, you can develop your life, develop human life. That’s why we create constantly human culture. But on the other hand, it’s wonderful, because it’s giving the vitality to live...
 
 *[Tape break.]*
 
-... It makes you be up in the air always. Far from realistic way of life. But on the other hand, that consciousness always gives you vitality to live. That’s wonderful. 
+... It makes you be up in the air always, far from [a] realistic way of life, but on the other hand, that consciousness always gives you vitality to live. That’s wonderful. 
 
-So, the characteristic of consciousness is constantly working. So, but it is good, but on the other hand, it is not good. That’s why we have to make our mind calm, and understand human life. The calmness of your mind makes you stand up straight, right now, right here, constantly. That is nowness, you operate time. 
+So, the characteristic of consciousness is [that it is] constantly working. So it is good, but on the other hand, it is not good. That’s why we have to make our mind calm, and understand human life. The calmness of your mind makes you stand up straight, right now, right here, constantly. That is nowness [in which] you operate time. 
 
-So, that’s why we do zazen. But if you do zazen, do you think your mind can be completely calm? Can you believe? 
+So that’s why we do zazen. 
+
+But if you do zazen, do you think your mind can be completely calm? Can you believe that? 
 
 **Someone:** [...] Why couldn’t it be? 
 
-**Katagiri Roshi:** Why? 
+**Katagiri Roshi:** Why... ? 
 
 **Someone:** Why would not be possible? 
 
@@ -282,29 +294,29 @@ So, that’s why we do zazen. But if you do zazen, do you think your mind can be
 
 **Someone:** Oh, I see.
 
-**Katagiri Roshi:** It’s possible. But I am talking about your experience. *[He laughs.]* Your consciousness. I am talking about your consciousness. Can you believe the mind becomes calm when you do zazen? 
+**Katagiri Roshi:** It’s possible. But I am talking about your experience. *[Laughter.]* Your consciousness; I am talking about your consciousness. Can you believe the mind becomes calm in zazen? 
 
 **Someone:** *[Unintelligible.]*
 
-**Katagiri Roshi:** Ah. *[He laughs.]* Any other? 
+**Katagiri Roshi:** Ah! *[He laughs.]* Any others? 
 
-Well, consciousness is... yes, if you do zazen, your mind becomes calm. Okay? But right in the middle of calmness, still you don’t believe, you cannot know what calmness is, because it’s pretty tricky. You don’t know what the calmness is. If you get the calmness, it’s not calm. Don’t you think so? You say, “I get a calmness!” At that time it’s not calm, *[he laughs,]* because you stirred up calmness.
+Well, [...] yes, if you do zazen, your mind becomes calm. Okay? But right in the middle of calmness, still you cannot know what the calmness is, because it’s pretty tricky. You don’t know what the calmness is. If you get the calmness, it’s not calm. Don’t you think so? You say, “I get the calmness!” At that time it’s not calm, *[he laughs,]* because you stirred up the calmness!
 
-Can you see that kind of mind operating constantly like this? Do you understand? If you do zazen like this. So, the more you try to make your mind calm in zazen, the more you can see the operation of your mind. Alright? 
+Can you see that kind of mind operating constantly like this? If you do zazen like this. So, the more you try to make your mind calm in zazen, the more you can see the operation of your mind.
 
-And in this book, we have to make your mind calm, but the more you make your mind calm, the more you can see the mind which you cannot make calm. In other words, your mind seems to be calm, but they are not calm actually, it means there are the minute, the functioning of the change of the consciousness there. Minute. Do you understand? Minute. Alright? 
+And [according to] this book, [you] have to make your mind calm, but the more you make your mind calm, the more you can see the mind which you cannot make calm. In other words, your mind seems to be calm, but [it is] not calm actually; it means still there is the minute functioning of the change of the consciousness there. 
 
-Then, right in the middle of calmness, you immediately say, “I get the calmness!” Then that is really minute change, very minute, you know, change of consciousness. And then next moment, forget it. *[He laughs.]* Okay? Forget it. Forget it and then sit constantly. Still there is there. It means you have to continually say, “Forget it. Forget it. Forget it.” Okay? So that minute, the most minute change of consciousness, still being, can be recognized in samadhi, in calmness of your zazen.
+And then, right in the middle of calmness, you immediately say, “I get the calmness!” Then that is very minute change of consciousness. And then next moment, forget it. *[He laughs.]* Okay? Forget it. Forget it and then sit, constantly. Still there is there. It means you have to continually say, “Forget it. Forget it. Forget it.” Okay? So the most minute change of consciousness can still be recognized in *samadhi*, in the calmness of your zazen.
 
-This is called *moment*. In this book, this is called *moment*. Because time is produced by change of the consciousness. So still there is, you are living constantly in the stream of time. Alright? So [...] it is very difficult to take initiative activities right in the middle of stream of time. Because still, always, there are, there are the most minute change of consciousness always there. But more or less, you can do it. So constantly, that’s why you have to know how consciousness is changing. You have to realize through and through in zazen.
+In this book, this is called *moment*. Because time is produced by change of consciousness. So still you are living constantly in the stream of time. Alright? So it’s very difficult to take initiative activities right in the middle of stream of time, because still there are the most minute changes of consciousness, always there. 
 
-That’s why the most minute change of consciousness recognized by your calmness, by your zazen, is called moment. That’s why Dōgen Zen says, “You should realize the moment.” You should understand the moment through and through. Otherwise you cannot arouse, otherwise you cannot awaken the body-mind. Do you understand? 
+But more or less, you can do it. That’s why you have to know how consciousness is changing. You have to realize [that] through and through in zazen.
 
-So, this is the moment in this book. So moment is the very delicate, continuous change of consciousness, still there. 
+That’s why the most minute change of consciousness recognized by your calmness, by your zazen, is called *moment*. That’s why Dōgen Zenji says, “You should realize the moment.” You should understand the moment through and through. Otherwise you cannot awaken the bodhi-mind.
 
-So, the most minute change of consciousness is still recognized even though the consciousness is tranquilized to the maximum. Therein, moment can be recognized. This is called moment. 
+This is *the moment* in this book. So *moment* is the very delicate, continuous change of consciousness, [which is] still there. So the most minute change of consciousness is still recognized even though the consciousness is tranquilized to the maximum. Therein, moment can be recognized. This is called *moment*. 
 
-And this moment, how this moment produced, that is called the most, most minute change of consciousness. That minute, most minute consciousness is called *ignorance*. 
+And how this moment is produced, that is called the most minute change of consciousness. That most minute [change of] consciousness is called *ignorance*. 
 
 So *moment* is *ignorance*. You don’t know from where the moment comes. That moment is, in terms of that change of the most minute change of consciousness can be seen in terms of the time, it is called moment. And then when you try to see the thought of the moment from where it comes, at that time it is called *ignorance*. And that ignorance is happening always, constantly, suddenly. 
 
