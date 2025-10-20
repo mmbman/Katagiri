@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 10"
+title: "The Awakening of Faith – Talk 10: Time and Ignorance"
 ---
 ## May 16, 1984 Dharma Talk by Dainin Katagiri Roshi
 
