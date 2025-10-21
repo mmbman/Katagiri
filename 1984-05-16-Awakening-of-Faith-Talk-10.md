@@ -22,7 +22,7 @@ The other day, I explained a little bit about phenomena. Phenomena is the samsar
 
 In [the] common sense, if you look at your life, where you are, it goes without saying that we are always in the present. Okay? So I say *nowness*. We are *now*. 
 
-So the other day I explained about *nowness*. Do you remember what I said? 
+The other day I explained about *nowness*. Do you remember what I said? 
 
 **Someone**: *[Unintelligible.]*
 
