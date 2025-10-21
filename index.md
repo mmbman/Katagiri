@@ -37,12 +37,12 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 **Latest Updates:**
 
+- October 20, 2025: Posted draft of [“*The Awakening of Faith* – Talk 10: Time and Ignorance”](1984-05-16-Awakening-of-Faith-Talk-10).
 - October 2, 2025: Posted [“*Shōbōgenzō Kokyo*: Form and Mirror – Talk 2”](1986-10-19-Shobogenzo-Kokyo-Talk-2).
 - September 13, 2025: Posted draft of [“*Shōbōgenzō Kokyo*: Form and Mirror – Talk 1”](1986-10-18-Shobogenzo-Kokyo-Talk-1).
 - August 30, 2025: Worked on [*The Awakening of Faith*](awakening-of-faith) talks 1 through 9.
 - August 21, 2025: Posted [“*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 2”](1984-01-22-Blue-Cliff-Record-Case-52-Talk-2).
 - August 19, 2025: Posted [“*Blue Cliff Record* Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1”](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1).
-- August 1, 2025: Posted [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
 
 Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
 
