@@ -7,7 +7,7 @@ title: "The Awakening of Faith – Talk 11: Alayavijnana & Tathagatagarbha"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+**This transcript is in draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/alayavijnana-tathagatagarbha" target="_blank">Listen to this talk</a>
@@ -114,43 +114,49 @@ So that is the panoramic picture of the foundation of human consciousness, so-ca
 
 So, the enlightenment and non-enlightenment are merged together. Very naturally, if you see one aspect of the mind, so-called not-enlightenment – in other words, you are very violent – if you look at yourself, how brutal you are, how unkind you are, at that time it is a negative understanding of human life. But within the negative expression of human life, there is a positive aspect of human life which is always working, by which negative expression of life comes into existence. In other words, if I say “I am a bad boy,” simultaneously within that negative expression, so-called *bad boy*, simultaneously *good boy* [is] working within the bad boy. In other words, bad boy contains good boy. 
 
-That’s why if we look very strongly, seriously and very deeply at how brutal we are, we cannot be brutal. So very naturally, we can turn over the leaf of our life. Do you understand? You can turn over. Very naturally you want to do something not brutal. 
+That’s why if we look very strongly, seriously and very deeply at how brutal we are, we cannot be brutal. So very naturally, we can turn over the [new] leaf of our life. [...] Very naturally you want to do something not brutal. 
 
-And also, if you say “good boy,”simultaneously good boy contains “not-good boy”. Always both exist. So, whatever situation, your situation basically is always free. Going to *any* place, any direction – good boy or bad boy. You are always neutral. Neutral means you are *unstained*. In other words, *one mind*. One piece of paper. 
+And also, if you say “good boy,”simultaneously good boy contains “not-good boy”. Always both things exist. 
 
-When you see the back, it’s just the back. Next moment, you can see the front; it’s front. But if you see the front, you say, “That’s it.” I don’t think so – because there is a back. But on the other hand, intellectually you can see so, but all you have to do is just accept the good boy if you see the front, totally. 
+So, whatever situation, your situation basically is always free. Going to *any* place, any direction – good boy or bad boy. You are always *neutral*. Neutral, meaning you are *unstained*. In other words, *one mind*. One piece of paper. When you see the back, it’s just the back. Next moment, you can see the front; it’s front. 
 
-So, very naturally, you are located at the intersection of being, the intersection of time and space. That means just [a dot]. And you can go any place. Any place.
+But if you see the front, you say, “That’s it.” I don’t think so – because there is a back. But on the other hand, intellectually you can see so, but all you have to do is just accept the good boy if you see the front, totally. 
 
-If you see unenlightened aspect of human life, through and through and deeply from the bottom of your heart, at time it is called *acquired awakening* – so-called *bodhi-mind*, the way-seeking mind. Because un-enlightenment, not-enlightenment, contains enlightenment. 
+So, very naturally, you are located at the intersection of being, the intersection of time and space. That means just [a dot], and you can go any place.
 
-So that’s why, if you really deeply taste the unenlightened aspect of human life, that is the first step to get into the enlightened aspect of the world, so-called *bodhi-mind*. In the technical term, in the next section, it is called *essence of mind*, but I don’t know if *essence of mind* is the right translation. Professor Abe translated [it as] *acquired enlightenment*. And the other term, in relation to *acquired enlightenment*, is *original enlightenment*. Well, next time I would like to explain this, *original enlightenment* and *acquired enlightenment*.
+If you see the unenlightened aspect of human life through and through and deeply from the bottom of your heart, at time it is called *acquired awakening* – so-called *bodhi-mind*, the way-seeking mind. Because un-enlightenment, or not-enlightenment, contains enlightenment. 
 
-Today, anyway, we have understood the characteristic of *alayavijnana*, which has two characteristics, the enlightened aspect and non-enlightened aspect. That is *alayavijnana*. So, from this point, we are living at the intersection of enlightenment and non-enlightenment. 
+So that’s why, if you really deeply taste the unenlightened aspect of human life, that is the first step to get into the enlightened aspect of the world, so-called *bodhi-mind*. In the technical term, in the next section it is called *essence of mind*, but I don’t know if *essence of mind* is the right translation. Professor Abe translated it as *acquired enlightenment*. And the other term, in relation to *acquired enlightenment*, is *original enlightenment*. Well, next time I would like to explain this, *original enlightenment* and *acquired enlightenment*.
 
-So, if you see enlightenment very deeply, you will be an enlightened person. And on the other hand, if you see deeply the unenlightened aspect of human life, it is also implication of bodhi-mind; the Implication of stepping inside to, anyway, nirvana or the enlightened world. That’s why bodhi-mind is important for us, awakening is important for us. 
+Today, we have understood the characteristic of *alayavijnana*, which has two characteristics, the enlightened aspect and non-enlightened aspect. That is *alayavijnana*. So, from this point, we are living at the intersection of enlightenment and non-enlightenment. 
 
-That is all I have to say today. So, *alayavijnana* is the term [or] expression of *tathagatagarbha* which is more subjective and more awakening. So [it is] closely related with actual human life, how *tathagatagarbha* works. At that time, we have to research what *tathagatagarbha* is. At that time, tathagatagarbha is ... 
+So, if you see enlightenment very deeply, you [are] an enlightened person. And on the other hand, if you see deeply the unenlightened aspect of human life, it is also the implication of bodhi-mind; the implication of stepping inside... to nirvana, or the enlightened world. That’s why bodhi-mind is important for us, awakening is important for us. 
+
+That’s all I have to say today. So, *alayavijnana* is the term [or] expression of *tathagatagarbha* which is more subjective and more awakening; closely related with actual human life, how *tathagatagarbha* works. At that time, we have to research what *tathagatagarbha* is. 
+
+At that time, tathagatagarbha is ... 
 
 *[Tape break.]*
 
 ... enlightened aspect or non-enlightened aspect. 
 
-Then, you should read these sections. 
+And then you should read these sections:
 
 > The Mind as phenomena (samsara) is grounded on the Tathagata-garbha.
 
 Then very naturally you understand that one. Okay? The mind as phenomena, samsara, the samsaric world – if the mind as samsaric world is [pulled] to individual personal life – at that time, what you can see? What you can see in your mind? 
 
-Can you see only the pure, something pure? Or you can see something stained? Or you can see both? You are a bad boy? Yes... but no. You are a good boy? You can say yes, or no. So, very naturally, the mind as phenomena, if you see the mind in terms of phenomena, samsaric world, it is kind of a combination of good boy and bad boy. Not [really] a combination, but I use the [word] combination now. But this is called *tathagatagarbha*. So, the mind as phenomena is grounded on the *tathagatagarbha*. So, this mind is [...] the fundamental aspect of human life. 
+Can you see only the pure, something pure? Or can you see something stained? Or can you see both? You are a bad boy? Yes... but no. You are a good boy? You can say yes, or no. 
 
-Next, 
+So very naturally, the mind as phenomena, if you see the mind in terms of phenomena, samsaric world, it is kind of a combination of good boy and bad boy. [It’s not really] a combination, but I use the [word] combination now. But this is called *tathagatagarbha*. So, the mind as phenomena is grounded on the *tathagatagarbha*. So, this mind is [...] the fundamental aspect of human life. 
+
+Next:
 
 > What is called the Storehouse Consciousness is that in which “neither birth nor death (nirvana)” diffuses
 harmoniously with “birth and death (samsara)”, [and yet in which both are neither
 identical nor different].
 
-What do you understand this [means]? “Diffuses [harmoniously]”? Do you understand that one? “Diffuses harmony with.” Is that coming together, or separate, scattered? What [does it] mean? “Diffuses harmoniously with.” 
+What do you understand this [means] – “diffuses [harmoniously] with”? Do you understand that? “Diffuses harmony with.” *[He laughs.]* Is that coming together, or separate, scattered? What [does it] mean, “diffuses harmoniously with”?
 
 **Someone:** *[Unintelligible.]* 
 
@@ -162,37 +168,35 @@ What do you understand this [means]? “Diffuses [harmoniously]”? Do you under
 
 So, “diffuses harmoniously with” means? 
 
-**Same person:** Neither scattering nor separate. 
+**Same person:** Neither scattering nor separating. 
 
 **Katagiri Roshi:** Oh, I see. 
 
-**Same person:** Very different, [according to] this. 
+**Same person:** [...] very different, [according to] this. 
 
-**Katagiri Roshi:** I see. Is that the definition? 
+**Katagiri Roshi:** I see. Is that through [the definition]? 
 
-**Someone:** I thought it was [...] interpenetrating... boundless, diffuse. 
+**Someone:** I thought it was like interpenetrating [...] boundless, diffuse. 
 
-Yes. You can see. 
+[...] The boundary that makes them separate diffuses. 
 
-There are boundaries, the boundaries that makes them separate, diffuse. 
+**Katagiri Roshi:** Oh. Separate, scattered. Not scattered. 
 
-**Katagiri Roshi:** Separate, scattered. Not scattered. 
-
-**Same person:** Well, the boundary is taken away, then they merge. 
+**Same person:** Well, if the boundary is taken away, then they merge. 
 
 **Someone else:** Right. 
 
-**Someone:** I think it is more just that idea that the absolute order is diffuse, like broken down, separated out into phenomena. But it has more that idea of diffusion.
+**Someone:** I think it’s more just that idea that the absolute order is diffuse, like broken down, separated out into phenomena. But it has more that idea of diffusion.
 
-**Katagiri Roshi:** Diffusion? Okay. So, and [then] harmoniously means? 
+**Katagiri Roshi:** Diffusion? Okay. If so, then harmoniously means...? 
 
 **Same person:** Harmoniously means [there’s no difference]. [There’s an] integration. 
 
-**Katagiri Roshi:** So, in my understanding, “diffuses harmoniously with” means a kind of to diffuse something without any problems. Just diffuse. That’s what you mean? Or diffusing and also coming together? That’s what you mean? 
+**Katagiri Roshi:** So, in my understanding, “diffuses harmoniously with” means kind of to diffuse something without any problems; just diffuse. That’s what you mean? Or diffusing and also coming together? That’s what you mean? 
 
-**Someone:** Just the [...]. 
+**Someone:** Just [the one thing].
 
-**Katagiri Roshi:** Just the diffuse. Separating. 
+**Katagiri Roshi:** Just the diffuse. Separated. 
 
 **Same person:** Yes. Well, no. Just the... 
 
@@ -200,25 +204,23 @@ There are boundaries, the boundaries that makes them separate, diffuse.
 
 **Same person:** Yes. So, you don’t see either. Anything. 
 
-**Someone:** If a gas diffuses, it spreads out and still is in that space, but in the harmonious way, there can be more than one, they don’t conflict. They’re not separate. 
+**Someone:** If a gas diffuses, it spreads out and it still is in that space, but in the harmoniously, there can be [more than one], but they don’t conflict, they’re not separate. 
 
-**Katagiri Roshi:** Oh I see; I see. 
+**Katagiri Roshi:** Oh I see. So, if so, neither birth nor death, simply speaking, is truth or absolute or pure nature, [...] or consciousness. Beyond human speculation. 
 
-So, if so, neither birth nor death, simply speaking, is truth or absolute or pure nature [...] consciousness. Beyond human speculation. 
+The truth “diffuses harmoniously with samsaric world”. Do you understand that, if I say it like this?
 
-The truth diffuses harmoniously with samsaric world. Do you understand that, if I say so like this?
+**Someone:** The truth with samsaric world diffuses is like they become one; just come exactly together. So, one truth diffuses harmoniously with samsaric means, like there’s dark here in the room, and then there’s a light coming in. Light and darkness together, fuse. So, neither one is perceivable. 
 
-**Someone:** The truth with [samsara] diffuses is like they become one. Just come exactly together. So, one truth diffuses harmoniously with samsaric means, like there’s dark here in the room, and then there’s a light coming in. So light and darkness together. So, neither one is perceivable. 
+**Someone:** I prefer focusing more on fusion, rather than the concept of [diffusion]. 
 
-**Someone:** I prefer focusing more on fusion, rather than the concept of truth. 
-
-*[unintelligible]*
+*[Unintelligible.]*
 
 **Someone:** Well, diffusion and fusion are just the two sides of the same thing. 
 
 **Someone:** But there’s a second half that says, “And yet in which both are neither identical nor different.” That’s the second half of the statement. 
 
-**Someone:** Right. It’s like everybody has a different understanding of ink and water. If you diffuse them, they’re still ink and water. But they’re together. It’s not like there’s ink and water separate. They’re together. But they’re still different. That’s what I say. It’s like the light is the opposite. 
+**Someone:** Right. Just like everybody has a different [understanding of] ink and water. If you diffuse them, they’re still ink and water, but they’re together. It’s not like there’s ink and water separate; they’re together. But they’re still different. That’s what I say. It’s like the light [is the opposite]. 
 
 **Katagiri Roshi:** Yeah. That’s what you mean, huh?
 
@@ -228,13 +230,11 @@ The truth diffuses harmoniously with samsaric world. Do you understand that, if 
 
 **Someone:** Yes. 
 
-**Katagiri Roshi:** So, pretty good... diffuses harmoniously... I have never thought of that one. 
+**Katagiri Roshi:** So, it’s a pretty good term, right? “Diffuses harmoniously”. I have never thought of that one. 
 
-**Someone:** Roshi, I still have a quesrtion, “And yet in which both are neither identical nor different.” 
+**Someone:** Roshi, I still have a question. [...] “And yet in which both are neither identical nor different.” 
 
-**Katagiri Roshi:** Yeah, because you cannot say water and milk is not identical. But even though milk would get into water’s life, it’s not identical because milk and water there. But on the other hand, if you put the milk into the water, it’s not different. That is called harmony. Harmony. 
-
-So that’s why next it says “In which both are neither identical nor different.” Is that alright? Okay?
+**Katagiri Roshi:** Yeah, because you cannot say water and milk is not identical, exactly. But even though milk would get into water’s life, it’s not identical because milk and water are there. But on the other hand, if you put the milk into the water, it’s not different. That is called harmony. So that’s why next it says “In which both are neither identical nor different.” Is that alright?
 
 **Someone:** Is that what the merging of unity and difference is all about? 
 
@@ -242,23 +242,23 @@ So that’s why next it says “In which both are neither identical nor differen
 
 **Same person:** Isn’t the *Sandokai* saying that? 
 
-**Katagiri Roshi:** Yes, merging the difference and the unity, that is exactly same as difference. But in the *Sandokai*, it emphasizes strongly that just fusing aspect, unity, the aspect of the unity. Okay? But this discourse always mentions the panoramic picture of fusing and diffuse. Fuse and diffuse, fuse and diffuse – like this. Comes together, separates, comes together, separates. It’s one, but it’s not one, two. Something like that. Delusion seems to be separate from the pure nature, but it’s not separate. It’s contained within pure nature. Just like [someone] said, you know: gas is separate, the gas is expanded all over. But it’s not disappeared, it’s still there. 
+**Katagiri Roshi:** Yes, merging the difference and the unity, that is exactly same as this. But in the *Sandokai* it’s emphasizing strongly just the fusing aspect, the aspect of unity. Okay? But this discourse always mentions the panoramic picture of fusing and diffuse. Fuse and diffuse, fuse and diffuse – like this. Come together, separate, comes together, separate. It’s one, but it’s not one, two. Something like that. Delusion seems to be separate from the pure nature, but it’s not separate, it’s contained within the pure nature. Just like [someone] said, you know: the gas is expanded all over, but it’s not disappeared, it’s still there. 
 
 Alright. That is so-called *tathagatagarbha*, the meaning of *tathagatagarbha*. And the storehouse consciousness, which is the foundation of all mind, of all life. That is called *storehouse consciousness*, *alayavijnana*.
 
-So it’s not the dualistic. Is that alright? Do you understand? It is not the doctrine of the dualistic. Dualistic is clearly to separate something. A never be B, you know. A never accept B. A is not B, constantly. Alright?
+So it’s not the dualistic. Is that alright? Do you understand? It is not the doctrine of the dualistic. Dualistic is clearly to separate something. A never is B, you know; A never accepts B. A is not B, constantly. Alright?
 
-**Someone:** The problem with the analogy to either milk and water, or ink and water, or gas and air, it seems they seem to be saying though, that if you break down any of those, like milk and water, far enough you’ll find one thing that’s milk and one thing that’s water. But this seems to be saying that no matter how far you break it down, you’ll never find just one molecule of milk and one molecule of gas. 
+**Someone:** The problem with the analogy to either milk and water, or ink and water, or gas and air, they seem to be saying that if you break down any of those far enough, like milk and water, you’ll find one thing that’s milk and one thing that’s water. But this seems to be saying that no matter how far you break it down, you’ll never find just one molecule of milk and one molecule of water. 
 
-**Katagiri Roshi:** Well, intellectually, you can see it. If your discriminating mind begins to know, very naturally the molecule is there, et cetera. But that is the intellectual understanding, the discriminating world. But our life is always something more than intellectual function. Anyway, you must be more active, and you should be right on the train. When you see the train, you shouldn’t miss the train. But the train is always going; you’re just right on. So that is more active. You have to be constantly one with the stream of time: just like being on a jet airplane, you have to be always there. And then you can be in the stream of time, and simultaneously you can create time. You can do something there.
+**Katagiri Roshi:** Well, intellectually, you can see it. If your discriminating mind begins to know, very naturally the molecule is there, et cetera. But that is the intellectual understanding, the discriminating world. But our life is always something more than intellectual function. So you must be more active, and you should be right on the train. When you see the train, you shouldn’t miss the train. But the train is always going; you’re just right on. So that is more active. You have to be constantly one with the stream of time; just like being on a jet airplane, you have to be always there. And then you can be in the stream of time, and simultaneously you can create time, you can do something there.
 
 So that is the relationship between the water and milk. But if you start to investigate intellectually, you can say anything. All right? Is that what you mean?
 
 **Someone:** I’m not sure. 
 
-**Katagiri Roshi:** You’re not? So what is the point you’re saying? 
+**Katagiri Roshi:** You’re not? So what is the point that you said? 
 
-**Same person:** I was trying to say that if you’re right on the train, at any one moment, you can’t say whether it’s either milk or water. 
+**Same person:** I was trying to say that if you’re right on the train, at any one moment you can’t say whether it’s either milk or water. 
 
 **Katagiri Roshi:** Sure. You cannot say. 
 
@@ -266,39 +266,39 @@ So that is the relationship between the water and milk. But if you start to inve
 
 **Katagiri Roshi:** Right. That’s true. 
 
-But in the next section, it says, “This consciousness has two aspects which embrace all states of existence and create all states of existence. They are, the one, the first, the aspect of enlightenment, and the two, the aspect of non-enlightenment.” That’s why this is a little bit different from what you mentioned, okay? If you’re right on, you don’t know what’s going on there. Well, it doesn’t mean you don’t know. There is no space to poke your head into, so you just be there. But in this case, a little bit we are investigating how *tathagatagarbha* works. That’s why it’s [...] intellectual here. [...] That’s why it has the foundation of your life in two aspects working together, in the stream of process. In the stream of process we have to be right on constantly. But that is practically speaking, that is practical aspect of your life. But on the other hand, we have to research, we want to know, well, how it works. That’s why this book starts to analyze. 
+But in this section next it says, “This consciousness has two aspects which embrace all states of existence and create all states of existence. They are, first, the aspect of enlightenment, and second, the aspect of non-enlightenment.” That’s why this is a little bit different from what you mentioned: if you’re *right on*, you don’t know what’s going on there. It doesn’t mean you don’t know. There is no space to poke your head into, so you just be there. But in this case, a little bit we are investigating how *tathagatagarbha* works. That’s why it’s a little bit intellectual here. That’s why it has the foundation of your life is two aspects working together, in the stream of process. In the stream of process we have to be right on constantly. But that is the practical aspect of your life. But on the other hand, we have to research, we want to know how it works. That’s why this book starts to analyze. 
 
-Because human beings, we always judge ourselves as “bad”. If you see yourself bad, that’s it. But that is not the right understanding. Because if you always judge yourself bad, then there is no chance to grow in the future. So very naturally we have to understand what’s the foundation? What is the foundation of your life? What’s characteristic of your foundation? What kind of structure is there? That is really two things always diffusing harmoniously with each other. That’s why if you see bad aspect of human life is contained [within] good [aspect]. 
+Because human beings, we are always judging ourselves as “bad”. If you see yourself as bad, that’s it. But that is not the right understanding – because if you always judge yourself bad, then there is no chance to grow in the future. So very naturally we have to understand, what is the foundation of your life? What’s the characteristic of your foundation? What kind of structure is there? That is really that two things are always diffusing harmoniously with each other. That’s why if you see the bad aspect of human life, [it] is contained with good aspect, simultaneously.
 
 Do you have another question? 
 
-Okay. So next, “A”, page 37, “The Aspect of Enlightenment”.
+Okay. So next, “A”, page 37, “The Aspect of Enlightenment”...
 
 **Someone:** Hojo-san?
 
 **Katagiri Roshi:** Hai.
 
-**Same person:** *[Unintelligible]* and he’s doing this, you know, and why that term is used to express the ... the foundation of existence in the phenomenal world. 
+**Same person:** The term “storehouse”, I don’t understand why that term is used to express the concept of ... the foundation of existence in the phenomenal world. 
 
-**Katagiri Roshi:** Well, that is tradition and in the development of Buddhist teachings. Before this book was published, there was another teaching, so-called *Vijñānavāda*, the *discourse on merely consciousness*. That discourse on merely consciousness uses this term *alayavijnana* as a foundation of human consciousness. That is [the] eighth consciousness we call *alayavijnana*. That’s why this discourse that uses that term. 
+**Katagiri Roshi:** Well, that is tradition, and the development of Buddhist teaching. Before this book was established, there was another teaching, so-called *Vijñānavāda*, the *Discourse on Merely Consciousness*. That *Discourse on Merely Consciousness* uses this term *alayavijnana* as a foundation of human consciousness; that is [the] eighth consciousness, that we call *alayavijnana*. That’s why this discourse that uses that term. 
 
-But *alaya* means kind of holy – so holy consciousness. But holy consciousness doesn’t mean it’s always holy. *[He chuckles.]* 
+But *alaya* means kind of “holy” – so “holy” consciousness. But “holy consciousness” doesn’t mean it’s always holy. *[He chuckles.]* 
 
-**Someone:** How is it translating “holy” into “storehouse”? You’ve been using the word storehouse.
+**Someone:** How is it translating “holy” into “storehouse”? You’ve been using the word “storehouse”.
 
-**Someone:** Isn’t there a sort of [...] idea of an embryo or potential. The potential for both?
+**Someone:** Doesn’t that sort of go with the idea of an embryo or potential – the potential for both?
 
-**Katagiri Roshi:** Because the holiness contains the something, always. Contains the something, in terms of *Vijñānavāda*, *shuji* means “seed”. [...] 
+**Katagiri Roshi:** Because the holiness contains something always. In terms of *Vijñānavāda*, it’s called *shuji*, which means “seed”.
 
 **Someone:** The seeds are in the storehouse? 
 
-**Katagiri Roshi:** In the storehouse, always. That’s the consciousness storehouse, storehouse consciousness. So we have lots of things. 
+**Katagiri Roshi:** In the storehouse, always. That’s why “consciousness storehouse”, “storehouse consciousness”. So we have lots of things. 
 
-**Someone:** And that would be seeds for enlightenment and also for... 
+**Someone:** And that would be seeds for enlightenment and also for non-enlightenment?
 
-**Katagiri Roshi:** Sure. Yes. Many seeds. 
+**Katagiri Roshi:** Sure! Yes. *Many* seeds. 
 
-**Someone:** And then the whole concept of *alayavijnana*, [...] we talked about [...] how that is different from the absolute, one, or truth?
+**Someone:** And then the whole concept of *alayavijnana*, [...] we talked about [...] how that is different from the absolute order, or truth?
 
 **Katagiri Roshi:** Truth. Truth is more the abstract, metaphysical term. 
 
@@ -308,15 +308,15 @@ But *alaya* means kind of holy – so holy consciousness. But holy consciousness
 
 **Someone:** So like how we fit into...
 
-**Katagiri Roshi:** Yes. At that time, it is called the “in terms of pure nature of the mind,” et cetera. Or according to this, “the mind in terms of truth.” Something like that. 
+**Katagiri Roshi:** Yes. At that time, it is called “the intrinsic pure nature of the mind”, et cetera. Or according to this, “the mind in terms of truth”. Something like that. 
 
-And also it must be more closely subjective and awakening. At that time it is called *alayavijnana*. “Vijnana” means consciousness. “Alaya” consciousness. Storehouse consciousness. 
+And also it must be more closely subjective and awakening. At that time it is called *alayavijnana*. “Vijnana” means consciousness – “alaya” consciousness, storehouse consciousness. 
 
-**Someone:** So by connecting that to ourself, it’s subjective, that gives people more hope. 
+**Someone:** So by connecting that to ourselves, it’s subjective, that gives people more hope?
 
-**Katagiri Roshi:** Hope? Yes. The concept of “alayavijnana” gives some more hope, more deep understanding of the structure of foundation, human foundation of being. 
+**Katagiri Roshi:** Hope? Yes. The concept of “alayavijnana” gives some more hope, more deep understanding of the structure of the foundation of [human] being. 
 
-In other words, they should be free, anyway. Free from any particular idea – “bad boy” or “good boy.” Alright?
+In other words, it lets you be free, anyway. Free from any particular idea – “bad boy” or “good boy”. Alright?
 
 #### 1:06:58 end of recording
 
