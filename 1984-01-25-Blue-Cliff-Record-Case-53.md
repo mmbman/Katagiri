@@ -15,7 +15,7 @@ title: "Blue Cliff Record Case 53: Pai Chang’s Wild Ducks"
 
 #### 0:00
 
-**Katagiri Roshi:* The fifty-third case: “Pai Chang’s Wild Ducks”. ... Would you read the pointer and case.
+**Katagiri Roshi:* The fifty-third case: “Pai Chang’s Wild Ducks”. [Robert,] would you read the pointer and case.
 
 **Reader:*
 
@@ -33,101 +33,99 @@ Case:
 
 The pointer says,
 
-> The whole world does not hide it – his entire capacity stands alone revealed.
+> The whole world doesn’t hide it – his entire capacity stands alone revealed.
 
-“Whole world” means the truth. *Truth* is that which exists constantly beyond whether you accept or refuse, whether you believe in or not, whether you take it or throw it away. This is truth. So that truth is constantly omnipresent wherever you may go. That’s why it says the world doesn’t hide it: it is always manifested, wherever it may go. How? It always manifests itself as each phenomena: trees, birds, rivers, human beings. 
-
-That’s why it says the “whole world doesn’t hide it – his entire capacity stands alone revealed.” 
-
-So “his entire capacity” means the capacity of the whole world, the capacity of the truth. The capacity of the truth manifests itself within individual life: within the life of trees, within the life of birds. 
+“Whole world” means the truth. *Truth* is that which exists constantly, beyond whether you accept or refuse, whether you believe in it or not, whether you take it or throw it away. This is truth. So that truth is constantly omnipresent wherever you may go. That’s why it says “the world doesn’t hide it”: it is always manifested, wherever it may go. How? It always manifests itself as each phenomena: trees, birds, rivers, human beings. That’s why it says here the “whole world doesn’t hide it – his entire capacity stands alone revealed.” So “his entire capacity” means the capacity of the whole world, the capacity of the truth. The capacity of the truth manifests itself within individual life: within the life of trees, within the life of birds. 
 
 > He encounters situations without getting stuck – with every move he has the ability to assert himself. 
 
-In order to assert himself, in order to assert yourself, we have to see thoughts, phenomena which are manifested in the light. And also phenomena are not phenomena, because phenomena are based on the truth, equality, which means “the whole world doesn’t hide it”. 
+In order to assert yourself, you have to see thoughts, phenomena – which are manifested in the light – and also phenomena are not phenomena, because phenomena are based on the truth, equality; which [is the meaning of] “the whole world doesn’t hide it”. So “he encounters the situation without getting stuck”: You cannot be stuck with either one of them. 
 
-So “he encounters the situation without getting stuck”: You cannot be stuck with either one of them. So-called phenomena: if you see phenomena, you cannot believe in phenomena which is something real. If you see the form of dance, you cannot be stuck with only the form of dance. You have to see something more than form of dance shown by the performance, dancer. That is called “beauty of art”. But we don’t know what’s the beauty of art, because it doesn’t have any color, smell. Only when you have your own eyes, you can see it, but if you don’t have them, you cannot see it. That’s why the dancer, and also audience who are interested in dance, very naturally try to practice, to understand how beautiful dance is. In order to practice, even though you don’t understand, you have to continually see the dance again and again. This is one of the practices. As a dancer, you have to constantly practice every day, according to the teacher’s suggestions. Regardless of whether why you have to do this way or that way, you have to practice. Because you as a dancer cannot perform dance [as] just a form of dance. You have to perform dance as a form but simultaneously as the beauty of dance, within the form of dance. That’s why you cannot be stuck with either one of them. You cannot always manifest the best beauty of the dance without the form of dance. So you have to use the form of dance, which is constantly changing, appearing and disappearing, just like a bubble. If the form of dance is just like a bubble, is it not so important? Can you ignore it? No, you cannot ignore it. So you have to use with your best, you have to perform the form of dance as it really is. And then you have to manifest the beauty of dance. 
+So-called *phenomena*: if you see phenomena, you cannot believe in the phenomena which is something real. If you see the form of dance, you cannot be stuck with only the form of the dance. You have to see something more than the form of dance shown by the performance, dancer: that is called “beauty of art”. But we don’t know what the beauty of art is, because it doesn’t have any color, or smell. Only when you have your own eyes, you can see it. If you *don’t* have [your own eyes], you cannot see it. That’s why the dancer, and also audience who are interested in dance, very naturally try to practice: to understand how beautiful dance is. 
 
-So that is why he says, “He encounters situations without getting stuck...” Whatever you do – washing your face, even when you walk on the street – and see the encounter, the situation, so-called severe weather, winter, or trees on the mountains in the severe weather. You cannot handle the severe weather, so-called winter, Minnesota winter, according to your feeling and emotions. If you deal with winter like this, you cannot live here. *[Laughter.]* But make your mind calm and see the severe winter. It’s beautiful! You have never known before. 
+In order to practice, even though you don’t understand, you have to continually see the dance, again and again. This is one of the practices as a dancer: you have to constantly practice every day, according to the teacher’s suggestions. Regardless of whether you have to do it this way or that way, you have to practice. Because you as a dancer cannot perform dance [as] just a form of dance; you have to perform dance as a form but simultaneously as the beauty of dance *within* the form of dance. That’s why you cannot be stuck with either one of them. 
+
+You cannot always manifest the beauty of dance without the form of dance; so you have to use the form of dance which is constantly changing, appearing and disappearing, just like a bubble. If the form of dance is just like a bubble, is it not so important? Can you ignore it? No, you cannot ignore it. So you have to use [it] with your best, you have to perform the forms of dance as they really are. And then you have to manifest the beauty of dance. 
+
+So that is why it says here, “He encounters situations without getting stuck.” Whatever you do – washing your face, even when you walk on the street – and encounter the situation so-called severe weather, winter, [like] trees on the mountains in the severe weather. You cannot handle the severe weather, so-called Minnesota winter, according to your feeling and emotions. If you deal with winter like this, you cannot live here. *[Laughter.]* But make your mind calm and see the severe winter. It’s beautiful! You have never known it before. 
 
 I have been already ten years in Minnesota: gradually I understand. *[Laughter.]* I love very much severe winter. And each different change of the seasons are really beautiful in Minnesota. 
 
-So you have to see severe winter in terms of your emotions and feelings, but simultaneously you have to see the winter with the whole universe, the rhythm of nature. That is beautiful. It’s really beautiful. Because it’s completely beyond your feelings and emotions, et cetera. 
+So you have to see severe winter in terms of your emotions and feelings, but simultaneously you have to see the winter with the whole universe, the rhythm of nature. That is beautiful; it’s *really* beautiful. Because it’s completely beyond your feelings and emotions, et cetera. 
 
-So, “He encounters situations without getting stuck – with every move, he has the ability to assert himself.” And then at that time, wherever you may go, when you are in the severe winter, you can really have the ability to assert yourself – if you understand severe winter in terms of your feelings and also *beyond* your feelings. Because even the one tree always manifests itself as it really is, but simultaneously it shows the huge rhythm of nature. That’s why if you see the trees, you really feel [it is] beautiful, and appreciate it. 
+So, “He encounters situations without getting stuck – with every move, he has the ability to assert himself.” And then at that time, wherever you may go, when you are in the severe winter you can really have the ability to assert yourself, if you understand severe winter in terms of your feelings and also *beyond* your feelings. Because even if one tree always manifests itself as it really is, simultaneously it shows the huge rhythm of nature. That’s why if you see the trees, you really feel [it is] beautiful, and appreciate it. 
 
-So, very naturally, if you understand like this, if you understand trees, severe weather, and autumn, summer, spring, like this, you really can have a great ability to assert yourself. That is what is called rest; peace. That’s why the last sentence says:
+So very naturally, if you understand like this – if you understand trees, severe weather, and autumn, summer, spring, like this – you really can have a great ability to assert yourself. That is what is called rest; peace. That’s why the last sentence says:
 
 > .... in the end, where do the Ancients go to rest? 
 
 In other words, where is the peace? Where is the real relaxation? 
 
-I went to the college two days ago to talk about relaxation. *[He laughs.]* Well, anyway, you have to research: what is real relaxation? What is real peace? Even if you understand like this – intellectually you understand pretty well; if I say so, again and again, if you listen to it like this, then you really understand it – still, it’s pretty hard for us to get the peace and rest and relaxation. Where is it? 
+I went to the college two days ago to talk about relaxation. *[He laughs.]* Well, anyway, you have to research: what is real relaxation? What is real peace? Even if you understand like this – intellectually you understand pretty well; if I say so, again and again, if you listen to it like this, then you really understand it – but still, it’s pretty hard for us to get the peace and rest and relaxation. Where is it? 
 
-This is our practice, every day. When you stand up, there is peace, real relaxation there. When you wash your face, there is rest, perfect rest, perfect peace, perfect harmony, relaxation there. And then, you can really assert yourself, appreciate yourself. From this situation, you can really feel gratitude. Otherwise, it’s very difficult to find the relaxation. Even though you try to have relaxation through exercise, and jogging, and from the diet, et cetera, still you don’t have real rest or real peace, real harmony, relaxation. So, in your whole life, you have to research where is rest, where is the peace. 
+This is our practice, every day. When you stand up, there is peace, real relaxation there. When you wash your face, there is rest, perfect rest, perfect peace, perfect harmony, relaxation there. And then, you can really assert yourself, appreciate yourself. From this situation, you can really feel gratitude. 
 
-> In his phrases there is no partiality – ...
+Otherwise, it’s very difficult to find the relaxation. Even though you try to have relaxation through exercise, and jogging, and from the diet, et cetera, still you don’t have real rest or real peace, real harmony, relaxation. 
 
-So, whatever you say, “in his phrases, there is no partiality” means his words directly hit the human heart. 
+So in your whole life, you have to research where is rest, where is the peace. 
 
-[...]
+> In his phrases there is no partiality – 
 
-Phrases means not only the words, but also your actions with your body, your actions with your mouth, or with your silence, or with your mind. This is all actions, all phrases. Even silence has lots of phrases, words. So, silence is really [pure], hitting people’s hearts, if you practice yourself on an everyday basis, understanding trees and also the whole nature behind the trees. At that time, even though you face directly the trees, without saying, without composing a poem, just stand up, but people are really impressed by the trees. So, people are really appreciated, really moved by your presence. 
+So, whatever you say, “in his phrases there is no partiality” means his words directly hit the human heart. [...]
+
+“Phrases” means not only the words, but also your actions with your body, your actions with your mouth or with your silence, or with your mind. This is all actions, all phrases. Even silence has lots of phrases, words. So, silence is really [piercing], hitting people’s hearts, if you practice yourself on an everyday basis, understanding trees and also the whole nature behind the trees. At that time, even though you directly face the trees without saying [anything], without composing a poem, just standing up, [still] people are really impressed by the trees, people are really moved by your presence. 
 
 > ... everywhere he has the intention to kill people.
 
-“To kill people” means to awaken the people, to awaken to people and also to make their life alive, that is “to kill”. To cut off the kind of tanglements of human delusions, and then let him go straight. “Make him go straight” means to stand up straight and make their life alive. 
+“To kill people” means to awaken the people, to awaken to people and also to make their life alive. That is “to kill”: to cut off the kind of entanglements of human delusions, and then let him go straight. “Let him go straight” means to stand up straight and make their life alive. When he washes his face, he has to awaken to his situation, his circumstances, and stand up straight, walk straight. That is completely to “kill” people, because you cannot insert your own ideal, your own standard [...] into it. 
 
-When he washes his face, he has to awaken to his situation, his circumstances, and stand up straight, walk straight. That is completely to kill people, because you cannot insert your own ideal, your own standard [...] into it. 
-
-> But say, in the end, where do the Ancients go to rest? To test I’m citing this old case: look!
+> But say, in the end, where do the Ancients go to rest? To test I am citing this old case: look!
 
 #### 19:27
 
 > Once when Great Master Ma and Pai Chang were walking together they saw some wild ducks fly by. The Great Master asked, “What is that?” Chang said, “Wild ducks.” The Great Master said, “Where have they gone?” Chang said, “They’ve flown away.” The Great Master then twisted Pai Chang’s nose. Chang cried out in pain. The Great Master said, “When have they ever flown away?”
 
-This is simple stories, pretty usual stories. 
+This is a simple story, pretty usual story. 
 
-Who can say why Pai Chang Zen Master asked like this? Could say something about why he asked like this?
+Who can say why Pai Chang Zen Master asked like this? Could you say something about why he asked like this? [Why] Zen master Ma Tsu and Pai Chang were just walking together, and he asked like this?
 
-Zen master Ma Tsu and Pai Chang were just walking together, and he asked like this. If you read the Agamas also, Shakyamuni Buddha always teaches like this, according to circumstances and opportunity when they met. For instance, when Shakyamuni Buddha walked with a disciple by the river, they saw a whirlpool in the river. And he pointed to the whirlpool and said [something] about human suffering. Buddha explains like this, and also in this case, also the same thing. Zen master Ma Tsu and Pai Chang walked together, saw the wild ducks, and he uses the circumstances and opportunity to talk about – what? Can you say?
+If you read the *agamas*, Shakyamuni Buddha also teaches like this: according to circumstances and opportunity, when they meet. For instance when Shakyamuni Buddha walked with a disciple by the river, and they saw a whirlpool in the river, he pointed to the whirlpool and said [something] about human suffering. Buddha explains like this, and also this case is the same thing: Zen master Ma Tsu and Pai Chang walk together, see the wild ducks, and he uses the circumstances and opportunity to talk about... what? Can you say?
 
 Anything is okay... *[Laughter.]*
 
-**Someone**: Maybe something about impermanence. Chang says they are flying away. But the Ma says, are they really?
+**Someone**: Maybe something about impermanence. Chang says they are flying away. But Ma says, are they really?
 
-**Katagiri Roshi**: Pretty good. 
+**Katagiri Roshi**: Mm-hmm. Pretty good. 
 
 Do you have an idea?
 
-**Someone:** It’s like the case a couple back where he said, “This is it,” and he says, “What is that?” Pai Chang says wild ducks. 
+**Someone:** Well, it’s like the case a couple back where he said, “This is it,” and he says, “What is that?” Pai Chang says wild ducks. 
 
 **Katagiri Roshi:** Yes... but what is that? 
 
-*[Laughter.]
+*[Laughter.]*
 
 **Someone:** Wild ducks. 
 
-**Katagiri Roshi:** Wild ducks. In other words, can you say about “What is it?” or “duck”? That’s a different word.
+**Katagiri Roshi:** Wild ducks. In other words, can you say [something] about the “what is it” or “duck”, [in different words]?
 
-**Someone:** When he indicates the wild ducks floating away, ... he indicates impermanence. But when he turns to him and tweaks his nose, [...] it indicates that although situations are always fluid, they have a certain sameness. In other words the situation is always moving, but there is a sameness there. [...]
+**Someone:** When he indicates the wild ducks floating away, ... he indicates impermanence. But when he turns to him and tweaks his nose, and says “when do they fly away,” it indicates that although situations are always fluid, they have a certain sameness. In other words the situation is always moving, but there is a sameness there. [...]
 
 **Katagiri Roshi:** Um, yes, that’s a possibility. That’s pretty good. 
 
-The pointer says here, I explained, in the first line, “The whole world does not hide it – his entire capacity stands alone revealed.” That means the truth is no colors, no smells, but according to the Sandokai, the spiritual source shines clearly in the light. That means that truth is no color, no smell, but that’s why the truth can manifest itself everywhere. With the table, with human beings... and also that’s why he says, “entire capacity stands alone revealed.” Whatever it is, it’s alive. 
+The pointer says here, I explained, the first line says, “The whole world does not hide it – his entire capacity stands alone revealed.” That means the truth is no colors, no smells, but according to the Sandokai, “the spiritual source shines clearly in the light”. That means that truth is no color, no smell, but that’s why the truth can manifest itself *everywhere*. With the table, with the human beings... that’s why he says, “entire capacity stands alone revealed.” Whatever it is, it’s alive. 
 
-So, that is a point of this koan. 
-
-Master Ma-tsu really wanted Pai Chang to awaken to that situation, that point. The whole truth. Truth is really vague;. you don’t understand what the truth is, you cannot grasp it, but it’s working. It’s not something apart from us, it’s always manifested, working, functioning with us, with all sentient beings. That point [is what] Zen Master Master Ma-tsu wanted to say. 
+So that is a point of this koan. Master Ma-tsu really wanted Pai Chang to awaken to that situation, that point: the whole truth. “Truth” is really vague; you don’t understand what the truth is, you cannot grasp it. But it’s working. It’s not something apart from us, it’s always manifested, functioning with us, with all sentient beings. That point [is what] Zen Master Ma Tsu wanted to say. 
 
 So of course you can understand the flying away is implication of impermanence; that’s fine. But this is why the pointer says it like this. 
 
-So, from this point, dark is the implication of truth. “The whole world doesn’t hide it”, it’s always manifested in everywhere. “The spiritual source shines clearly in the light.” *Light* means phenomena; [it is] in the phenomena, always. And the Sandokai says, “The branching streams flow into the darkness.” *Darkness* means the truth. So always interconnected, interconnected – simultaneously. 
+So, from this point, *wild duck* is the implication of truth. “The whole world doesn’t hide it”: it’s always manifested in everywhere. “The spiritual source shines clearly in the light.” *Light* means phenomena; [it is] in the phenomena, always. And the Sandokai says, “The branching streams flow into the darkness.” *Darkness* means the truth. So always interconnected, interpenetrated, simultaneously. 
 
-And also, another point is, the truth, the spiritual source shines clearly in the phenomena. So that means truth is always existing in the phenomena. Simultaneously, “phenomena always flows into the darkness” means always truth. So you cannot grasp the phenomena as phenomena, because it’s always flowing into the darkness, truth. It means all phenomena, human body, human mind – no mind, no colors, [...] no eyes, no ears. We always chant [this]. Very naturally, strictly speaking, human body, human mind, all sentient beings, flow into darkness – that means the truth. So-called emptiness. Or emptiness means *boundlessness*, or *countlessness*, or *eternity*, we can say. Or, *full presence*. We can say so. Full presence, full working, full dynamic working – that is the source, spiritual source. 
+And another point is: the truth, the spiritual source, shines clearly in the phenomena – so that means truth is always existing in the phenomena – simultaneously, “phenomena always flows into the darkness” means always truth. So you cannot grasp the phenomena as phenomena, because it’s always flowing into the darkness, truth. It means all phenomena – human body, human mind – no mind, no colors, [...] no eyes, no ears. We always chant [this]. Very naturally, strictly speaking, human body, human mind, all sentient beings, flow into darkness – that means the truth. So-called *emptiness* – or emptiness means *boundlessness*, or *countlessness*, or *eternity*, we can say. Or, *full presence*. We can say so. Full presence, full working, full dynamic working – that is the source, spiritual source. 
 
-So you cannot grasp it: “this is a nose,” “this is a wild duck”. 
+So you cannot grasp it: “this is a nose,” “this is a wild duck”. Both truth and wild duck, wild duck and also Pai Chang, [are] always working together. 
 
-So, both truth and wild duck, wild duck and also Pai Chang [are] always working together. Working together – where? Always working together, interconnected, interpenetrated – you can’t separate them. Where is the point which you cannot separate? Where is it? You cannot separate truth or phenomena. Where is it? 
+Working together – where? Always working together, interconnected, interpenetrated – you cannot separate them. But where is the point which you cannot separate? Where is it? You cannot separate truth or phenomena. Where is it? 
 
 **Someone:** Only in how we perceive it. You know, through mind we create a dualistic gap. 
 
@@ -143,19 +141,19 @@ So, both truth and wild duck, wild duck and also Pai Chang [are] always working 
 
 **Someone:** Right here. 
 
-**Katagiri Roshi:** Right here! Pretty good. Right here and now, that is *moment*. That moment is – if all things come together at a moment, within a moment, and then, what is the point? What is the moment? 
+**Katagiri Roshi:** Right here! Pretty good. Right here and now, that is *moment*. That moment is – if all things come together at a moment, and then within a moment, what is the point? What is the moment? 
 
 *[Laughter.]*
 
 **Someone:** Just this.
 
-**Katagiri Roshi:** Just this! Nothing. You cannot pin down “this is a wild duck” or “this is Pai Chang”; you cannot say so. Just a moment. The moment is moving pretty slow – do you think so? *[Laughter.]* Or pretty quick? At super-speed. 
+**Katagiri Roshi:** Just this! Nothing. You cannot pin down “this is a wild duck” or “this is Pai Chang”; you cannot say so. Just the moment. Is the moment moving pretty slow – do you think so? *[Laughter.]* Or pretty quick? At *super-speed*. 
 
-So, if you think the moment through your head, you can create the length of the moment. At that time, it’s too late – *[he laughs]* – to understand the moment as it really is. Because, if you think the moment through your head, it’s already length of the moment, or width of the moment. The real moment, where the wild duck and Pai Chang come together, working together – there is no length, no width of moment. 
+So, if you think the moment through your head, you can create the length of the moment. At that time, it’s too late to understand the moment as it really is. Because if you think the moment through your head, it’s already length of the moment, or width of the moment. The real moment, where the wild duck and Pai Chang come together, working together – there is no length, no width of moment. 
 
-What is that? What is this? No length, no width. The moment – what is this? Of you, of the wild duck – what is this?
+What is this? No length, no width. The moment – what is this? Of you, of the wild duck – what is this?
 
-**Someone:** That oneness beyond the words. [...] action. 
+**Someone:** That oneness beyond the words. [...] Action. 
 
 **Katagiri Roshi:** Action. Yes. Very undefiled action. Action in a pure sense; exactly. 
 
