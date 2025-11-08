@@ -157,31 +157,33 @@ What is this? No length, no width. The moment – what is this? Of you, of the w
 
 **Katagiri Roshi:** Action. Yes. Very undefiled action. Action in a pure sense; exactly. 
 
-In other words, moment is just like a bottle filled with water. And then, moment is very pure: no colors, no smell. And also, the undefiled is just to put a drop of red ink into it – that is your actions. So, the whole moment, simultaneously, all becomes red. So, moment is very moment, but the whole world becomes red. In other words the whole world is the truth. Truth is omnipresent, just like a bottle filled with water. So, even though you shake it, it doesn’t move, because it’s filled completely. That is the truth – we say *omnipresent*. Wherever you may go, it’s there. So, it doesn’t move, actually. But actually it moves, because it appears in everything: tables, human beings, et cetera. So, when you put a drop of red ink, that moment, immediately, whole world becomes red. That is your action. Your action is red, white, blue – you can put any kind of action. Because the whole world is completely, well, emptiness, boundlessness. Just like life energy. 
+In other words, moment is just like a bottle filled with water. And then moment is very pure: no colors, no smell. And also, the undefiled practice is just you can put a drop of red ink into it – that is your actions. So the whole moment, simultaneously, all becomes red. So, moment is very moment, but the whole world becomes red. In other words the whole world is the truth. The truth is omnipresent, just like a bottle filled with water. Even if you shake it, it doesn’t move, because it’s filled completely. That is the truth – we say *omnipresent*. Wherever you may go, it’s there.
+
+So it doesn’t move, actually. But actually it moves, because it appears in everything: tables, human beings, et cetera. So, when you put a drop of red ink, the moment, immediately the whole world becomes red. That is your action. Your action is red, white, blue... you can put any kind of action. Because the whole world is completely emptiness, boundlessness; just like life energies. 
 
 So, completely beyond words, it is just undefiled practice, undefiled actions, human action. That is called *shujo*: refined practice, refined human action. 
 
-That’s why it says here, in order to awaken that point, so-called undefiled practice, the Zen master Ma-tsu wanted Pai Chang to know what undefiled practice is. So he twists his nose. And then he says “ouch,” he is screaming “ouch.” That screaming “ouch” is one of his undefiled practices. Beyond the wild has duck flown away, or the wild duck is within Pai Chang – whatever you say, it is still an idea. 
+[...] In order to awaken that point, so-called undefiled practice, Zen Master Ma Tsu wanted Pai Chang to know what undefiled practice is. So he twists his nose. And then he screams “ouch.” That screaming “ouch” is one of his undefiled practices. Beyond “the wild has duck flown away”, or “the wild duck is within Pai Chang” – whatever you say, it is still an idea. 
 
-“Wild duck has flown away”, means, in a sense, truth is omnipresent. So, truth, whatever it is, is always moving. Wherever you may go. But “that truth is not flown away” completely means it doesn’t separate from you, because that wild duck as truth is always present in individual life. 
+“Wild duck has flown away”, means, in a sense, truth is omnipresent. So whatever it is, truth is always moving. Wherever you may go. But “that truth is not flown away” completely means it doesn’t separate from you, because that wild duck as truth is always present in individual life. 
 
-Where is it? Both come together, wild duck and human being come together. This is a moment, or we say, real reality you are present in. Real reality is exactly there. So that’s why you cannot understand exactly what’s going on there.
+Where is it both come together; [where] wild duck and human being come together? This is a moment, or we say “real reality you are present in.” Real reality is exactly there. So that’s why you cannot understand exactly what’s going on there.
 
-But at best as we can, we have to make our mind calm and know it. This is our responsibility too, ok? But on the other hand, we don’t understand it exactly, because [of the bottomlessness] of human life. 
+But at best as we can, we have to make our mind calm and know it. This is our responsibility too, okay? But on the other hand, we don’t understand it *exactly*, because [of the bottomlessness] of human life. 
 
 But you cannot leave everything to the bottomlessness of human life; no. If you do that, your life becomes messy. You have to know what’s going on, with your best. 
 
-So, the twisting his nose is an implication of awareness of real reality, the moment – where the truth and phenomena come together, interpenetrated, interwoven, interacting constantly, dynamically. 
+So, twisting his nose is an implication of awareness of real reality, the moment: where the truth and phenomena come together, interpenetrated, interwoven, interacting constantly, dynamically. 
 
 *[Tape change.]*
 
-... The question is, are trees the moment or real reality, where moment ... where a tree stands straight in the mountains in severe winter days, with real reality, completely beyond the word, combination of the truth or phenomena, or severe winter, you can’t say so. Nothing to say. 
+... question is, are trees the moment or real reality, where a tree stands straight in the mountains in severe winter days, with real reality, completely beyond the word, combination of “the truth” or “phenomena” or “severe winter”, you can’t say so. Nothing to say. 
 
-But if you see the trees exactly, you can see the tree as a tree, but simultaneously you can see whole world, that’s why you can see the exquisitely beautiful being of a tree, because trees’ life always tells us what real reality is, what the moment is. 
+But if you see the trees, exactly you can see the tree as a tree, but simultaneously you can see whole world. That’s why you can see the exquisitely beautiful being of a tree; because trees’ life always tells us what real reality is, what the moment is. 
 
-So, within a moment, there is no excuse, no word. But *no word* constantly teaches us how beautiful it is. Teaching about what? Truth. The word, so-called nature, rhythm of nature, and also tree’s individual life. Both, simultaneously, there; interconnected, interpenetrated. That’s why, even though you don’t understand, if you are a human being, you are really moved by this tree. What is a real reality, what is the moment of the tree? Moment of the tree is just to stand up. So, it’s very pure practice: just stand up. Constantly just achieving continuation of just standing. Constantly. 
+So, within a moment, there is no excuse, no word. But *no word* constantly teaches us how beautiful it is. Teaching about what? Truth. The big world, so-called nature, rhythm of nature, and also the tree’s individual life. Both are simultaneously there; interconnected, interpenetrated. That’s why, even if you don’t understand, if you are a human being, you are really moved by this tree. 
 
-That’s very simple practice. But it’s very beyond your feeling, beyond the feeling of the tree, feeling of the weather – standing. That is so-called *beauty of art*, *beauty of nature*. We can see that. 
+What is that real reality, what is the moment of the tree? Moment of the tree is just to stand up. So, it’s very pure practice: just stand up. Constantly just achieving continuation of just standing. Constantly. That’s very simple practice. But it’s  beyond your feeling – beyond the feeling of the tree, feeling of the weather. Anyway, standing. That is so-called *beauty of art*, *beauty of nature*. We can see that. 
 
 #### 41:49
 
@@ -189,11 +191,11 @@ So finally:
 
 > The Great Master said, “When have they ever flown away?”
 
-So you cannot say when. Where is the wild fuck? Where is Pai Chang? The moment when you think so, the wild duck is gone. *[He chuckles.]* If you don’t say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. Basic nature of real reality you are standing in there is completely no comment. All you have to do is, you just be there. 
+So you cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. There basic nature of real reality [where] you are standing there is completely no comment. All you have to do is, you just be there. 
 
-How do we know? It’s pretty hard. That’s why the Zen master twists his nose, and immediately crying and pain comes up. That is really pure, undefiled practice; completely beyond. Does that sound come from the wild duck? That sound comes from where? Pai Chang? No way. If you think so, that is your speculation. 
+How do we know? It’s pretty hard. That’s why the Zen master twists his nose, and immediately crying and pain comes up. That is really pure, undefiled practice; completely beyond. Does that sound come from the wild duck? That sound comes from where? Pai Chang? No way. If you think so, that is *your* speculation. [It’s] just a scream. 
 
-Just a scream. Well, “just a scream” means just scream. If so, if you think so, wherever you may go, just scream. You cannot do that. When you have to scream, or when you shouldn’t scream, we have to think that. But, sometimes you can scream. Because if you scream in a pure sense, scream is beautiful. It makes you alive, it makes you awaken to [it]. 
+Well, [if you think] “just a scream” means “just scream” – if you think so, [so] wherever you may go, you just scream – you cannot do that. When you have to scream, or when you shouldn’t scream – we have to think [about] that. But sometimes, you can scream. Because if you scream, in a pure sense, the scream is beautiful. It makes you alive; it makes you awaken to [it]. 
 
 ####  44:05 
 
@@ -214,19 +216,23 @@ That is wild ducks, exactly wild ducks, pointing out what human life is.
 
 > Who knows where they are? 
 
-Wild duck? Who knows? If the truth is within you, who knows? Can you know the truth? Mm-mmm. (No.) The truth knows the truth? Oh, of course – but what’s that, what does it mean? “Truth knows the truth” – what does it mean? It’s not a matter of discussion. “Truth knows truth” is [that] you have to just fully aliveness of your life at the moment. Real reality, that’s all. 
+Wild duck? Who knows? 
 
-So finally, if you think it, immediately the question arises, “who knows?” “Who knows” is – who knows? “Who knows” is nothing to pin down. Only the question is left: who knows? 
+If the truth is within you – who knows? Can we know the truth? Mm-mmm. (No.) “The truth knows the truth”? Oh, of course... but what’s that? What does it mean? “Truth knows the truth” – what does it mean? 
+
+It’s not a matter of discussion. “Truth knows truth” is [that] you have to just [be full] aliveness of your life at the moment. Real reality, that’s all. 
+
+So finally, if you think it, immediately the question arises: “Who knows?” “Who knows” is – who knows? “Who knows” is nothing to pin down. Only the question is left: who knows? 
 
 But “who knows” is a really good suggestion of what real reality is. 
 
 > Ma Tsu saw them coming and they had words with each other,  
 
-So for Ma Tsu Zen master, he knows pretty well what the wild ducks are. And also wild ducks have lots of words even though wild ducks have no colors, no smells, no form, so-called truth. But he knows. Ma Tsu Zen Master knows pretty well. Even the silence – Ma Tsu Zen Master knows how many words silence has. But if you don’t have eyes to see the significance of silence, you don’t see the [many] words within the silence. 
+So for Ma Tsu Zen Master, he knows pretty well what the wild ducks are. And also the wild ducks have lots of words – even though the wild ducks have no colors, no smells, no form, so-called *truth*. But he knows; Ma Tsu Zen Master knows pretty well. Even silence: Ma Tsu Zen Master knows how many words silence has. But if you don’t have eyes to see the significance of silence, you don’t see the [many] words within the silence. 
 
 > He told all about the scene of the clouds on the mountains and the moon over the sea.  
 
-What kind of words do the wild ducks have – what kind of words, Zen Master Ma Tsu knows. Interconnected, interpenetrated with phenomena, so-called Pai Chang. So he told all about the scene of the clouds on the mountains and the moon over the sea – that means the real, dynamic rhythm of the whole world: mountains, rivers, clouds, skies. Like behind the trees standing in the mountains: Tree is not only the one tree, it is the whole word. [The whole world] is alive within the tree, that’s why the tree has lots of words; he can talk with this tree. 
+What kind of words do the wild ducks have? [...] Zen Master Ma Tsu knows: interconnected, interpenetrated with phenomena, so-called Pai Chang. So “he told all about the scene of the clouds on the mountains and the moon over the sea” – that means the real, dynamic rhythm of the whole world: mountains, rivers, clouds, skies. Like [what is] behind the trees standing in the mountains: the tree is not only the one tree, it is the whole word. [The whole world] is alive within the tree. That’s why the tree has lots of words. He can talk with this tree. 
 
 > As before Chang didn’t understand, but said, “They’ve flown away.”  
 
@@ -234,71 +240,71 @@ Because always the truth is moving, omnipresent – whether or not you know or y
 
 > Pai Chang wanted to fly away,  
 
-Because Pai Chang knows pretty who he is, and simultaneously who is Pai Chang, what is the truth within me. So if he understands the truth within him, he doesn’t want to stay with the truth, he doesn’t want to stay with his awareness of the truth, he wants to be free from it. If you get a Ph.D. you want to be free from the Ph.D., because you have to work with the people. 
+Because Pai Chang knows pretty well who he is, and simultaneously who is Pai Chang, what is the truth within [him]. So if he understands the truth within him, he doesn’t want to stay with the truth. He doesn’t want to stay with his awareness of the truth; he wants to be free from it. If you get a Ph.D. you want to be free from the Ph.D., because you have to work with the people. 
 
 > But Ma Tsu held him fast.  
 
-So very naturally Pai Chang wanted to fly away, but immediately Ma Tsu held him fast, because even though you want to be free from it, you cannot forget that degree, Ph.D. So you have to keep the Ph.D., but you cannot stay with the Ph.D. so you have to throw it away, but you cannot forget it. That is the real reality, where you are, how you work with the people, without forgetting the Ph.D., but being free from Ph.D..
+So very naturally Pai Chang wanted to fly away, but immediately Ma Tsu held him fast, because even though you want to be free from it, [still] you cannot forget that Ph.D degree. So you have to keep the Ph.D., but you cannot stay with the Ph.D.; so you have to throw it away, but you cannot forget it. That is the real reality: where you are, how you work with the people. Without forgetting the Ph.D., but being free from Ph.D. And then how you can share your life with people? 
 
-And then how you can share your life with the people? That is where? That is a moment, that is a real reality. How? That is undefiled practice, exactly. 
+That is where? That is a moment. That is a real reality. How? That is undefiled practice, exactly. 
 
 So Ma Tsu held him fast and immediately said:
 
 > Speak! Speak!  
 
-“Speak” means work. Share your life with the people. 
+“Speak” means *work*. *Share* your life with the people. 
 
 Okay. [Is there a question?]
 
 #### 52:07
 
-**Question:** Hojo-san? Before you were making an analogy about how our action colors the whole world, you were talking about water in a bottle, if you put red in it, simultaneously the water becomes red. So I was wondering if we direct ourselves towards saving all sentient beings, does that mean then that the whole world is directed towards saving all sentient beings? 
+**Question:** Hojo-san? Before you were making an analogy about how our action colors the whole world; you were talking about water in a bottle, if you put red in it, simultaneously the water becomes red. So I was wondering, if we direct ourselves towards saving all sentient beings, does that mean then that the whole world is directed towards saving all sentient beings? 
 
 **Katagiri Roshi:** Mm-hmm. The whole world. If you save yourself, the whole world is saved. 
 
-That’s why I say, if you become a Buddha, or if you have your own eyes to see everything as a Buddha. Buddha means you should see the tree as it is, but simultaneously you have to see the whole world. You know? 
+That’s why I say, if you become a Buddha, or if you have your own eyes to see everything as a Buddha. Buddha means you should see the tree as it is, but simultaneously you have to see the whole world. You know? At that time, that is called Buddha. Because the whole world, the whole [of] nature and trees working dynamically. We don’t know what it is; anyway, dynamically it’s working. That is called *Buddha*. That Buddha is philosophically emptiness, because nothing to pin down. But practically speaking, or strictly speaking, or realistically, anyway, the truth, whole nature, and trees [are] working together. 
 
-At that time, that is called Buddha. Because the whole world, whole nature and trees working dynamically. We don’t know what it is; anyway, dynamically it’s working. That is called buddha. That Buddha is philosophically emptiness, because nothing to pin down. But practically, or strictly speaking, or realistically, anyway, the truth, whole nature, and trees working together. 
+So if you have eyes to see that, you can save yourself. Simultaneously, you can save the tree. And simultaneously you can save whole nature. 
 
-So if you have eyes to see that, you can save yourself. Simultaneously, you can save the tree. And simultaneously you can save whole nature. It’s not abstract. It’s a really practical, practical way. 
+It’s not abstract. It’s a really practical, practical way. 
 
 **Same person:** Well then, can I ask another question? 
 
 **Katagiri Roshi:** Mm-hmm.
 
-**Same person:** He’s saying that, like the tree standing on the mountain in the middle of severe winter, this manifests the truth itself. It just stands there. So I wonder about people who we might think are living in self-delusion, living like maybe in the realm of greed, anger and self-delusion. For an example, let’s take like a wino on Hennepin Avenue. We might think that he’s living in delusion. But is that wino too then manifesting truth? And just standing up there, you know, just as he stands there, drinking himself...
+**Same person:** He’s saying that, like the tree standing on the mountain in the middle of severe winter, [it] just manifests the truth itself. It just stands there. So I wonder about people who we might think are living in self-delusion, living like maybe in the realm of greed, anger and self-delusion. For an example, let’s take like a wino on Hennepin Avenue. We might think that he’s living in delusion. But is that wino, too, then manifesting truth? And just standing up there, you know, just as he stands there, drinking himself...
 
 **Katagiri Roshi:** Who is...?
 
 **Someone:** A drunkard.
 
-**Same person:** Yeah, a drunkard.
+**Same person:** Yeah, let’s say a drunkard.
 
 *[Laughter.]*
 
 **Katagiri Roshi:** Yes, totally speaking, he’s also manifesting the truth. So if you have eyes enough to see the broad scale of the universe, well you can learn a lot from that drunkard. Temporarily, for a certain period of time, he is drunk. But I don’t mean he loses the truth. I don’t think so. 
 
-For instance, when you climb the mountains: if you see the mountain in that distance, it’s beautiful, and then you want to climb the mountain. But if you climb the mountain, you don’t feel [it’s] beautiful, because [it’s] hard work, and you don’t like it, and the stones hurting your legs. And so you don’t like the mountain, but I don’t mean the beauty of the mountain is lost. It’s still there. Don’t you think so?
+For instance, when you climb the mountains. If you see the mountain in that distance, it’s beautiful, and then you want to climb the mountain. But if you climb the mountain, you don’t feel [it’s] beautiful, because [it’s] hard work, and you don’t like it, and the stones hurting your legs, and so you don’t like the mountain. But I don’t mean the beauty of the mountain is lost. It’s still there. Don’t you think so?
 
-**Someone:** Is that why Pai Chan wanted to run away? 
+**Someone:** Is that why Pai Chang wanted to run away? 
 
 **Katagiri Roshi:** Oh... Pai Chang knows pretty well the total situation. 
 
-**Same person:** But what you just said of not liking the mountain while you’re climbing it. 
+**Same person:** But what you just said about not liking the mountain while you’re climbing it. 
 
 **Katagiri Roshi:** Mm-hmm. He knows what the mountain is, who is climbing. But all he has to do is completely devote himself to climbing the mountain, becoming one with the mountains. It means he should forget himself. That means fly away. He should forget himself, becoming one with the mountain’s rhythm, life. 
 
-But on the other hand, Zen Master Ma Tsu grasps him, because he cannot forget himself, who is climbing the mountain. Don’t you think so?
+But on the other hand, Zen Master Ma Tsu holds him, grasps him, because he cannot forget himself who is climbing the mountain. Don’t you think so?
 
-So I am here, climbing the mountain, so I cannot forget myself. But if I want to know the real rhythm of life or mountain’s life, I have to completely devote fully of myself to the mountain’s life, constantly. That means fly away. I should fly away; that means forget [from what I’ve done]. Flown away. So on the other hand, the Zen Master grabs him, because don’t forget you. So you are there, fly free from you – that contradiction, but both completely working together. 
+So I am here, climbing the mountain, so I cannot forget myself. But if I want to know the real rhythm of life or mountain’s life, I have to completely devote myself fully to the mountain’s life, constantly. That means fly away; I should fly away. That means forget the wild ducks; flown away. But on the other hand the Zen Master grasps him, because don’t forget *you*. 
 
-Well, that is real reality, or moment. You have to be there, you have to act there. 
+So “you are there”, “fly free from you” – [that contradiction], but both completely working together. Where? That is real reality, or moment. You have to be there, you have to act there. 
 
 That is pretty hard because you have to balance both. How can you balance? Where? Not in the intellectual sense; right in the moment. That’s why it’s pretty hard. That is so-called *practice*. We have to practice. 
 
 #### 59:15
 
-**Question:** Hojo-san, you said when you save yourself simultaneously you save all beings. Is that different than the Bodhisattva vow to allow all beings to cross over first? 
+**Question:** Hojo-san, you said when you save yourself, simultaneously you save all beings. Is that different than the Bodhisattva vow to allow all beings to cross over first? 
 
 **Katagiri Roshi:** Same thing. 
 
@@ -312,7 +318,7 @@ That is pretty hard because you have to balance both. How can you balance? Where
 
 **Katagiri Roshi:** Your own world? Your own world gone?
 
-**Same person:** I’m thinking that you are saying phenomena. It seems to me phenomena is because you feel or accept or anything, that’s why there is phenomena. 
+**Same person:** I’m thinking that you are saying the phenomena – it seems to me phenomena is because you feel or accept or anything, that’s why there is phenomena. 
 
 **Katagiri Roshi:** Mm-hmm. So the world you can see through your six consciousnesses, this is phenomena. Okay?
 
@@ -320,15 +326,15 @@ That is pretty hard because you have to balance both. How can you balance? Where
 
 **Katagiri Roshi:** Yeah, real world... well, I don’t know if it’s the *real* world. *[Laughter.]*
 
-**Same person:** All I can get to, that’s world. 
+**Same person:** Yeah, I mean, all I can get to, that’s [the] world. 
 
 **Katagiri Roshi:** Well, your six consciousnesses believe it is the real world. But strictly speaking it’s not real, it’s *provisional*.
 
 **Same person:** Oh. 
 
-**Katagiri Roshi:** The *provisional* world. *[He laughs.]* But the provisional world – even though you say the world is provisional, well, it’s there, that’s why you can’t ignore [it]. You have to take care of the provisional world. Completely beyond whether it is important or it is not important, because provisional world *exists* here. Do you understand that one? 
+**Katagiri Roshi:** The *provisional* world. *[He laughs.]* But the provisional world... even though you say the world is provisional, well, it’s there. That’s why you can’t ignore [it]. You have to take care of the provisional world, completely beyond whether it is important or it is not important, because the provisional world *exists* here. Do you understand that one? 
 
-**Same person:** There, I mean not only that, but because I’m here and so I can see it exists. 
+**Same person:** I mean not only that, but because I’m here and so I can see it exists. 
 
 **Katagiri Roshi:** Sure. That is provisional existence. 
 
@@ -336,19 +342,19 @@ That is pretty hard because you have to balance both. How can you balance? Where
 
 **Katagiri Roshi:** And then what is your question? 
 
-**Same person:** Well, my question is, I mean, saving others is that same as saving yourself. So I thought, since whole world is yours, I mean, since [...] all the phenomena [...] exists for you because you are here, and making yourself more comfortable is making, well, like saving other people also makes your world better. 
+**Same person:** Well, my question is, I mean, saving others is the same as saving yourself. So I thought, since the whole world is yours, I mean, since [...] all the phenomena [...] exist for you because you are here, and making yourself more comfortable is making... well, like saving other people also makes your world better. 
 
-**Katagiri Roshi:** Uh, in terms of Buddhist teaching, we don’t have a view, so-called “world exists first, before your birth.” Okay?
+**Katagiri Roshi:** In terms of Buddhist teaching, we don’t have a certain view, so-called “world exists first, before your birth.” Okay?
 
 **Same person:** Okay.
 
-**Katagiri Roshi:** “And then you can join the world, and then, so-called birth.” We don’t have such an idea. 
+**Katagiri Roshi:** “... And then you can join the world, and then, so-called birth.” We don’t have such an idea. 
 
 **Same person:** Oh, okay. You don’t... 
 
 **Katagiri Roshi:** Yeah, no. 
 
-**Same person:** Or appear as you. 
+**Same person:** Or appear as you... 
 
 **Katagiri Roshi:** Simultaneously. When you are born, the world appears. Simultaneously. 
 
