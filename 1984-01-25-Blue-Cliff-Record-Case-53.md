@@ -29,7 +29,7 @@ Case:
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-**Katagiri Roshi:* Zen master Ma Tsu in this case was one of the disciples of Nangaku Ejō (Nanyue Huairang). In Japanese we call him Baso Zen Master. Pai Chang was one of the also famous disciples of Baso, Ma Tsu Zen Master. This is a conversation between Zen Master Ma Tsu and Pai Chang when they walked together. 
+**Katagiri Roshi:* Zen master Ma Tsu in this case was one of the disciples of Nangaku Ejō (Nanyue Huairang); in Japanese we call him Baso Zen Master. Pai Chang was one of the disciples of Baso, Ma Tsu Zen Master; [they are both famous]. This is a conversation between Zen Master Ma Tsu and Pai Chang when they walked together. 
 
 The pointer says,
 
@@ -39,15 +39,17 @@ The pointer says,
 
 > He encounters situations without getting stuck – with every move he has the ability to assert himself. 
 
-In order to assert yourself, you have to see thoughts, phenomena – which are manifested in the light – and also phenomena are not phenomena, because phenomena are based on the truth, equality; which [is the meaning of] “the whole world doesn’t hide it”. So “he encounters the situation without getting stuck”: You cannot be stuck with either one of them. 
+In order to assert yourself, you have to see thoughts [or] phenomena which are manifested in the light – and also phenomena are not phenomena, because phenomena are based on the truth, equality. Which [is the meaning of] “the whole world doesn’t hide it”. So “he encounters the situation without getting stuck”: you cannot be stuck with either one of them. 
 
-So-called *phenomena*: if you see phenomena, you cannot believe in the phenomena which is something real. If you see the form of dance, you cannot be stuck with only the form of the dance. You have to see something more than the form of dance shown by the performance, dancer: that is called “beauty of art”. But we don’t know what the beauty of art is, because it doesn’t have any color, or smell. Only when you have your own eyes, you can see it. If you *don’t* have [your own eyes], you cannot see it. That’s why the dancer, and also audience who are interested in dance, very naturally try to practice: to understand how beautiful dance is. 
+So-called phenomena: if you see phenomena, you cannot believe in the phenomena which is something real. If you see the form of dance, you cannot be stuck with only the form of the dance. You have to see something more than the form of dance shown by the performance [or the] dancer: that is called “beauty of art”. But we don’t know what the beauty of art is, because it doesn’t have any color, or smell. Only when you have your own eyes, you can see it. If you *don’t* have [your own eyes], you cannot see it. That’s why the dancer, and also the audience who are interested in dance, very naturally try to practice: to understand how beautiful dance is. 
 
-In order to practice, even though you don’t understand, you have to continually see the dance, again and again. This is one of the practices as a dancer: you have to constantly practice every day, according to the teacher’s suggestions. Regardless of whether you have to do it this way or that way, you have to practice. Because you as a dancer cannot perform dance [as] just a form of dance; you have to perform dance as a form but simultaneously as the beauty of dance *within* the form of dance. That’s why you cannot be stuck with either one of them. 
+In order to practice, even if you don’t understand, you have to continually see the dance, again and again. This is one of the practices as a dancer: you have to constantly practice every day, according to the teacher’s suggestions. Regardless of whether you have to do it this way or that way, you have to practice. Because you as a dancer cannot perform dance [as] just a form of dance; you have to perform dance as a form but simultaneously as the beauty of dance *within* the form of dance. 
 
-You cannot always manifest the beauty of dance without the form of dance; so you have to use the form of dance which is constantly changing, appearing and disappearing, just like a bubble. If the form of dance is just like a bubble, is it not so important? Can you ignore it? No, you cannot ignore it. So you have to use [it] with your best, you have to perform the forms of dance as they really are. And then you have to manifest the beauty of dance. 
+That’s why you cannot be stuck with either one of them. You cannot always manifest the beauty of dance without the form of dance; so you have to use the form of dance which is constantly changing, appearing and disappearing, just like a bubble. 
 
-So that is why it says here, “He encounters situations without getting stuck.” Whatever you do – washing your face, even when you walk on the street – and encounter the situation so-called severe weather, winter, [like] trees on the mountains in the severe weather. You cannot handle the severe weather, so-called Minnesota winter, according to your feeling and emotions. If you deal with winter like this, you cannot live here. *[Laughter.]* But make your mind calm and see the severe winter. It’s beautiful! You have never known it before. 
+If the form of dance is just like a bubble, is it not so important? Can you ignore it? No, you cannot ignore it. So you have to use [it] with your best, you have to perform the forms of dance as they really are. And then you have to manifest the beauty of dance. 
+
+So that is why it says here, “He encounters situations without getting stuck.” Whatever you do: washing your face, even walking on the street... and encountering the so-called severe winter weather, [like] trees on the mountains in the severe weather. You cannot handle the severe weather, so-called Minnesota winter, according to your feeling and emotions. If you deal with winter like this, you cannot live here. *[Laughter.]* But make your mind calm and see the severe winter. It’s beautiful! You have never known it before. 
 
 I have been already ten years in Minnesota: gradually I understand. *[Laughter.]* I love very much severe winter. And each different change of the seasons are really beautiful in Minnesota. 
 
@@ -358,25 +360,27 @@ That is pretty hard because you have to balance both. How can you balance? Where
 
 **Katagiri Roshi:** Simultaneously. When you are born, the world appears. Simultaneously. 
 
-So, from this point, when you are born, “the world is here” means that is your world. It is not “for” you. 
-
-**Same person:** Well, okay. 
-
-**Katagiri Roshi:** It is already you create your world. 
+So, from this point, when you are born, “the world is here” means that is *your* world. It is not “for” you. It is already *you* create your world. 
 
 **Same person:** Right. I mean, not for me, but that world is [what] I create. 
 
-**Katagiri Roshi:** Sure. You create. So, do you understand what “the world you create” means? This is very important for us. Everyone creates [the world]. Here are ten people; each person creates this world. It means each person has a different idea. Alright? I can see everybody, like this, but I can see everyone in terms of my karma: my point of view, my taste, my feeling, et cetera. Do you understand? That means you are not you; you are me. You are Katagiri. Each Katagiri. *[He laughs.]* Ten Katagiris are there. Do you understand? 
+**Katagiri Roshi:** Sure. You create. So, do you understand what “the world you create” means? This is very important for us. Everyone creates [the world]. Here are ten people: each person creates this world. It means each person has a different idea. Alright? I can see everybody, like this, but I can see everyone in terms of my karma: my point of view, my taste, my feeling, et cetera. Do you understand? That means you are not you; you are *me*. *[He laughs.]* You are Katagiri. Ten Katagiris are there. Do you understand? 
 
-It is very true! That’s why if you say one word to me, but other people don’t hear that word, but I am very sensitive to that word and immediately I become mad at you. So, I always create my world. And you create also your world. So, here are ten, twenty different worlds here. Do you understand? That means you are not separate [from] each other. Because “I create my own world” means all of your world are completely included in my world. Do you understand? 
+It is very true! That’s why if you say one word to me, [even if] other people don’t hear that word, [still] I am very sensitive to that word and immediately I become mad at [you]. So, I always create my world, and you create also your world. So, here are ten, twenty different worlds here. 
 
-So, *you* are my world! That’s why I can’t ignore you. Don’t you think so? *[He laughs.]* 
+That means you are not separate [from] each other. Because *I create my own world* means all of your worlds are completely included in my world.
 
-So, if I see you, you are a mirror of my life, looking at myself. So, your life becomes the contents of my life. Okay? If you become crazy and destroy this Zen center, this is my mirror. Do you understand? So I say, “Please, don’t destroy this one. Please keep it here.” *[Laughter.]* 
+So, *you* are my world! That’s why I cannot ignore you. Don’t you think so? *[He laughs.]* 
 
-So, everyone, that’s why we are connected with each other. That’s what we can share the compassion with each other. 
+So, if I see you, you are a mirror of my life, looking at myself. So, your life becomes the contents of my life. Okay? 
 
-And another example is, Buddha mentions in the sutra, everyone loves himself [or herself] best. If so, who loves best? The Buddha says everyone loves himself best in this world – why is it we have to hurt others? It comes from the same idea. I create my own world, so all of you are completely absorbed into my world as a content or quality of my life. That’s why I appreciate your existence. 
+If you become crazy and destroy this Zen center, this is my mirror. Do you understand? So I say, “Please, don’t destroy this one. Please keep it here.” *[Laughter.]* 
+
+So [everyone’s world]. That’s why we are connected with each other. That’s why we can share the compassion with each other. 
+
+And another example is, Buddha [says] in a sutra [that] everyone loves himself best – if so, who loves best? The Buddha says everyone loves himself best in this world – why is it we have to hurt others? (*Transcriber’s Note:* This might be a reference to the *Rājan Sutta* in the *Udāna*. That sutra might be the source of a modern quote attributed to the Buddha: “If you truly loved yourself, you could never hurt another.”) 
+
+It comes from the same idea. I create my own world, so all of you are completely absorbed into my world as a content or quality of my life. That’s why I appreciate your existence. 
 
 Is that alright? 
 
@@ -386,17 +390,17 @@ Is that alright?
 
 **Katagiri Roshi:** Mm-hmm.
 
-**Same person:** ... and don’t talk much about the implication of all of this. Like, why has that sort of been the traditional Zen way of passing on...
+**Same person:** ... and don’t talk much about the implications of all of this. Like, why has that sort of been the traditional Zen way of passing on...
 
 **Katagiri Roshi:** Passing on this one?
 
-**Same person:** Passing on information, yes.
+**Same person:** Passing on information, yeah.
 
 **Katagiri Roshi:** *[Laughs.]*
 
 **Same person:** Well, what one person knows to another.
 
-**Katagiri Roshi:** I wish I could. *[He laughs.]* I want to keep my mouth shut, anyway. Just to give it to you. 
+**Katagiri Roshi:** I wish I could. *[He laughs.]* *[Unintelligible.]* I want to keep my mouth shut, anyway. Just give it to you. 
 
 *[Laughter.]*
 
@@ -408,37 +412,43 @@ It seems like we could *package* this, though. *[Laughter.]*
 
 **Katagiri Roshi:** Package? 
 
-**Same person:** Yes. [Sorry]. *[Laughter.]*
+**Same person:** Yes. Sell it. *[Laughter.]*
 
-**Someone:** I think we kind of just crash. 
+**Someone:** I think it would kind of just crash. 
 
-**Same person:** Yeah.
+**Same person:** Yeah! Maybe.
 
-**Katagiri Roshi:** So, if you read these koans, it’s very direct words. Really appreciate, a wonderful expression of explaining the real point. In the beginning you don’t understand, but anyway, step by step, continue to read and try to understand. Really you appreciate this. It’s very short words, but it’s really expressing something more than words. Behind the words you can see something pure, clean. 
+**Katagiri Roshi:** So, if you read these koans, it’s very direct words. [Real appreciation]; a wonderful expression of explaining the real point. In the beginning you don’t understand, but anyway, step by step, continually read and try to understand, [and] really you appreciate this. It’s very short words, but it’s really expressing something more than words. Behind the words you can see something pure, clean. 
 
-So it’s very simple, so all you have to do is just read it; that’s enough. But it’s pretty hard, because they have kind of technical words. And simple words, [like] Bodhidharma uses – what would you say – “vastness and nothing holy.” That’s really short words, but it’s very simple: vastness and nothing holy. If I explain, well, a little bit [we] slip off. But we have already big heads *he laughs* – [there is] a little bit we have to know around this. We try to guide to *come close* to the point. 
+It’s very simple, so all you have to do is just read it, you know? That’s enough. But it’s pretty hard, because they have kind of technical words, and simple words. [Like] Bodhidharma uses – what would you say – “vastness and nothing holy”. That’s really short words that explain [very simply]: vastness and nothing holy. If I explain, well, a little bit [we] slip off. But we have already big heads *he laughs* – [there is] a little bit we have to know around this. We try to guide to come close to the point. 
 
-There is a very interesting story: one of the abbots of Eiheiji went to the hot spring with his followers after giving a *teisho*. And then, you know the Japanese hot springs are *big*, vast out there. And they were bathing together, and the followers really appreciated him: “Thank you very much for your teisho and lectures, they really moved me” – something like that. And then the Zenji says, “All I mentioned are...” – what would you say – “[lies].” *[Laughter.]* So immediately all the followers were very mad at him! And then they *splashed* the water. *[Laughter.]* 
+There is a very interesting story: [...] the abbot of Eiheiji went to the hot spring with his followers after giving a *teisho*. You know the Japanese hot springs are *big*, vast out there. And they were bathing together, and the followers really appreciated him: “Thank you very much for your *teisho* and lectures, they really moved me,” et cetera – something like that. And then the Zen teacher says, “All I [that I said] are lies.” *[He laughs.]* So immediately all the followers were very mad at him! And then they *splashed* the water. *[Laughter.]* 
 
-That’s interesting, that Zenji says, “Please think again.” *[Unintelligible]* *[Laughter.]*
+That’s interesting. *[Unintelligible]* *[Laughter.]*
 
-This is very good for us. You should remember this one. Because we are talking about Buddhist teaching in terms of, what would you say, profane being, not holy. And then, if I say something about some aspect of Buddha’s teaching in an appropriate way, and then you appreciate me, and then sometimes you really admire me, [as] some kind of god, or divinity, and then the priest becomes “holy.” You know? “I am a good boy.” That is very dangerous! It’s really dangerous. That is called over-infatuation. *[He laughs.]* Even a teacher is over-infatuated by admiration from the people. A teacher must be always admired by people, but the teacher must be free from admiration – any fame, et cetera. 
+This is very good for us. You should remember this one. Because we are talking about Buddha’s teaching in terms of, what would you say, profane being, not holy. And then, if I say something about some aspect of Buddha’s teaching in an appropriate way, and then you appreciate me, and then sometimes you really admire me [as] some kind of “god” or divinity, and then the priest becomes “holy”. You know? “I am a good boy.” That is very dangerous! It’s really dangerous. That is called over-infatuation. *[He laughs.]* Even a teacher is over-infatuated by admiration from the people. A teacher must be always admired by people, but the teacher must be free from admiration – any fame, et cetera. That’s why the Zen teacher says, “I tell a lie.” And [they are] immediately mad. *[He laughs.]* That’s pretty good. 
 
-That’s why the Zen teacher says, “I tell a lie,” and [they are] immediately mad. *[He laughs.]* That’s pretty good. So he can completely free from divinity, or symbol of worship. He’s human. But simultaneously he is, anyway, Buddha – because without becoming Buddha, he cannot teach the Buddha’s teaching, so he is Buddha. But on the other hand, he cannot stay with the Buddha – because he knows how profane he is. 
+So you can completely free from divinity, or symbol of worship. He’s human. But simultaneously he is, anyway, Buddha – because without becoming Buddha he cannot teach the Buddha’s teaching, so he is Buddha. But on the other hand, he cannot stay with the Buddha – because he knows how profane he is. 
 
 So, same applies to that situation. 
 
 #### 1:14:47
 
-**Question**: I was wondering, they use the word “kill” – killing people? And then you said that that means something about waking people up so they can live fully. I don’t remember exactly what you said. Why use the word “kill” to mean that? 
+**Question**: I was wondering, they use the word “kill” – killing people? And then you said that that means something about waking people up so they can live fully... I don’t remember exactly what you said. Why use the word “kill” to mean that? 
 
-**Katagiri Roshi:** Well, “kill” means to kill... I don’t the term, I don’t know why you kill. But sometimes we need a very strong term, because we are very ignorant. *[He laughs.]* We should use a very big term, a strong term, and then we wake up. If we use always very gentle, soft words, then we don’t awaken, you know? So, that’s why Zen uses sometimes very strong, very “hostile” words. But “to kill” simultaneously not kill; to kill is to [make] alive, to be alive. Both. Or to “be free” means to hold. Always the two are interconnected. 
+**Katagiri Roshi:** Well, “kill” means to kill... I don’t know the term; I don’t know why you “kill”. But sometimes we need a very strong [word]... because we are very ignorant. *[He laughs.]* We should use a very big term, a strong term, and then we wake up. If we use always very gentle, soft words, then we don’t awaken, you know? 
+
+So, that’s why Zen uses sometimes a very strong, very “hostile” word. But “to kill” simultaneously is not to kill; to kill is to be alive. Both. Or to “be free” means to hold. Always the two are interconnected. 
 
 **Same person:** Hmm. So, always the word and its opposite? 
 
-**Katagiri Roshi:** Yes, opposite. Not only the “kill,” “destroy.” For instance, to criticize somebody is not to destroy. Usually we destroy; destroy or hurt people’s feelings. But if you criticize somebody, I think not merely criticize, to put down people, or to degrade people’s virtue, et cetera, but simultaneously to make his life alive – enhance, support. That is basically, there must be compassion on the basis of educating people, using the words, et cetera. 
+**Katagiri Roshi:** Yes, opposite. Not only the “kill,” “destroy.” For instance, to criticize somebody is not to destroy. Usually we destroy; destroy or hurt people’s feelings. But if you criticize somebody, I think not merely criticize. To put down people, or to degrade people’s virtue, et cetera, but simultaneously to make their life alive – enhance, support. That [means] basically there must be compassion on the basis of educating people, using the words, et cetera. 
 
-So in Zen, if you see the term “kill,” it’s not merely kill, [it’s] to be alive, to *make* something alive. So broadly speaking, that means “to kill” is to practice egolessness. Or to forget. To forget means to be, not to destroy you. “To forget yourself” means to raise your life, supported by the whole nature. Like a tree standing. It’s hard for us, because we have a big head. So we cannot imitate just like, you know, the trees. It’s hard. But we can do it. So for this, how can we do it? Forget it. Forget yourself. The means egolessness: forget lots of preconceptions, ideas, and arguments, et cetera. Sometimes it’s important, but usually we should be free from that stuff. And then, just stand up. That’s pretty hard practice. [...]
+So in Zen, if you see the term “kill”, it’s not merely “kill”, [it’s] to be alive, to make something alive. So broadly speaking, that means “to kill” is to practice egolessness. Or “to forget”. “To forget” means to be, not to destroy yourself. “To forget yourself” means to raise your life, supported by the whole nature. Like a tree, standing. 
+
+It’s hard for us, because we have a big head, so we cannot imitate just like the trees. It’s hard. But we can do it. So for this, how can we do it? Forget it. Forget yourself. That means egolessness: forget the many preconceptions, ideas, and arguments, et cetera. Sometimes they’re important, but usually we should be free from that stuff. And then, just stand up. That’s pretty hard practice. 
+
+That is the “kill”.
 
 #### 1:18:09 end of recording
 
