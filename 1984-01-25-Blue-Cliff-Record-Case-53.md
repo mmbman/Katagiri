@@ -15,9 +15,9 @@ title: "Blue Cliff Record Case 53: Pai Chang’s Wild Ducks"
 
 #### 0:00
 
-**Katagiri Roshi:* The fifty-third case: “Pai Chang’s Wild Ducks”. [Robert,] would you read the pointer and case.
+**Katagiri Roshi:** The fifty-third case: “Pai Chang’s Wild Ducks”. [Robert,] would you read the pointer and case.
 
-**Reader:*
+**Reader:**
 
 > The whole world does not hide it – his entire capacity stands alone revealed. He encounters situations without getting stuck – with every move he has the ability to assert himself. In his phrases there’s no partiality – everywhere he has the intention to kill people.
 >
@@ -29,7 +29,7 @@ Case:
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-**Katagiri Roshi:* Zen master Ma Tsu in this case was one of the disciples of Nangaku Ejō (Nanyue Huairang); in Japanese we call him Baso Zen Master. Pai Chang was one of the disciples of Baso, Ma Tsu Zen Master; [they are both famous]. This is a conversation between Zen Master Ma Tsu and Pai Chang when they walked together. 
+**Katagiri Roshi:** Zen master Ma Tsu in this case was one of the disciples of Nangaku Ejō (Nanyue Huairang); in Japanese we call him Baso Zen Master. Pai Chang was one of the disciples of Baso, Ma Tsu Zen Master; [they are both famous]. This is a conversation between Zen Master Ma Tsu and Pai Chang when they walked together. 
 
 The pointer says,
 
