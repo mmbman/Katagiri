@@ -63,9 +63,9 @@ So very naturally, if you understand like this – if you understand trees, seve
 
 In other words, where is the peace? Where is the real relaxation? 
 
-I went to the college two days ago to talk about relaxation. *[He laughs.]* Well, anyway, you have to research: what is real relaxation? What is real peace? Even if you understand like this – intellectually you understand pretty well; if I say so, again and again, if you listen to it like this, then you really understand it – but still, it’s pretty hard for us to get the peace and rest and relaxation. Where is it? 
+I went to the college two days ago to talk about relaxation. *[He laughs.]* Well, anyway, you have to research: what is real relaxation? What is real peace? Even if intellectually you understand pretty well – if I say [it] again and again, if you listen to it like this, then you really understand it – but still, it’s pretty hard for us to get the peace and rest and relaxation. Where is it? 
 
-This is our practice, every day. When you stand up, there is peace, real relaxation there. When you wash your face, there is rest, perfect rest, perfect peace, perfect harmony, relaxation there. And then, you can really assert yourself, appreciate yourself. From this situation, you can really feel gratitude. 
+This is our practice, every day. When you stand up, there is peace, real relaxation there. When you wash your face, there is perfect rest, perfect peace, perfect harmony, relaxation there. And then, you can really assert yourself, appreciate yourself. From this situation, you can really feel gratitude. 
 
 Otherwise, it’s very difficult to find the relaxation. Even though you try to have relaxation through exercise, and jogging, and from the diet, et cetera, still you don’t have real rest or real peace, real harmony, relaxation. 
 
@@ -75,7 +75,7 @@ So in your whole life, you have to research where is rest, where is the peace.
 
 So, whatever you say, “in his phrases there is no partiality” means his words directly hit the human heart. [...]
 
-“Phrases” means not only the words, but also your actions with your body, your actions with your mouth or with your silence, or with your mind. This is all actions, all phrases. Even silence has lots of phrases, words. So, silence is really [piercing], hitting people’s hearts, if you practice yourself on an everyday basis, understanding trees and also the whole nature behind the trees. At that time, even though you directly face the trees without saying [anything], without composing a poem, just standing up, [still] people are really impressed by the trees, people are really moved by your presence. 
+“Phrases” means not only the words, but also your actions with your body, your actions with your mouth or with your silence, or with your mind. This is all actions, all phrases. Even silence has lots of phrases, words. So, silence is really [piercing], hitting people’s hearts, if you practice yourself on an everyday basis, understanding trees and also the whole nature behind the trees. At that time, even though you directly face the trees without saying [anything] – without composing a poem, just standing up – [still] people are really impressed by the trees, people are really moved by your presence. 
 
 > ... everywhere he has the intention to kill people.
 
@@ -87,11 +87,13 @@ So, whatever you say, “in his phrases there is no partiality” means his word
 
 > Once when Great Master Ma and Pai Chang were walking together they saw some wild ducks fly by. The Great Master asked, “What is that?” Chang said, “Wild ducks.” The Great Master said, “Where have they gone?” Chang said, “They’ve flown away.” The Great Master then twisted Pai Chang’s nose. Chang cried out in pain. The Great Master said, “When have they ever flown away?”
 
-This is a simple story, pretty usual story. 
+This is a simple story, a pretty usual story. 
 
 Who can say why Pai Chang Zen Master asked like this? Could you say something about why he asked like this? [Why] Zen master Ma Tsu and Pai Chang were just walking together, and he asked like this?
 
-If you read the *agamas*, Shakyamuni Buddha also teaches like this: according to circumstances and opportunity, when they meet. For instance when Shakyamuni Buddha walked with a disciple by the river, and they saw a whirlpool in the river, he pointed to the whirlpool and said [something] about human suffering. Buddha explains like this, and also this case is the same thing: Zen master Ma Tsu and Pai Chang walk together, see the wild ducks, and he uses the circumstances and opportunity to talk about... what? Can you say?
+If you read the *agamas*, Shakyamuni Buddha also teaches like this: according to circumstances and opportunity when they meet. For instance, when Shakyamuni Buddha walked with a disciple by the river, and they saw a whirlpool in the river, he pointed to the whirlpool and said [something] about human suffering. Buddha explains like this, and also this case is the same thing: Zen master Ma Tsu and Pai Chang walk together, see the wild ducks, and he uses the circumstances and opportunity to talk about... what? Can you say?
+
+*[Silence.]*
 
 Anything is okay... *[Laughter.]*
 
@@ -109,9 +111,9 @@ Do you have an idea?
 
 **Someone:** Wild ducks. 
 
-**Katagiri Roshi:** Wild ducks. In other words, can you say [something] about the “what is it” or “duck”, [in different words]?
+**Katagiri Roshi:** Wild ducks. In other words, can you say [something] about the “what is it” or “duck” [in different words]?
 
-**Someone:** When he indicates the wild ducks floating away, ... he indicates impermanence. But when he turns to him and tweaks his nose, and says “when do they fly away,” it indicates that although situations are always fluid, they have a certain sameness. In other words the situation is always moving, but there is a sameness there. [...]
+**Someone:** When he indicates the wild ducks floating away ... he indicates impermanence. But when he turns to him and tweaks his nose, and says “when do they fly away,” it indicates that although situations are always fluid, they have a certain sameness. In other words the situation is always moving, but there is a sameness there. [...]
 
 **Katagiri Roshi:** Um, yes, that’s a possibility. That’s pretty good. 
 
@@ -121,7 +123,7 @@ So that is a point of this koan. Master Ma-tsu really wanted Pai Chang to awaken
 
 So of course you can understand the flying away is implication of impermanence; that’s fine. But this is why the pointer says it like this. 
 
-So, from this point, *wild duck* is the implication of truth. “The whole world doesn’t hide it”: it’s always manifested in everywhere. “The spiritual source shines clearly in the light.” *Light* means phenomena; [it is] in the phenomena, always. And the Sandokai says, “The branching streams flow into the darkness.” *Darkness* means the truth. So always interconnected, interpenetrated, simultaneously. 
+So, from this point, *wild duck* is the implication of truth. “The whole world doesn’t hide it”: it’s always manifested in everywhere. “The spiritual source shines clearly in the light”: *light* means phenomena; [it is] in the phenomena, always. And the Sandokai says, “The branching streams flow into the darkness.” *Darkness* means the truth. So always interconnected, interpenetrated, simultaneously. 
 
 And another point is: the truth, the spiritual source, shines clearly in the phenomena – so that means truth is always existing in the phenomena – simultaneously, “phenomena always flows into the darkness” means always truth. So you cannot grasp the phenomena as phenomena, because it’s always flowing into the darkness, truth. It means all phenomena – human body, human mind – no mind, no colors, [...] no eyes, no ears. We always chant [this]. Very naturally, strictly speaking, human body, human mind, all sentient beings, flow into darkness – that means the truth. So-called *emptiness* – or emptiness means *boundlessness*, or *countlessness*, or *eternity*, we can say. Or, *full presence*. We can say so. Full presence, full working, full dynamic working – that is the source, spiritual source. 
 
@@ -169,13 +171,13 @@ So, completely beyond words, it is just undefiled practice, undefiled actions, h
 
 “Wild duck has flown away”, means, in a sense, truth is omnipresent. So whatever it is, truth is always moving. Wherever you may go. But “that truth is not flown away” completely means it doesn’t separate from you, because that wild duck as truth is always present in individual life. 
 
-Where is it both come together; [where] wild duck and human being come together? This is a moment, or we say “real reality you are present in.” Real reality is exactly there. So that’s why you cannot understand exactly what’s going on there.
+Where is it both come together? [Where do] wild duck and human being come together? This is a moment, or we say “real reality you are present in.” Real reality is exactly there. So that’s why you cannot understand exactly what’s going on there.
 
 But at best as we can, we have to make our mind calm and know it. This is our responsibility too, okay? But on the other hand, we don’t understand it *exactly*, because [of the bottomlessness] of human life. 
 
 But you cannot leave everything to the bottomlessness of human life; no. If you do that, your life becomes messy. You have to know what’s going on, with your best. 
 
-So, twisting his nose is an implication of awareness of real reality, the moment: where the truth and phenomena come together, interpenetrated, interwoven, interacting constantly, dynamically. 
+So twisting his nose is an implication of awareness of real reality, the moment: where the truth and phenomena come together, interpenetrated, interwoven, interacting constantly, dynamically. 
 
 *[Tape change.]*
 
@@ -185,7 +187,7 @@ But if you see the trees, exactly you can see the tree as a tree, but simultaneo
 
 So, within a moment, there is no excuse, no word. But *no word* constantly teaches us how beautiful it is. Teaching about what? Truth. The big world, so-called nature, rhythm of nature, and also the tree’s individual life. Both are simultaneously there; interconnected, interpenetrated. That’s why, even if you don’t understand, if you are a human being, you are really moved by this tree. 
 
-What is that real reality, what is the moment of the tree? Moment of the tree is just to stand up. So, it’s very pure practice: just stand up. Constantly just achieving continuation of just standing. Constantly. That’s very simple practice. But it’s  beyond your feeling – beyond the feeling of the tree, feeling of the weather. Anyway, standing. That is so-called *beauty of art*, *beauty of nature*. We can see that. 
+What is that real reality, what is the moment of the tree? Moment of the tree is just to stand up. So, it’s very pure practice: just stand up. Constantly just achieving continuation of just standing. Constantly. That’s very simple practice. But it’s beyond your feeling – beyond the feeling of the tree, feeling of the weather. Anyway, standing. That is so-called *beauty of art*, *beauty of nature*. We can see that. 
 
 #### 41:49
 
@@ -193,11 +195,11 @@ So finally:
 
 > The Great Master said, “When have they ever flown away?”
 
-So you cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. There basic nature of real reality [where] you are standing there is completely no comment. All you have to do is, you just be there. 
+So you cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. The basic nature of real reality [where] you are standing there is completely no comment. All you have to do is, you just be there. 
 
 How do we know? It’s pretty hard. That’s why the Zen master twists his nose, and immediately crying and pain comes up. That is really pure, undefiled practice; completely beyond. Does that sound come from the wild duck? That sound comes from where? Pai Chang? No way. If you think so, that is *your* speculation. [It’s] just a scream. 
 
-Well, [if you think] “just a scream” means “just scream” – if you think so, [so] wherever you may go, you just scream – you cannot do that. When you have to scream, or when you shouldn’t scream – we have to think [about] that. But sometimes, you can scream. Because if you scream, in a pure sense, the scream is beautiful. It makes you alive; it makes you awaken to [it]. 
+Well, [if you think] “just a scream” means “just scream” – wherever you may go, you just scream. You cannot do that. We have to think about when you have to scream or when you shouldn’t scream. But sometimes, you can scream. Because if you scream, in a pure sense, the scream is beautiful. It makes you alive; it makes you awaken to [it]. 
 
 ####  44:05 
 
@@ -246,9 +248,11 @@ Because Pai Chang knows pretty well who he is, and simultaneously who is Pai Cha
 
 > But Ma Tsu held him fast.  
 
-So very naturally Pai Chang wanted to fly away, but immediately Ma Tsu held him fast, because even though you want to be free from it, [still] you cannot forget that Ph.D degree. So you have to keep the Ph.D., but you cannot stay with the Ph.D.; so you have to throw it away, but you cannot forget it. That is the real reality: where you are, how you work with the people. Without forgetting the Ph.D., but being free from Ph.D. And then how you can share your life with people? 
+So very naturally Pai Chang wanted to fly away, but immediately Ma Tsu held him fast, because even though you want to be free from it, [still] you cannot forget that Ph.D degree. So you have to keep the Ph.D., but you cannot stay with the Ph.D.; you have to throw it away, but you cannot forget it. That is the real reality: where you are, how you work with the people. Without forgetting the Ph.D., but being free from Ph.D. – and then how you can share your life with people? 
 
-That is where? That is a moment. That is a real reality. How? That is undefiled practice, exactly. 
+That is where? That is a moment. That is a real reality. 
+
+How? That is undefiled practice. Exactly. 
 
 So Ma Tsu held him fast and immediately said:
 
@@ -264,7 +268,7 @@ Okay. [Is there a question?]
 
 **Katagiri Roshi:** Mm-hmm. The whole world. If you save yourself, the whole world is saved. 
 
-That’s why I say, if you become a Buddha, or if you have your own eyes to see everything as a Buddha. Buddha means you should see the tree as it is, but simultaneously you have to see the whole world. You know? At that time, that is called Buddha. Because the whole world, the whole [of] nature and trees working dynamically. We don’t know what it is; anyway, dynamically it’s working. That is called *Buddha*. That Buddha is philosophically emptiness, because nothing to pin down. But practically speaking, or strictly speaking, or realistically, anyway, the truth, whole nature, and trees [are] working together. 
+That’s why I say, if you become a Buddha, or if you have your own eyes to see everything as a Buddha. *Buddha* means you should see the tree as it is, but simultaneously you have to see the whole world. You know? At that time, that is called Buddha. Because the whole world, the whole [of] nature and trees working dynamically – we don’t know what it is; anyway, dynamically it’s working. That is called *Buddha*. That Buddha is philosophically emptiness, because [there is] nothing to pin down. But practically speaking, or strictly speaking, or realistically, the truth, whole nature, and trees [are] working together. 
 
 So if you have eyes to see that, you can save yourself. Simultaneously, you can save the tree. And simultaneously you can save whole nature. 
 
@@ -366,17 +370,13 @@ So, from this point, when you are born, “the world is here” means that is *y
 
 **Katagiri Roshi:** Sure. You create. So, do you understand what “the world you create” means? This is very important for us. Everyone creates [the world]. Here are ten people: each person creates this world. It means each person has a different idea. Alright? I can see everybody, like this, but I can see everyone in terms of my karma: my point of view, my taste, my feeling, et cetera. Do you understand? That means you are not you; you are *me*. *[He laughs.]* You are Katagiri. Ten Katagiris are there. Do you understand? 
 
-It is very true! That’s why if you say one word to me, [even if] other people don’t hear that word, [still] I am very sensitive to that word and immediately I become mad at [you]. So, I always create my world, and you create also your world. So, here are ten, twenty different worlds here. 
-
-That means you are not separate [from] each other. Because *I create my own world* means all of your worlds are completely included in my world.
+It is very true! That’s why if you say one word to me, [even if] other people don’t hear that word, [still] I am very sensitive to that word and immediately I become mad at [you]. So, I always create my world, and you create also your world. So, here are ten, twenty different worlds here. That means you are not separate [from] each other. Because *I create my own world* means all of your worlds are completely included in my world.
 
 So, *you* are my world! That’s why I cannot ignore you. Don’t you think so? *[He laughs.]* 
 
-So, if I see you, you are a mirror of my life, looking at myself. So, your life becomes the contents of my life. Okay? 
+If I see you, you are a mirror of my life, looking at myself. So, your life becomes the contents of my life. Okay? If you become crazy and destroy this Zen center, this is my mirror. So I say, “Please, don’t destroy this one. Please keep it here.” *[Laughter.]* 
 
-If you become crazy and destroy this Zen center, this is my mirror. Do you understand? So I say, “Please, don’t destroy this one. Please keep it here.” *[Laughter.]* 
-
-So [everyone’s world]. That’s why we are connected with each other. That’s why we can share the compassion with each other. 
+[...] That’s why we are connected with each other. That’s why we can share the compassion with each other. 
 
 And another example is, Buddha [says] in a sutra [that] everyone loves himself best – if so, who loves best? The Buddha says everyone loves himself best in this world – why is it we have to hurt others? (*Transcriber’s Note:* This might be a reference to the *Rājan Sutta* in the *Udāna*. That sutra might be the source of a modern quote attributed to the Buddha: “If you truly loved yourself, you could never hurt another.”) 
 
@@ -398,7 +398,7 @@ Is that alright?
 
 **Katagiri Roshi:** *[Laughs.]*
 
-**Same person:** Well, what one person knows to another.
+**Same person:** Well, [passing on] what one person knows to another.
 
 **Katagiri Roshi:** I wish I could. *[He laughs.]* *[Unintelligible.]* I want to keep my mouth shut, anyway. Just give it to you. 
 
@@ -418,17 +418,17 @@ It seems like we could *package* this, though. *[Laughter.]*
 
 **Same person:** Yeah! Maybe.
 
-**Katagiri Roshi:** So, if you read these koans, it’s very direct words. [Real appreciation]; a wonderful expression of explaining the real point. In the beginning you don’t understand, but anyway, step by step, continually read and try to understand, [and] really you appreciate this. It’s very short words, but it’s really expressing something more than words. Behind the words you can see something pure, clean. 
+**Katagiri Roshi:** So, if you read these koans, it’s very direct words, [...] a wonderful expression explaining the real point. In the beginning you don’t understand, but anyway, step by step, continually read and try to understand, [and] really you appreciate this. It’s very short words, but it’s really expressing something more than words. Behind the words you can see something pure, clean. 
 
-It’s very simple, so all you have to do is just read it, you know? That’s enough. But it’s pretty hard, because they have kind of technical words, and simple words. [Like] Bodhidharma uses – what would you say – “vastness and nothing holy”. That’s really short words that explain [very simply]: vastness and nothing holy. If I explain, well, a little bit [we] slip off. But we have already big heads *he laughs* – [there is] a little bit we have to know around this. We try to guide to come close to the point. 
+It’s very simple, so all you have to do is just read it, you know? That’s enough. But it’s pretty hard, because they have kind of technical words, and simple words. [Like] Bodhidharma uses – what would you say – “vastness and nothing holy”. That’s really short words that explain [very simply]: vastness and nothing holy. If I explain it, well, a little bit [we] slip off. But we already have big heads *he laughs* – [there is] a little bit we have to know around this. We try to guide to come close to the point. 
 
-There is a very interesting story: [...] the abbot of Eiheiji went to the hot spring with his followers after giving a *teisho*. You know the Japanese hot springs are *big*, vast out there. And they were bathing together, and the followers really appreciated him: “Thank you very much for your *teisho* and lectures, they really moved me,” et cetera – something like that. And then the Zen teacher says, “All I [that I said] are lies.” *[He laughs.]* So immediately all the followers were very mad at him! And then they *splashed* the water. *[Laughter.]* 
+There is a very interesting story: [...] the abbot of Eiheiji went to the hot spring with his followers after giving a *teisho*. You know the Japanese hot springs are *big*, vast out there. And they were bathing together, and the followers really [expressed appreciation to] him: “Thank you very much for your *teisho* and lectures, they really moved me,” et cetera – something like that. And then the Zen teacher says, “All I [that I said] are lies.” *[He laughs.]* So immediately all the followers were very mad at him! And then they *splashed* the water. *[Laughter.]* 
 
 That’s interesting. *[Unintelligible]* *[Laughter.]*
 
 This is very good for us. You should remember this one. Because we are talking about Buddha’s teaching in terms of, what would you say, profane being, not holy. And then, if I say something about some aspect of Buddha’s teaching in an appropriate way, and then you appreciate me, and then sometimes you really admire me [as] some kind of “god” or divinity, and then the priest becomes “holy”. You know? “I am a good boy.” That is very dangerous! It’s really dangerous. That is called over-infatuation. *[He laughs.]* Even a teacher is over-infatuated by admiration from the people. A teacher must be always admired by people, but the teacher must be free from admiration – any fame, et cetera. That’s why the Zen teacher says, “I tell a lie.” And [they are] immediately mad. *[He laughs.]* That’s pretty good. 
 
-So you can completely free from divinity, or symbol of worship. He’s human. But simultaneously he is, anyway, Buddha – because without becoming Buddha he cannot teach the Buddha’s teaching, so he is Buddha. But on the other hand, he cannot stay with the Buddha – because he knows how profane he is. 
+So [he] can completely be free from divinity, or symbol of worship. He’s human. But simultaneously he is, anyway, Buddha – because without becoming Buddha he cannot teach the Buddha’s teaching, so he is Buddha. But on the other hand, he cannot stay with the Buddha – because he knows how profane he is. 
 
 So, same applies to that situation. 
 
@@ -436,19 +436,21 @@ So, same applies to that situation.
 
 **Question**: I was wondering, they use the word “kill” – killing people? And then you said that that means something about waking people up so they can live fully... I don’t remember exactly what you said. Why use the word “kill” to mean that? 
 
-**Katagiri Roshi:** Well, “kill” means to kill... I don’t know the term; I don’t know why you “kill”. But sometimes we need a very strong [word]... because we are very ignorant. *[He laughs.]* We should use a very big term, a strong term, and then we wake up. If we use always very gentle, soft words, then we don’t awaken, you know? 
+**Katagiri Roshi:** Well, “kill” means to kill... I don’t know the term. I don’t know why you “kill”. But sometimes we need a very strong [word]... because we are very ignorant. *[He laughs.]* We should use a very big term, a strong term, and then we wake up. If we use always very gentle, soft words, then we don’t awaken, you know? 
 
-So, that’s why Zen uses sometimes a very strong, very “hostile” word. But “to kill” simultaneously is not to kill; to kill is to be alive. Both. Or to “be free” means to hold. Always the two are interconnected. 
+So, that’s why Zen uses sometimes a very strong, very “hostile” word. But “to kill” simultaneously is not to kill; “to kill” is to be alive. Both. Or to “be free” means to hold. Always the two are interconnected. 
 
 **Same person:** Hmm. So, always the word and its opposite? 
 
-**Katagiri Roshi:** Yes, opposite. Not only the “kill,” “destroy.” For instance, to criticize somebody is not to destroy. Usually we destroy; destroy or hurt people’s feelings. But if you criticize somebody, I think not merely criticize. To put down people, or to degrade people’s virtue, et cetera, but simultaneously to make their life alive – enhance, support. That [means] basically there must be compassion on the basis of educating people, using the words, et cetera. 
+**Katagiri Roshi:** Yes, opposite. Not only the “kill,” “destroy”. For instance, to criticize somebody is not to destroy. Usually we destroy; or hurt people’s feelings. But if you criticize somebody, I think not merely criticize. To put down people, or to degrade people’s virtue, et cetera, but simultaneously to make their life alive – enhance, support. That [means], basically, there must be compassion on the basis of educating people, using the words, et cetera. 
 
-So in Zen, if you see the term “kill”, it’s not merely “kill”, [it’s] to be alive, to make something alive. So broadly speaking, that means “to kill” is to practice egolessness. Or “to forget”. “To forget” means to be, not to destroy yourself. “To forget yourself” means to raise your life, supported by the whole nature. Like a tree, standing. 
+So in Zen, if you see the term “kill”, it’s not merely “kill”, [it’s] to be alive, to make something alive. Broadly speaking, that means “to kill” is to practice egolessness. Or “to forget”: “to forget” means to be, not to destroy yourself. “To forget yourself” means to raise your life supported by the whole nature. Like a tree, standing. 
 
-It’s hard for us, because we have a big head, so we cannot imitate just like the trees. It’s hard. But we can do it. So for this, how can we do it? Forget it. Forget yourself. That means egolessness: forget the many preconceptions, ideas, and arguments, et cetera. Sometimes they’re important, but usually we should be free from that stuff. And then, just stand up. That’s pretty hard practice. 
+It’s hard for us, because we have a big head, so we cannot imitate just like the trees. It’s hard. But we can do it. 
 
-That is the “kill”.
+So for this, how can we do it? Forget it. Forget yourself. That means egolessness: forget the many preconceptions, ideas, and arguments, et cetera. Sometimes they’re important, but usually we should be free from that stuff. And then, just stand up. 
+
+That’s pretty hard practice. That is the “kill”.
 
 #### 1:18:09 end of recording
 
