@@ -16,24 +16,21 @@ title: "The Awakening of Faith – Talk 12: Tathagatagarbha"
 
 #### 0:00
 
-**Katagiri Roshi:** Page 36. 
-
-Yesterday, I mentioned a little bit in *Chosan*, I would like to [explain] a little more about the statement, “the mind as phenomena (samsara) is is grounded on the *tathagatagarbha*.”
+**Katagiri Roshi:** Page 36. Yesterday, I mentioned in *chosan* that I would like to [explain] a little more about the statement, “the mind as phenomena (samsara) is grounded on the *tathagatagarbha*.”
  
-I think most people have big doubt how the truth relates with the samsaric world. [It is] very difficult to figure out the relationship, how truth comes into the samsaric world. What is the subject which samsara is produced? How samsaric world is produced? It’s very difficult to understand. But we want to know. We want to know. 
+I think most people have big doubt how the truth relates with the samsaric world. [It is] very difficult to figure out the relationship, how truth comes into the samsaric world. What is the subject which samsara is produced? How samsaric world is produced? It’s very difficult to understand. But we want to know.
 
-For me, for many, many years, I really wanted to fill up that gap between the truth and the samsaric world. Because that is a most interesting point for me. But practically speaking, I don't think, even though you understand intellectually, it doesn't work actually. But practically speaking, all you have to do is to take care of everyday life with wholeheartedness. That's all we have to do. So, [practicing simply]. Still the intellectual sense [isn't satisfied]. So, practice, actual practice becomes a little bit shaky. We don't understand *why* we have to practice [in this] simple way. Why we have to do gassho, why we have to do the daily routine [of everyday life]. Why is it that [...] we have to take care of daily routine, because it is important. We don't understand this. 
+For me, for many, many years, I really wanted to fill up that gap between the truth and the samsaric world. Because that is a most interesting point for me. But practically speaking, I think even if you understand intellectually, it doesn't work actually. But practically speaking, all you have to do is to take care of everyday life with wholeheartedness. That's all we have to do. So, [practicing simply]. But still the intellectual sense [isn't satisfied], so actual practice becomes a little bit shaky. We don't understand *why* we have to practice [in this] simple way. Why we have to do gassho, why we have to do the daily routine [of everyday life]. Why is it that [...] we have to take care of daily routine? Because it is important. We don't understand this. 
 
-But no matter how long we try to explain this, well, it’s very difficult for me to explain, because most people don't experience what the truth is, and they don't experience strongly from daily routine how important it is. So, it’s pretty hard. So, teachers and ancestors, very naturally, a little bit force you to do: “Even though you don't understand it, please follow the ancestors' suggestions” – [like this]. 
+But no matter how long we try to explain this... well, it’s very difficult for me to explain, because most people don't experience what the truth is, and they don't experience strongly from daily routine how important it is. So it’s pretty hard. So very naturally, teachers and ancestors a *little bit* force you to do [it]: [saying,] “Even though you don't understand it, please follow the ancestors' suggestions” – [like this]. 
 
-For instance, if you want to be a barber shop barber, you have to follow the teacher's way, because you have never experienced. So, you should just follow the teacher's way, and then, you become a barber. But, if we do it in that way, it is fine in a sense, but it is not fine in a sense, because your practice doesn’t satisfy with your life. So, lots of questions come up. 
+For instance, if you want to be a barber in a barber shop, you have to follow the teacher's way, because you have never experienced [that]. So, you should just follow the teacher's way. And then, you become a barber. But, if we do it in that way, it is fine in a sense, but it is not fine in a sense, because your practice doesn’t satisfy [you] with your life. So lots of questions come up. 
 
-So, that's why, very naturally, this kind of book is established. So, today [...] I would like to [talk] about this. 
-
+So that's why, very naturally, this kind of book is established. So today [...] I would like to [talk] about this. 
 
 #### 05:18
 
-Yesterday, I mentioned the *tathagatagarbha* is not the same as the truth itself. The truth is exactly truth. So, I think we have learned before... look at page 32, “The Mind in Terms of the Absolute”. [...] This section explains the absolute. So, first point, you should understand the truth like this. The first line, 
+Yesterday I mentioned the *tathagatagarbha* is not the same as the truth itself. The truth is exactly truth. I think we have learned [this] before... look at page 32, “The Mind in Terms of the Absolute”. [...] This section explains the absolute. So you should understand the truth like this. The first line, 
 
 > The mind in terms of the absolute is the one world of reality and the essence of all phases of existence in their totality.
 
@@ -42,59 +39,67 @@ What does it mean? This means... look at page 33, the fourth line from the botto
 > ... nor is there anything which needs to be pointed out as real, for all things are equally in the
 state of suchness. It should be understood that all things are incapable of being verbally explained or thought of; hence, the name suchness.
 
-So, the first point is that the truth is the one world of reality, exactly one world of reality, and the essence of all phases of existence in their totality. That means, [...] no need to point out what is the truth, or no need to explain what the truth is, because [it is] always there. So, no need to be pointed out as real or not as real. It’s not necessary, because it’s there, always. 
+So, the first point is that the truth is the one world of reality, exactly one world of reality, and the essence of all phases of existence in their totality. That means [there is] no need to point out what is the truth, or no need to explain what the truth is, because [it is] always there. So, no need to be pointed out as real or [as not] real. It’s not necessary, because it’s always there. 
 
-That means absolute is omnipresent as a one, one world. And that means you can see this one world, but it’s very difficult to see this one world, so-called truth. 
+That means [the] absolute is omnipresent as one, one world. And that means you can see this one world, but it’s very difficult to see this one world, so-called truth. 
 
-If so, how can we see the one world as the truth? That is, the truth manifested in everything. So, [it] means the truth in dwelling in all sentient beings. That's why here it says, "All things, it’s not necessary to be pointed out as real, because all things are equally in the state of suchness." Because truth, one world as truth, is omnipresent. *Omnipresent* means you can see the truth in everything. You are in contact with heaven, book, whatever it is. That is the meaning of *omnipresent*. 
+If so, how can we see the one world as the truth? That is the truth manifested in everything. [That] means the truth dwelling in all sentient beings. That's why here it says it’s not necessary for all things to be pointed out as real, because all things are equally in the state of suchness. Because one world as truth is omnipresent. *Omnipresent* means you can see the truth in everything; you are in contact with table, book, whatever it is. That is the meaning of *omnipresent*. 
 
-So, you should remember this one, ok? That is the first point. 
+So, you should remember this, okay? That is the first point. 
 
-The second point is, the truth is... look at the page 32, the third line from the bottom,
+The second point is, the truth is... look at the page 32, the third line from the bottom...
 
 > That which is called “the essential nature of the Mind” is unborn and is imperishable. 
 
-And then later, that this characteristic of the absolute will be explained in many ways, from a different angle. It's not the one, it's not the different, et cetera. It's not long, it's not wide... anyway, they explain it here in page 33. 
+And then later, this characteristic of the absolute will be explained in many ways, from different angles. It's not one, it's not different, et cetera... it's not long, it's not wide... anyway, they explain it here in page 33. 
 
-Anyway, so, the characteristic of the truth is something unborn. After the world was born and then the truth comes – or, somebody was born in this world and then he brings that truth into human world – I don't think this is the truth. Even though nothing in this world [...] truth, always. So, it's not something coming from one place to another, two minutes ago or two minutes later. No. That is called *not born*. 
+Anyway, the characteristic of the truth is something unborn. “The world was born and then the truth comes,” or “somebody was born in this world and then he brings that truth into the human world” – I don't think this is the truth. Even [if there is] nothing in this world, truth is truth, always. 
 
-So, completely beyond born or unborn. It's always there. Because that is [one]; it’s not necessary to be pointed out as real. 
+So, it's not something coming from one place to another, two minutes ago or two minutes later. No. That is called *not born*. So [it’s] completely beyond born or unborn. It's always there. Because that is [one], it’s not necessary to be pointed out as real. 
 
-And *imperishable* means completely regardless of whether you believe in or not. Or, you try to take it away or you try to hold on. Nothing to do. [Whether] you believe or not, it's there. Or, it is not something you can throw away. Or, it is not something you can participate in *from now*. Or, it is not something from which you can escape. Or, which you can get into now. No. 
+And *imperishable* means completely regardless of whether you believe in or not, or if you try to take it away or you try to hold on. Nothing to do; [whether] you believe or not, it's there, constantly. Or it is not something you can throw away. Or it is not something you can participate in *from now*. Or it is not something from which you can escape, or which you can get into now. No. 
 
-So, this is the truth. This is called *unborn* and *imperishable*. This is the characteristic of the truth. 
+So, this is the truth. This is called *unborn* and *imperishable*; this is the characteristic of the truth. 
 
-So, that's why it's pretty hard to know. But, this is called *one mind*, sometimes, because it's very simple. Because everyone, all sentient beings, exist just like this, on the basis of this absolute truth. So, that's why we say *one mind*. 
+That's why it's pretty hard to know. But this is called *one mind* sometimes, because it's very simple. Because everyone, all sentient beings, exist just like this, on the basis of this absolute truth. That's why we say *one mind*. *One mind* means completely beyond your speculations, before you think it, there is one world. 
 
-*One mind* means completely beyond your speculations, before you think it, there is one world. 
+So, that is the truth. But if it is very difficult to know that one world, is there no way to know? Yes, there is. That is the truth manifested in everyday life: human beings, birds, nature... *gassho*, and having a meal, getting up in the morning, daily routine... whatever you do, always there is the truth. 
 
-So, that is the truth. But, it is very difficult, that's why, if it is very difficult to know that one world, is there no place? No way to know? Yes, there is! That is the truth manifested in everyday life, human beings, birds, nature, in *gassho*, and having a meal, getting up in the morning, daily routine, whatever you do, always there is the truth. And that's why here it mentions like this. So you should remember this. 
+And that's why here it [says it] like this. So you should remember this. 
 
-So, from this point, do you believe that this kind of a truth can create samsaric world? In other words, by the activity of this truth, absolute truth, do you believe samsaric world is produced, or created? 
+So, from this point – do you believe that this kind of truth can create the samsaric world? 
 
-No. Because absolute truth has nothing to do. It doesn’t do anything; just be there. Because unborn, imperishable. Nothing. 
+In other words, by the activity of this truth, absolute truth, do you believe the samsaric world is produced, or created? 
 
-That’s why, I forgot the Western philosopher’s name... Kierkegaard? *[The students pronounce ‘Kierkegaard’, and he laughs.]* Yes. He says, “No God.” “No God” doesn’t mean destroy or ignore God. He knows [what] real God is, that’s nothing. Buddha doesn’t do anything. But Buddha is constantly there. So, that’s why if we say, “No God,” we are really [mad] at this philosopher, but I don’t think it’s negative. And absolute is nothing to do for *you* – that doesn’t mean ignoring your existence. That means, completely beyond your speculation, the absolute is always with you. “Before you think, absolute creates samsara” – that is already speculation! Or, “absolute with me, now,” that is also speculation. But before you say so, before you say, [...] any words like this, “absolute with me now,” it is already words. Absolute is already with you, anyway, constantly. So that’s why *unborn*, *imperishable*. 
+No. Because absolute truth has nothing to do. It doesn’t do anything. Just be there. Because it is unborn, imperishable. Nothing. 
 
-So from this point, it’s impossible for us to understand, even philosophically, that absolute creates samsara. No. Samsara [as the] absolute is very quiet, dynamical, omnipresent, but – it doesn’t do anything, just be there. Maintain it’s own life. Just maintaining. 
+That’s why... I forgot the Western philosopher’s name... Kierkegaard? *[The students pronounce ‘Kierkegaard’, and he laughs.]* Yes. He says, “No God.” “No God” doesn’t mean to destroy or ignore God. He knows [what] real God is: that’s nothing. Buddha doesn’t do anything; but Buddha is constantly there. 
 
-That is *the truth*. If so, you cannot say truth creates samsara. But some Buddhist scholars understood by the activity of the absolute truth, samsaric world is created through this. But that is a little bit misunderstanding. 
+So, that’s why if we say “no God,” we are really [mad] at this philosopher, but I don’t think it’s negative. And [that the] absolute is nothing to do for *you* – that doesn’t mean ignoring your existence. That means, completely beyond your speculation, the absolute is always with you. Before you think “the absolute creates samsara” – that is already speculation! Or, “the absolute is with me now,” that is also speculation. But before you say any words like this, “absolute with me now,” it is already words. The absolute is already with you, anyway, constantly. So that’s why *unborn*, *imperishable*. 
 
-So, if so, that’s why this course, anyway, find out another category, so-called *tathagatagarbha*. *Tathagatagarbha* is very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being*, mentioned by Dōgen himself. You can see a little bit. 
+So from this point, it’s impossible for us to understand, even philosophically, that absolute creates samsara. No. The absolute is very quiet, dynamical, omnipresent, but – it doesn’t do anything, just be there. Maintaining it’s own life. Just maintaining. 
 
-So, *tathagatagarbha*. That’s why this discourse brings up another term, so-called *tathagatagarbha*. So, *tathagatagarbha* is the truth dwelling in... us. And “all beings”. Not abstracted. Not abstracted idea of the principle or action – no. *Tathagatagarbha* is the very important ground of life. So, not abstract, an idea.
+That is *the truth*. If so, you cannot say “truth creates samsara”. But some Buddhist scholars understood by the activity of the absolute truth, samsaric world is created through this. But that is a little bit of a misunderstanding. 
 
- So, in Buddhism – you should remember this one. Buddhism doesn’t investigate *process*, the process of how truth comes to [or] joins the samsara, or samsara joins to the truth. Not *process* of. That is the philosophy we say, intellectually we say. If you move from A to B, you say, where is the A, where is the B? Now, what is the A, what is the B? Then how can you move to B? Et cetera. This is our understanding, intellectual [...]. But Buddhism doesn’t explain *anything* in that way. Buddhism accepts [...] real reality as it is, right now, right here. 
- 
-In other words, we have to see the interacting relations, among the many conditions, in terms of the reality as it is, which is constantly arising. Not the process of how to arise, how to move. 
+If so, that’s why this discourse finds out another category, so-called *tathagatagarbha*. 
+
+#### 19:26
+
+The *tathagatagarbha* is a very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being* mentioned by Dōgen, et cetera. You can see a little bit. That’s why this discourse brings up another term, so-called *tathagatagarbha*.
+
+So *Tathagatagarbha* is the truth dwelling in... us, and all beings. [It is not the] abstracted idea of the principle or action – no. *Tathagatagarbha* is the real, very important ground of life. It is not an abstract idea.
+
+You should remember this: Buddhism doesn’t investigate *process*, the process of how truth comes to [or] joins the samsara, or samsara joins to the truth. Not *process* of. That is philosophy. Intellectually we say, if you move from A to B, what is the A, what is the B? Then how can you move to B? Et cetera. This is our understanding, intellectual *[unintelligible]*. But Buddhism doesn’t explain *anything* in that way. Buddhism accepts [...] real reality as it is, right now, right here. In other words, we have to see the interacting relations among the many conditions in terms of the reality as it is, which is constantly arising. Not the process of how to arise, how to move. 
 
 So, Buddhism, anyway, jumps into the reality as it is, and then, learn how it is structured. 
 
-That’s why daily routine is very important. In terms of our sense of human body, daily routine is a small detail for us. But a daily routine is not different from professional job you have. Practicing is not different from a Himalaya Mountain. So, I think that you have to understand the practice as it is, practice is in reality as it is, instead of a certain investigate process of how to create [these practices]. Why? The reason why it is so small, in comparison with Himalaya Mountain itself. This is our intellectual system. But that is a philosophy; you can build up big mansions, so-called philosophy, psychology, etc. But Buddhism always participates directly first, reality as it is. And *then* research, investigate, understand the structure of that reality. Among the many conditions. Because there are many conditions there. Cause, secondary cause, first cause – many, many conditions. So, that is the Buddhistic attitude always. 
+That’s why daily routine is very important. 
 
-So, from this attitude, this term comes up, so called *tathagatagarbha*. Because if you look at yourself, you cannot analyze your reality, from where it comes, what kind of characteristics you have. You cannot judge yourself on the basis of one-sided idea, so-called “good boy” or “bad boy”. You cannot do it. So, if you look at yourself in reality as it is, I think you have always two things. Samsaric world, and also something more than samsaric world. 
+In terms of our sense of human body, daily routine is a small detail for us. But daily routine is not so different from a professional job you have. *[Unintelligible]* is not different from Himalayan mountains. So, I think that you have to understand the practice in reality as it is, instead of a certain investigative process of how to create [these practices]. Why? The reason why it is so small, in comparison with the Himalayan mountain, et cetera. This is our intellectual system. But that is a philosophy: you can build up big mansions, so-called philosophy, psychology, etc. But Buddhism always participates directly first, reality as it is. And *then* research, investigate, understand the structure of that reality. Among the many conditions. Because there are many conditions there. Cause, secondary cause, first cause – many, many conditions. So, that is always the Buddhistic attitude. 
 
-So, samsaric world is suffering, but more than suffering. There is some important thing, more than samsaric world you really hate. Because no matter how long you hate or you try to escape, still your existence goes on and on, wherever you may go. So, what do you mean? In terms of samsaric world, you are judged as a bad boy? If so, that’s it? That is your life? No. Even though, in terms of samsaric world, someone judges your life as bad, but still you can survive, you can go *any* place. Your life goes on and on, next. If so, there is something in your life more than a sense of judgment, evaluation, more than the samsaric world. That is called *truth*, et cetera. Truth which you find in life. 
+So, from this attitude, this term comes up, so-called *tathagatagarbha*. Because if you look at yourself, you cannot analyze your reality, from where it comes, what kind of characteristics you have. You cannot judge yourself on the basis of one-sided idea, so-called “good boy” or “bad boy”. You cannot do it. So if you look at yourself in reality as it is, I think you have always two things. The samsaric world, and also something more than the samsaric world. 
+
+The samsaric world is suffering, but more than suffering. There is some important thing, more than the samsaric world you really hate. Because no matter how long you hate or you try to escape, still your existence goes on and on, wherever you may go. So, what do you mean? In terms of the samsaric world, you are judged as a bad boy? If so, is that it? That is your life? No. Even though in terms of the samsaric world someone judges your life as bad, still you can survive, you can go *any* place. Your life goes on and on. If so, there is something in your life more than a sense of judgment, evaluation; more than the samsaric world. That is called *truth*, et cetera. Truth which is found in life. 
 
 But this truth, if found in your life, is not actual truth. This is *your* truth. This is the truth you can find in your life. 
 
@@ -298,7 +303,7 @@ Strictly speaking, it’s pretty hard, anyway.
 
 So, very naturally, you bump your head against the big pole, sooner or later. Alright? 
 
----- 50:00
+#### 50:00
 
 So, *tathagatagarbha* is the truth covered with the delusion. What do you mean? Why? Why do we call it delusion? Concretely speaking, what kind of the truth? How do you find? What is it?
 
