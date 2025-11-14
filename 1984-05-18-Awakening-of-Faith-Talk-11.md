@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 11: Alayavijnana & Tathagatagarbha"
 ---
 ## May 18, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-05-16-Awakening-of-Faith-Talk-10) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-05-16-Awakening-of-Faith-Talk-10) | [Next](1984-05-22-Awakening-of-Faith-Talk-12) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
@@ -324,4 +324,4 @@ In other words, it lets you be free, anyway. Free from any particular idea – �
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-05-16-Awakening-of-Faith-Talk-10) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-05-16-Awakening-of-Faith-Talk-10) | [Next](1984-05-22-Awakening-of-Faith-Talk-12) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
