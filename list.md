@@ -180,9 +180,9 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*The Awakening of Faith* – Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 
 1. [*The Awakening of Faith* – Talk 10: Time and Ignorance](1984-05-16-Awakening-of-Faith-Talk-10)
+1. [*The Awakening of Faith* – Talk 11: Alayavijnana and Tathagatagarbha](1984-05-18-Awakening-of-Faith-Talk-11)
+1. [*The Awakening of Faith* – Talk 12: Tathagatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
 
-1. *The Awakening of Faith* – Talk 11: Alayavijnana and Tathagatagarbha
-1. *The Awakening of Faith* – Talk 12: Tathagatagarbha
 1. *The Awakening of Faith* – Talk 13: Tathagatagarbha and Alayavijinana
 
 1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 1
