@@ -63,7 +63,7 @@ So very naturally, if you understand like this – if you understand trees, seve
 
 In other words, where is the peace? Where is the real relaxation? 
 
-I went to the college two days ago to talk about relaxation. *[He laughs.]* Well, anyway, you have to research: what is real relaxation? What is real peace? Even if intellectually you understand pretty well – if I say [it] again and again, if you listen to it like this, then you really understand it – but still, it’s pretty hard for us to get the peace and rest and relaxation. Where is it? 
+I went to the college two days ago to talk about relaxation. *[He laughs.]* Well, anyway, you have to research: what is real relaxation? What is real peace? Even if intellectually you understand pretty well – if I say [it] again and again, if you listen to it like this, then you really understand it – still it’s pretty hard for us to get the peace and rest and relaxation. Where is it? 
 
 This is our practice, every day. When you stand up, there is peace, real relaxation there. When you wash your face, there is perfect rest, perfect peace, perfect harmony, relaxation there. And then, you can really assert yourself, appreciate yourself. From this situation, you can really feel gratitude. 
 
@@ -73,9 +73,9 @@ So in your whole life, you have to research where is rest, where is the peace.
 
 > In his phrases there is no partiality – 
 
-So, whatever you say, “in his phrases there is no partiality” means his words directly hit the human heart. [...]
+“In his phrases there is no partiality” means [whatever you say, your] words directly hit the human heart. [...]
 
-“Phrases” means not only the words, but also your actions with your body, your actions with your mouth or with your silence, or with your mind. This is all actions, all phrases. Even silence has lots of phrases, words. So, silence is really [piercing], hitting people’s hearts, if you practice yourself on an everyday basis, understanding trees and also the whole nature behind the trees. At that time, even though you directly face the trees without saying [anything] – without composing a poem, just standing up – [still] people are really impressed by the trees, people are really moved by your presence. 
+“Phrases” means not only the words, but also your actions with your body, your actions with your mouth or with your silence, or with your mind. This is all actions, all phrases. Even silence has lots of phrases, words. So silence is really [piercing], hitting people’s hearts, if you practice yourself on an everyday basis, understanding trees and also the whole nature behind the trees. At that time, even though you directly face the trees without saying [anything] – without composing a poem, just standing up – [still] people are really impressed by the trees, people are really moved by your presence. 
 
 > ... everywhere he has the intention to kill people.
 
@@ -91,11 +91,13 @@ This is a simple story, a pretty usual story.
 
 Who can say why Pai Chang Zen Master asked like this? Could you say something about why he asked like this? [Why] Zen master Ma Tsu and Pai Chang were just walking together, and he asked like this?
 
-If you read the *agamas*, Shakyamuni Buddha also teaches like this: according to circumstances and opportunity when they meet. For instance, when Shakyamuni Buddha walked with a disciple by the river, and they saw a whirlpool in the river, he pointed to the whirlpool and said [something] about human suffering. Buddha explains like this, and also this case is the same thing: Zen master Ma Tsu and Pai Chang walk together, see the wild ducks, and he uses the circumstances and opportunity to talk about... what? Can you say?
+If you read the *agamas*, Shakyamuni Buddha also teaches like this: according to circumstances and opportunity when they meet. For instance, when Shakyamuni Buddha walked with a disciple by the river, and they saw a whirlpool in the river, he pointed to the whirlpool and said [something] about human suffering. Buddha explains like this, and this case is the same thing: Zen master Ma Tsu and Pai Chang walk together, see the wild ducks, and he uses the circumstances and opportunity to talk about... what? Can you say?
 
 *[Silence.]*
 
-Anything is okay... *[Laughter.]*
+Anything is okay... 
+
+*[Laughter.]*
 
 **Someone**: Maybe something about impermanence. Chang says they are flying away. But Ma says, are they really?
 
@@ -121,15 +123,15 @@ The pointer says here, I explained, the first line says, “The whole world does
 
 So that is a point of this koan. Master Ma-tsu really wanted Pai Chang to awaken to that situation, that point: the whole truth. “Truth” is really vague; you don’t understand what the truth is, you cannot grasp it. But it’s working. It’s not something apart from us, it’s always manifested, functioning with us, with all sentient beings. That point [is what] Zen Master Ma Tsu wanted to say. 
 
-So of course you can understand the flying away is implication of impermanence; that’s fine. But this is why the pointer says it like this. 
+So of course you can understand the flying away is [the] implication of impermanence; that’s fine. But this is why the pointer says it like this. 
 
 So, from this point, *wild duck* is the implication of truth. “The whole world doesn’t hide it”: it’s always manifested in everywhere. “The spiritual source shines clearly in the light”: *light* means phenomena; [it is] in the phenomena, always. And the Sandokai says, “The branching streams flow into the darkness.” *Darkness* means the truth. So always interconnected, interpenetrated, simultaneously. 
 
-And another point is: the truth, the spiritual source, shines clearly in the phenomena – so that means truth is always existing in the phenomena – simultaneously, “phenomena always flows into the darkness” means always truth. So you cannot grasp the phenomena as phenomena, because it’s always flowing into the darkness, truth. It means all phenomena – human body, human mind – no mind, no colors, [...] no eyes, no ears. We always chant [this]. Very naturally, strictly speaking, human body, human mind, all sentient beings, flow into darkness – that means the truth. So-called *emptiness* – or emptiness means *boundlessness*, or *countlessness*, or *eternity*, we can say. Or, *full presence*. We can say so. Full presence, full working, full dynamic working – that is the source, spiritual source. 
+And another point is: the truth, the spiritual source, shines clearly in the phenomena – that means truth is always existing in the phenomena. Simultaneously, “phenomena always flows into the darkness” means always truth – so you cannot grasp the phenomena as phenomena, because it’s always flowing into the darkness, truth. It means all phenomena – human body, human mind – no mind, no colors, [...] no eyes, no ears. We always chant [this]. Very naturally, strictly speaking, human body, human mind, all sentient beings, flow into darkness – that means the truth. So-called *emptiness*; or emptiness means [the same as] *boundlessness*, or *countlessness*, or *eternity*, we can say. Or, *full presence* – we can say so. Full presence, full working, full dynamic working. That is the source, spiritual source. 
 
-So you cannot grasp it: “this is a nose,” “this is a wild duck”. Both truth and wild duck, wild duck and also Pai Chang, [are] always working together. 
+So you cannot grasp it: “this is a nose”, “this is a wild duck”. Both truth and wild duck, wild duck and also Pai Chang, [are] always working together. 
 
-Working together – where? Always working together, interconnected, interpenetrated – you cannot separate them. But where is the point which you cannot separate? Where is it? You cannot separate truth or phenomena. Where is it? 
+Working together – where? [They are] always working together, interconnected, interpenetrated – you cannot separate them. But where is the point which you cannot separate? Where is it [where] you cannot separate truth or phenomena? Where is it? 
 
 **Someone:** Only in how we perceive it. You know, through mind we create a dualistic gap. 
 
@@ -145,13 +147,13 @@ Working together – where? Always working together, interconnected, interpenetr
 
 **Someone:** Right here. 
 
-**Katagiri Roshi:** Right here! Pretty good. Right here and now, that is *moment*. That moment is – if all things come together at a moment, and then within a moment, what is the point? What is the moment? 
+**Katagiri Roshi:** Right here! Pretty good. Right here and now, that is *moment*. [And] if all things come together at a moment, and then within a moment, what is the point? What is the moment? 
 
 *[Laughter.]*
 
 **Someone:** Just this.
 
-**Katagiri Roshi:** Just this! Nothing. You cannot pin down “this is a wild duck” or “this is Pai Chang”; you cannot say so. Just the moment. Is the moment moving pretty slow – do you think so? *[Laughter.]* Or pretty quick? At *super-speed*. 
+**Katagiri Roshi:** Just this! Nothing. You cannot pin down “this is a wild duck” or “this is Pai Chang”; you cannot say so. Just the moment. Is the moment moving pretty slow – do you think so? *[Laughter.]* Or pretty quick. At *super-speed*. 
 
 So, if you think the moment through your head, you can create the length of the moment. At that time, it’s too late to understand the moment as it really is. Because if you think the moment through your head, it’s already length of the moment, or width of the moment. The real moment, where the wild duck and Pai Chang come together, working together – there is no length, no width of moment. 
 
@@ -195,7 +197,7 @@ So finally:
 
 > The Great Master said, “When have they ever flown away?”
 
-So you cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. The basic nature of real reality [where] you are standing there is completely no comment. All you have to do is, you just be there. 
+You cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. The basic nature of real reality [where] you are standing there is completely no comment. All you have to do is, you just be there. 
 
 How do we know? It’s pretty hard. That’s why the Zen master twists his nose, and immediately crying and pain comes up. That is really pure, undefiled practice; completely beyond. Does that sound come from the wild duck? That sound comes from where? Pai Chang? No way. If you think so, that is *your* speculation. [It’s] just a scream. 
 
