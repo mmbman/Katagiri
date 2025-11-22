@@ -197,11 +197,11 @@ So finally:
 
 > The Great Master said, “When have they ever flown away?”
 
-You cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. The basic nature of real reality [where] you are standing there is completely no comment. All you have to do is, you just be there. 
+You cannot say when. Where is the wild duck? Where is Pai Chang? The moment where you think so, the wild duck is gone. *[He chuckles.]* If you *don’t* say so, the wild duck is also gone. *[He laughs.]* And finally, [you have] nothing to do. The basic nature of real reality [where] you are standing is completely no comment. All you have to do is, you just be there. 
 
-How do we know? It’s pretty hard. That’s why the Zen master twists his nose, and immediately crying and pain comes up. That is really pure, undefiled practice; completely beyond. Does that sound come from the wild duck? That sound comes from where? Pai Chang? No way. If you think so, that is *your* speculation. [It’s] just a scream. 
+How do we know? It’s pretty hard. That’s why the Zen master twists his nose, and immediately crying and pain comes up. That is really pure, undefiled practice; completely beyond. Does that sound come from the wild duck? [Does that sound come from] Pai Chang? No way. If you think so, that is *your* speculation. Just a scream. 
 
-Well, [if you think] “just a scream” means “just scream” – wherever you may go, you just scream. You cannot do that. We have to think about when you have to scream or when you shouldn’t scream. But sometimes, you can scream. Because if you scream, in a pure sense, the scream is beautiful. It makes you alive; it makes you awaken to [it]. 
+Well, [if you think] “just a scream” means “just scream”, [then] wherever you may go you just scream. You cannot do that. You have to think about when you have to scream or when you shouldn’t scream. But sometimes, you can scream. Because if you scream, in a pure sense, the scream is beautiful. It makes you alive; it makes you awaken to [it]. 
 
 ####  44:05 
 
@@ -250,11 +250,15 @@ Because Pai Chang knows pretty well who he is, and simultaneously who is Pai Cha
 
 > But Ma Tsu held him fast.  
 
-So very naturally Pai Chang wanted to fly away, but immediately Ma Tsu held him fast, because even though you want to be free from it, [still] you cannot forget that Ph.D degree. So you have to keep the Ph.D., but you cannot stay with the Ph.D.; you have to throw it away, but you cannot forget it. That is the real reality: where you are, how you work with the people. Without forgetting the Ph.D., but being free from Ph.D. – and then how you can share your life with people? 
+So very naturally Pai Chang wanted to fly away, but immediately Ma Tsu held him fast, because even though you want to be free from it, [still] you cannot forget that Ph.D degree. So you have to keep the Ph.D., but you cannot stay with the Ph.D. You have to throw it away, but you cannot forget it. That is the real reality: where you are, how you work with the people. Without forgetting the Ph.D., but being free from Ph.D. – and then how you can share your life with people? 
 
-That is where? That is a moment. That is a real reality. 
+That is where? 
 
-How? That is undefiled practice. Exactly. 
+That is a moment. That is a real reality. 
+
+How? 
+
+That is undefiled practice. Exactly. 
 
 So Ma Tsu held him fast and immediately said:
 
@@ -306,9 +310,9 @@ But on the other hand, Zen Master Ma Tsu holds him, grasps him, because he canno
 
 So I am here, climbing the mountain, so I cannot forget myself. But if I want to know the real rhythm of life or mountain’s life, I have to completely devote myself fully to the mountain’s life, constantly. That means fly away; I should fly away. That means forget the wild ducks; flown away. But on the other hand the Zen Master grasps him, because don’t forget *you*. 
 
-So “you are there”, “fly free from you” – [that contradiction], but both completely working together. Where? That is real reality, or moment. You have to be there, you have to act there. 
+So “you are there”, “fly free from you” – [that contradiction], but both completely working together. Where? That is real reality, or *moment*. You have to be there, you have to act there. 
 
-That is pretty hard because you have to balance both. How can you balance? Where? Not in the intellectual sense; right in the moment. That’s why it’s pretty hard. That is so-called *practice*. We have to practice. 
+That is pretty hard, because you have to balance both. How can you balance? Where? Not in the intellectual sense... right in the moment. That’s why it’s pretty hard. That is so-called *practice*. We have to practice. 
 
 #### 59:15
 
