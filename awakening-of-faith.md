@@ -22,7 +22,7 @@ This series of transcripts is in draft stage.
 - [Talk 10: Time and Ignorance](1984-05-16-Awakening-of-Faith-Talk-10)
 - [Talk 11: Alayavijnana and Tathagatagarbha](1984-05-18-Awakening-of-Faith-Talk-11)
 - [Talk 12: Tathagatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
-- Talk 13: Tathagatagarbha, Alayavijnana
+- [Talk 13: Tathagatagarbha, Alayavijnana](1984-05-24-Awakening-of-Faith-Talk-13)
 - *Talk 14 is missing*
 
 ###### Series 2
