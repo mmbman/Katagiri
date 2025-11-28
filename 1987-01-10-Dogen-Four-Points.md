@@ -129,11 +129,9 @@ When you drive a car on a freeway, I think first of all you experience seeing yo
 
 Manifesting your life in simplicity. That is [what we call] practice. 
 
-So practice is human action, but that human action is very *refined*. That’s why in Japanese we call it [*shigyo*]. [*Shigyo*] means refined action. (*Transcriber’s Note:* I don’t seem to have the correct word in Japanese. It sounds like “shi - go”.)
+So practice is human action, but that human action is very *refined*. That’s why in Japanese we call it [*shugyo*]. [*Shugyo*] means refined action. (*Transcriber’s Note:* I’m not sure I have the right Japanese word. It sounds like “shi - go”. *Shugyo* (修行) would make sense.)
 
-Dōgen Zenji [says it] like this: “The buddha way is to make myriad dharmas exist in the realization.” “In the realization” means in the realization of the oneness, unity. “The buddha way” means the true reality of your life. Relating with all other beings: that is the buddha way. You cannot think your life separate from all other beings. If you want to think of your life, you have to think your life *with* other beings. That is called *buddha way*, we say. Universal life. 
-
-The buddha way is to make myriad dharmas exist in the realization of the unity. That means everything is one. That means you should taste the teaching of impermanence, or no substantiality. Which means everything is one. 
+Dōgen Zenji [says it] like this: “The buddha way is to make myriad dharmas exist in the realization.” “In the realization” means in the realization of the oneness, unity. “The buddha way” means the true reality of your life. Relating with all other beings: that is the buddha way. You cannot think your life separate from all other beings. If you want to think of your life, you have to think your life *with* other beings. That is called *buddha way*, we say. Universal life. The buddha way is to make myriad dharmas exist in the realization of the unity. That means everything is one. That means you should taste the teaching of impermanence, or no substantiality. Which means everything is one. 
 
 And then next, he says, “... and to practice the total reality.” To practice the oneness *beyond* realization. *Beyond realization* means if you taste it, something deep, you attach to it. It’s very difficult to leave it, or to let it go. Do you understand? 
 
