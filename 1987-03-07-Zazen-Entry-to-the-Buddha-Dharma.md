@@ -267,7 +267,7 @@ Usually, through this spiritual life, you don’t believe this. But the [mountai
 
 **Someone:** Oh, good. [...]
 
-(*Transcriber’s Note:* The updated version of the book is *Flow: The Psychology of Optimal Experience*, by Mihaly Csikszentmihalyi. It is now a national bestseller. The original is out-of-print.)
+(*Transcriber’s Note:* The updated version of the book is *Flow: The Psychology of Optimal Experience*, by Mihaly Csikszentmihalyi. It is now a national bestseller. The original is out of print.)
 
 **Questioner:** So we shouldn’t... Secretly, we may have a feeling that we want that destruction to go away, right? [...]
 
