@@ -2,7 +2,7 @@
 title: "Katagiri Roshi’s Zazen Instruction"
 ---
 
-This is an audio recording of Katagiri Roshi offering zazen instruction, posted by Dharma Field Zen Center on YouTube. Katagiri Roshi visited a Menomonie, Wisconsin meditation group in 1981 and offered zazen instruction. This recording is a valuable resource, as Katagiri Roshi is offering the most basic instruction in Zen. Strongly recommended. 
+This is an audio recording of Katagiri Roshi offering zazen instruction to a meditation group in Menomonie, Wisconsin in 1981, posted by Dharma Field Zen Center on YouTube. This recording is a valuable resource, as Katagiri Roshi is offering the most basic instruction in Zen. 
 
 “Katagiri Roshi Meditation Instruction” on YouTube, posted by Dharma Field Zen Center:
 
@@ -153,35 +153,33 @@ And then you can stand up.
 
 [Listen to Part 3](https://www.youtube.com/watch?v=0ImK8BBFg3Y)
 
-I want to say a few points in zazen which are very important. 
+I want to [talk about] a few points in zazen which are very important. 
 
 I told you there are three crucial points you have to pay attention to in zazen: harmonizing the body, harmonizing the breath, harmonizing the mind. That is very important.
 
-So in this case, first of all you have to make arrangement of circumstances: the zendo, sitting place. So, not a messy room, not a stinky room; not too bright, not too dark; not too cold, not too hot; not much [draft]. So you should adjust the external circumstances for your sitting. 
+In this case, first of all you have to make arrangement of circumstances: the zendo, sitting place. So, not a messy room, not a stinky room; not too bright, not too dark; not too cold, not too hot; not much [draft]. You should adjust the external circumstances for your sitting. 
 
-And also, next, that is posture. Posture you have already learned. Proper physical posture means to keep balance; to keep your body balanced. If you have this straight posture like this, that is exactly you keep your body balanced, externally, physically. And simultaneously that’s connected with the nervous system – the brain stem. Central nerves and spinal cord are exactly connected. So if you have a proper posture physically, that means exactly the function of the brain stem works and keeps in balance, exactly. That’s exactly [what it] means. So that’s why sitting in proper posture is important. 
+And also, next is posture. Posture you have already learned. Proper physical posture means to keep your body balanced. If you have this straight posture like this, that is exactly that you keep your body balanced, externally, physically. And simultaneously that’s connected with the nervous system, the brain stem. Central nerves and spinal cord are exactly connected. So if you have a proper posture physically, that means exactly the function of the brain stem works and keeps in balance. That’s exactly [what it] means. So that’s why sitting in proper posture is important. 
 
-So if you’re sitting like *this*, *[demonstrating a posture]*, you cannot sit for long, and also you cannot really concentrate on the sitting. If you sit like *this*, which means too comfortable posture for you *[he laughs]*: at that time thinking, thoughts coming up. So it’s very difficult to become sort of tranquil. 
+So if you’re sitting like *this*, *[demonstrating a posture]*, you cannot sit for long, and also you cannot really concentrate on the sitting. If you sit like *this*, which means too comfortable posture for you *[he laughs]*: at that time [you are] thinking, thoughts are coming up. So it’s very difficult to become sort of tranquil. 
 
-So, that is physical posture. 
+That is physical posture. 
 
 And next, harmonizing the breath, harmonizing the mind. This is also very important. 
 
-External physical condition, or internal physical condition – the human body is characterized by sort of *homeostasis*. So harmonizing your breath, harmonizing your mind, that is exactly keeping the function of your brain stem completely in balance, creating a strong feeling of being present right-now-right-here. Because the central nerves [are] working pretty well, and also the frontal lobe, the cerebral cortex, really rests perfectly. When the cerebral cortex rests... if you can make it rest, well, it works very naturally, smoothly, without giving any pressure to the central nerve. So central nerves and your brainstem and cerebral cortex and all things work pretty well. So very naturally, the function of the hormones [works] pretty well, breathing [goes] pretty well. And then very naturally, the mind blooms: so-called *tranquil*. 
+External physical condition or internal physical condition – the human body is characterized by sort of *homeostasis*. So harmonizing your breath, harmonizing your mind, that is exactly keeping the function of your brain stem completely in balance, creating a strong feeling of being present right-now-right-here. Because the central nerves [are] working pretty well, and also the frontal lobe, the cerebral cortex, really rests perfectly. When the cerebral cortex rests... if you can make it rest, well, it works very naturally, smoothly, without giving any pressure to the central nerves. So central nerves and your brainstem and cerebral cortex and all things work pretty well; so very naturally, the function of the hormones [works] pretty well, breathing [goes] pretty well. And then very naturally, the mind blooms: so-called *tranquil*. So very naturally, you really feel strongly or stably *being present*, right-now-right-here.
 
-So very naturally, you really feel strongly or stably *being present*, right-now-right-here.
+On the other hand, when the external or internal physical condition operates pretty well, at that time you can create *vitalities*, you can feel really strong vitalities. 
 
-On the other hand, when the external or internal physical condition operates pretty well, at that time you can create vitalities, you can feel really strong vitalities. 
+So two things you can realize through this practice. You can feel exactly being present: completely beyond *you like* or *you don’t like*, just being present. You can notice this through this sitting. On the other hand, you can realize vitality. You want to *live*, you want to be present; that is vitality. 
 
-So two things you can realize through this practice. You can feel exactly being present, completely beyond you like or you don’t like, just being present. You can notice this through this sitting. On the other hand, you can realize vitality. You want to *live*, you want to be present; that is vitality. Two things come up. 
+Two things come up. So sometimes you don’t know what to do. Strong vitality comes up, energy comes up. *[He laughs.]* But at that time, don’t worry, don’t worry. Just let it go. Just... be with it. If you poke your head into something *extra*, something particular – vitality, energies – [either] depressing energies or strong energies, et cetera – that is a problem for you. So don’t worry. Whatever kind of energy comes up, all you have to do is just sit continually, keeping balance. 
 
-So sometimes you don’t know what to do. Strong vitality comes up, energy comes up. *[He laughs.]* But at that time, don’t worry, don’t worry. Just let it go. Just... be with it. But if you poke your head into something *extra*, something particular – vitality, energies – depressing energy or strong energies, et cetera – that is a problem for you. So don’t worry. Whatever kind of energy comes up, all you have to do is just sit continually, keeping balance. 
+So very naturally your whole body and mind is characterized by homeostasis, constantly keeping balance. That is influencing your life. And also you can fit your life into human society through this experience. So you bring your body and mind into human society, but your mind and body are very calm and keeping balance. And also, [...] you help somebody with this situation of your body and mind, even if you don’t say [anything]. 
 
-So very naturally your whole body and mind is characterized by homeostasis, constantly keeping balance. That is influencing your life. And also you can... fit your life into human society through this experience. So, you bring your body and mind into human society, but your mind and body are very calm and keeping balance. And also, [...] you help somebody with this situation of your body and mind, even though you don’t say [anything]. 
+So when you join human society, still you can really experience this feeling of being present stably and securely; on the other hand, [there is] a feeling of desire to be present. Both. But both are completely working in equality. So that is keeping balance; exactly keeping balance. 
 
-So when you join human society, still you can really experience this feeling of being present stably and securely; on the other hand, a feeling of desire to be present. Both. But both are completely working in equality. So that is keeping balance; exactly keeping balance. 
-
-You cannot always keep calm... because you have to act! Even if you sit down, it is acting. Even if you don’t say anything, it is acting. In order to act, you need vitality, energy. Don’t you think so? So, both. But both don’t interrupt each other; exactly keeping balance. This is characteristic of your bodies, externally or internally. That is called *homeostasis*. Completely. 
+You cannot always keep calm... because you have to act! Even if you sit down, it is acting. Even if you don’t say anything, it is acting. In order to act, you need vitality, energy. Don’t you think so? So, both. But both don’t interrupt each other; [they are] exactly keeping balance. This is characteristic of your bodies, externally or internally. That is called *homeostasis*. Completely. 
 
 Let’s keep this function, characteristic of your body and mind like this. 
 
@@ -189,39 +187,31 @@ Let’s keep this function, characteristic of your body and mind like this.
 
 You can help people like this, and also you can help yourself like this. So very naturally you can really enjoy yourself. 
 
-At that time, still [there] is a problem – so-called *egoistic*: “I am a great man” – like this. That is ego. It’s ego.
-
-Or, there is a very strong desire: “I want to keep this. I want to be a good boy, wherever I am, so I want to do zazen.” So sometimes [you] kick out anybody who interrupts you; [you kick them] out and [say], “I want do zazen.” You don’t care about family, you don’t care about school, you don’t care about the office. Sometimes you really want to do it. This is egoistic. In a sense, egoistic. 
+At that time, still [there] is a problem: so-called *egoistic*. “I am a great man” – like this. That is ego. It’s ego. Or, there is a very strong desire: “I want to keep this. I want to be a good boy, wherever I am, so I want to do zazen.” So sometimes [you] kick out anybody who interrupts you; [you kick them] out and [say], “I want do zazen.” You don’t care about family, you don’t care about school, you don’t care about the office. Sometimes you really want to do it. This is egoistic, in a sense.
 
 The more you realize how wonderful the function of homeostasis [is that] you can realize, it becomes selfish. So finally, all you have to do is: forget it! *[He chuckles.]* All you have to do is, day by day, just keep this practice. Just, on and on. Without expectation [of] anything. Just keep it. 
 
 That is a religious practice. *[He chuckles.]* Okay? 
 
-But before this, if you attach to the good aspect of your experience through zazen, at that time you create a certain expectation through the zazen. “Enlightenment! More, more, more!” Desires going endlessly. At that time, you cannot become peaceful, because, “More, more! Better life, better life!” It keeps you busy. So [where] is the peace? In zazen you are confused; you are not in peace. 
+But before this, if you attach to the good aspect of your experience through zazen, at that time you create a certain expectation through the zazen. “Enlightenment! More, more, more!” Desires going endlessly. At that time, you cannot become peaceful, because [you are thinking], “More, more! Better life, better life!” It keeps you busy. So [where] is the peace? In zazen you are confused; you are not in peace. 
 
-So zazen is exactly [a symbol of] peace. Exactly. That means around the zazen, [there is] nothing to touch to zazen. Only zazen is standing there. That’s all! But if you really realize how *wonderful* zazen is, you are exactly creating desire to experience something more: “I want to be a good boy,” “I want to help people,” “I want to do zazen more,” “I don’t care about human problems”... *[he laughs]* Always those things come up. And then very naturally: how many hours should I do it, in order to get the “good boy”? So very naturally it goes on and on, desires coming up. Don’t you think so? So where is the peace? You are completely doing the same things as you usually do. 
+Zazen is exactly [a symbol of] peace. Exactly. That means around the zazen, [there is] nothing to touch [the] zazen; only zazen is standing there. That’s all! But if you really realize how *wonderful* zazen is, you are exactly creating desire to experience something more: “I want to be a good boy,” “I want to help people,” “I want to do zazen more,” “I don’t care about human problems”... *[he laughs]* Always those things come up. And then very naturally [you ask], “How many hours should I do it, in order to get the ‘good boy’”? So very naturally it goes on and on, desires coming up. Don’t you think so? So where is the peace? You are completely doing the same things as you usually do. 
 
-But why do you do zazen? I don’t know why, but because consciously or unconsciously you want to be peaceful, don’t you? *[He laughs.]* Well, even if you don’t know, unconsciously or consciously you want to be present in peace and harmony, right now, right here. That’s all you have to do. For this, why don’t you just sit?
+But why do you do zazen? I don’t know why – but [it’s] because consciously or unconsciously you want to be peaceful, don’t you? *[He laughs.]* Well, even if you don’t know, unconsciously or consciously you want to be present in peace and harmony, right now, right here. That’s all you have to do. For this, why don’t you just sit?
 
-So [...] all you have to is harmonizing your mind, and body, and breath. And then you can realize the two feelings. [First,] being present, exactly. Beyond your like or dislike, you really appreciate your presence, realizing how valuable you are, [how valuable] your presence is. Second: strong vitality comes up, constantly. Both don’t bother each other; [they are] exactly keeping in balance. That is called peace, or tranquility. This is really helping people, and helping you. 
+So [...] all you have to is harmonize your mind, and body, and breath. And then you can realize the two feelings. [First:] being present, exactly. Beyond your like or dislike, you really appreciate your presence, realizing how valuable you are, [how valuable] your presence is. Second: strong vitality comes up, constantly. Both don’t bother each other; [they are] exactly keeping in balance. That is called peace, or tranquility. This is really helping people, and helping you. 
 
-But at that time, if you expect these rewards from zazen, it is exactly not religious practice, it is just like the same things as you do in your everyday life. Do something, and then what? Do something, and then what? I get [the two things], good things, and then what? Always *what*, *what*, *what*? That keeps you busy. In a sense, it’s fun. But in a sense it’s a cause of trouble. So you never find peace. 
+But at that time, if you expect these rewards from zazen, it is exactly not religious practice, it is just like the same things as you do in your everyday life. Do something, and then what? Do something, and then what? I get [the two] good things, and then what? Always *what*, *what*, *what*? That keeps you busy. In a sense, it’s fun, but in a sense, it’s a cause of trouble. So you never find peace. 
 
-But zazen is exactly to realize *who you are*. Not losing the energy, not losing the vitality, not losing yourself as you really are. That’s all you have to do. That is important for us. 
+But zazen is exactly to realize *who you are*. Not losing the energy, not losing the vitality, not losing yourself as you really are. That’s all you have to do. That is important for us. For this: whatever you experience, forget it! Okay? All you have to do is to carry it forever; just like the water of the Ganges river: just going. That is really great power, supporting your life, behind your life. You don’t see it – but it’s really great help. That is called security: *spiritual security*. 
 
-For this: whatever you experience, forget it! Okay? All you have to do is to carry it forever. Just like the water of the Ganges river: just going. That is really great power, supporting your life, behind your life. You don’t see it – but it’s really great help. That is called security: *spiritual security*. 
-
-But in the human world, always we can see something: if you do something, then you can get [some] power. Or mentally or physically or materialistically, you can get power. But that power is always you get the power, next moment it disappears. Don’t you think so? Always it disappears. And then next you can get more; and next moment it disappears. *What are you doing*, finally?
+But in the human world always we can see [some result]: if you do something, then you can get [some] power. Mentally or physically or materialistically, you can get power. But that [kind of] power is always [that] you get the power [and] next moment it disappears. Don’t you think so? Always it disappears. And then next you can get more; and next moment it disappears. *What are you doing*, finally?
 
 But zazen is not like this. 
 
-So wherever you can get power, physically or mentally: that’s fine. Don’t worry about that. All you have to do is just carry the zazen. Just like this. Through which you can get any kind of powers. You can get it, but the power you can get is not important; that is secondary. Helping so much... [well,] you can get it. But don’t worry about this; don’t hang around this. Appreciate it! Appreciate those experiences. But don’t hang around. All you have to do is just to carry your zazen. 
+So wherever you can get power, physically or mentally: that’s fine. Don’t worry about that. All you have to do is just carry the zazen, just like this. Through which you can get any kind of powers. You can get it, but the power you can get is not important; that is secondary. Helping so much... [well,] you can get it. But don’t worry about this, don’t hang around this. Appreciate it! Appreciate those experiences. But don’t hang around. All you have to do is just to carry your zazen. That means experience that perfect harmony. You can experience harmony, and you can help others, and you can help *you*. 
 
-That means experience that perfect harmony. You can experience harmony, and you can help others, and you can help *you*. 
-
-And then Dōgen Zenji says finally, “This experience should be shared with not only your friends, [but] all sentient beings.” Anyway, give it to all sentient beings. 
-
-So – why should I keep it? *[He laughs.]* All I can keep is, just zazen. So whatever I can have, share it with all sentient beings. Give it. And then, that is a great practice for us. Very naturally you can get [real] power, behind the power you can see. That is called *personality*; spiritual security. That is deepening your life. 
+And then Dōgen Zenji says finally, “This experience should be shared with not only your friends, [but] all sentient beings.” Anyway, give it to all sentient beings. So – why should I keep it? *[He laughs.]* All I can keep is just zazen. So whatever I can have, share it with all sentient beings. Give it. And then, that is a great practice for us. Very naturally you can get [real] power, behind the power you can see. That is called *personality*; spiritual security. That is deepening your life. 
 
 Okay. That’s all. 
 
@@ -231,31 +221,31 @@ Okay. That’s all.
 
 Do you have questions about zazen? Any questions?
 
-**Question:** Is there any mantra or anything that you use during meditation? 
+**Question:** Is there any mantra or anything used during meditation? 
 
-**Katagiri Roshi:** No. No mantra. Okay? *[He laughs.]* That’s pretty hard, but... nothing brought into your zazen. So all you have to do is just take best care of your zazen, using the physical body, and mind. That’s all you have to do. If you bring something extra, so-called *mantra*, so-called statements given by Jesus or Buddha, et cetera, that is extra. *Extra* means here is one thing; something extra here. 
+**Katagiri Roshi:** No. No mantra. Okay? *[He laughs.]* That’s pretty hard, but... [bring nothing] into your zazen. All you have to do is just take best care of your zazen, using the physical body, and mind. That’s all you have to do. If you bring something extra, so-called *mantra*, so-called statements given by Jesus, or Buddha, et cetera, that is *extra*. 
 
-If you have an *extra*, you can see this finger objectively, you cannot be exactly subjective. Do you understand? If you do zazen, you must be zazen. You must be zazen. But if you bring a mantra or whatever it is, it’s extra. So through the mantra you can touch the zazen: “Ha ha, good zazen.” *[He laughs.]* But that is already you stir up the water to make it dirty. Do you understand?
+“Extra” means “here is one thing, [but there is] something extra here.” If you have an *extra*, you can see this finger objectively, you cannot be exactly subjective. If you do zazen, *you must be zazen*. You must be zazen. But if you bring a mantra or whatever it is, it’s extra. So through the mantra you can touch the zazen: “Ha ha, good zazen!” *[He laughs.]* But that is already you stirring up the water, making it dirty. Do you understand?
 
 #### 4 - 1:37
 
 **Question:** Could you go over the eyes again? They are staring at an area, not a spot? Is that what you said? 
 
-**Katagiri Roshi:** Don’t stare at one point on the floor. For instance tiny things; if you stare at it for long, you can make a visualization of light: blue light, green light, sometimes animal face, sometimes human face comes up, on the floor. It’s very natural. So don’t glare at one point. 
+**Katagiri Roshi:** Uh... don’t stare at one point on the floor. For instance, tiny things. If you stare at [tiny things] for a long time, you can make visualizations of light: blue light, green light; sometimes an animal face, sometimes a human face comes up, on the floor. It’s very natural. 
 
-So that’s why I told you, just cast your eyes down on the floor, looking a little broad area, in the same distance as your sitting height. That’s pretty good. Because when you see the visualization of animal face or human face from the floor [stains], that means indication of your eye nerve exhausting, completely exhaust. So you can see the light. Do you understand what I mean? If you exhaust physically and mentally, well, very naturally you can see something. 
+So don’t glare at one point. That’s why I told you, just cast your eyes down on the floor, looking at a little broad area, and in the same distance as your sitting height. That’s pretty good. Because when you see the visualization of an animal face or human face from the floor [markings], that is an indication of your eye nerve [being completely exhausted]. So you can see the light. Do you understand what I mean? If you exhaust [yourself] physically and mentally, well, very naturally you can see something. 
 
-So in zazen it very clearly comes up, in many ways. Light, or sometimes voice coming in. *[He laughs.]* Sometimes you’re really sensitive, too sensitive – sensitive to the sound, sensitive to the quietness. That is already your nerves are exhausted. Don’t use your nerves too much. Just let go of your nerves, your external and internal organs. That is pretty hard, but through zazen, if you just follow this way of zazen, you can do it. 
+So in zazen it very clearly comes up, in many ways: light, or sometimes a voice coming in. *[He laughs.]* Sometimes you’re really sensitive; too sensitive. Sensitive to the sound, sensitive to the quietness. That is already your nerves are exhausted. Don’t use your nerves too much. Just let go of your nerves, your external and internal organs. That is pretty hard. But if you just follow this way of zazen, you can do it. 
 
-But sometimes you can close your eyes, for a while. Because open eyes is a way of living. If you open your eyes, this is a philosophy: how much you be involved in the human world. If you open your eyes wide, that’s too much, you’re involved too much in the world. *[He laughs.]* Politics, or whatever it is. So you cannot get out. On the other hand, if you really hate the human world and you try to withdraw, that is also trouble. That is closing eyes. If you withdraw, you can become alone, but still you have lots of problems because already you have had lots of preconceptions in your head. So if you become alone, you really enjoy your “visualizations.” Nobody interrupts you; that is a problem, though. Nobody tells you; nobody there. You can be just alone, and then you can play with your own [preconceptions]. That is a problem.
+But sometimes you can close your eyes, for a while. Because opening your eyes is a way of living. If you open your eyes, this is a philosophy: how much you should be involved in the human world. If you open your eyes wide, that’s too much! *[He laughs.]* You’re involved too much in the world – politics, or whatever it is. So you cannot get out. On the other hand, if you really hate the human world and you try to withdraw, that is also trouble. That is closing the eyes. If you withdraw, you can be alone – but still you have lots of problems, because already you have lots of preconceptions in your head. So if you become alone, you really enjoy your “visualizations”. Nobody interrupts you. That is a problem, though. Nobody tells you [anything]; nobody there. You can just be alone, and then you can play with your own [preconceptions]. That is a problem.
 
-So that’s why open your eyes just slightly. That means contacting with object outside, external world. Just slightly. And then it gives you suggestions: “Hey, what are you thinking?” So you can come back to yourself. That’s why this is just slightly open. 
+So that’s why [we say] open your eyes just slightly. That means contacting with the object outside, the external world – just slightly. And then it gives you suggestions: “Hey, what are you thinking?” So you can come back to yourself. That’s why [we say] “just slightly open.” 
 
 #### 4 - 5:48
 
 **Question:** What is *shikantaza*?
 
-**Katagiri Roshi:** *Shikantaza*. *Shikan* means... I don’t know how to translate... *Shikan* is in this case a noun and also and adverb. *Shikan* means *wholeheartedly* or *wholeheartedness*. Just like smoke going straight up in the sky without moving, because there is no wind. Just straight up. That is the state of your effort. 
+**Katagiri Roshi:** *Shikantaza*. *Shikan* means... I don’t know how to translate... *Shikan* is in this case a noun and also an adverb. *Shikan* means *wholeheartedly* or *wholeheartedness*. Just like smoke going straight up in the sky without moving because there is no wind. Just straight up. That is the state of your effort. 
 
 **Questioner:** It’s not like a certain type of meditation? 
 
@@ -265,31 +255,27 @@ So that’s why open your eyes just slightly. That means contacting with object 
 
 **Katagiri Roshi:** *Shikantaza* is a type of... yes.
 
-**Questioner:** ... and the Rinzai practices *koans*, and I just wasn’t sure what it meant. 
+**Questioner:** ... and the Rinzai practice *koans*, and I just wasn’t sure what it meant. 
 
-**Katagiri Roshi:** Well, *koan* is another Zen practice. But *shikantaza* is, if you want to say [so], that is a type of meditation. But it is not a particular type of meditation separate from other meditation; it is because this *shikantaza* is exactly... I don’t know... *essence* of practice of zazen, meditation. Even if you don’t use anything, or even if you don’t have any idea of zazen, or whoever you are – clever person or poor person, stupid, whoever you are – if you do zazen like this, you can do it, exactly. Even though you don’t pass any *koan*, even if you don’t know *koans*. Even if you don’t know Buddhism. Even if you don’t know what life is. But why don’t you sit like this? This is exactly the way of realizing who you are, touching directly who are you. That is *shikantaza*. 
+**Katagiri Roshi:** Well, *koan* is another Zen practice. But *shikantaza* is, if you want to say [so], [it] is a type of meditation. But it is not a particular type of meditation separate from other meditation; because this *shikantaza* is exactly... I don’t know... the *essence* of the practice of zazen, meditation. Even if you don’t use anything, or even if you don’t have any idea of zazen, or whoever you are – clever person or stupid person, whoever you are – if you do zazen like this, you can do it, exactly. Even if you don’t pass any *koan*, even if you don’t know *koans*, even if you don’t know Buddhism, even if you don’t know what life is – why don’t you sit like this? This is exactly the way of realizing who you are, touching directly who are you. That is *shikantaza*. 
 
 Okay, any others?
 
 #### 4 - 8:14
 
-**Question:** Roshi? From sitting, oftentimes I get real tired, and my knees get real sore. I find myself fixating on the discomfort. Is it best to move, or to try to stay with that and let it pass? 
+**Question:** Roshi? From sitting, oftentimes I get real tired, my knees get real sore. I find myself fixating on the discomfort. Is it best to move, or to try to stay with that and let it pass? 
 
-**Katagiri Roshi:** No, I don’t say yes, I don’t say no. *[He laughs, and the audience laughs.]*
+**Katagiri Roshi:** I don’t say yes, I don’t say no. *[He laughs, and the audience laughs.]*
 
-If I say “yes,” very naturally your zazen is regulated by “Katagiri says ‘yes’.” So pretty easily you become lazy, because Katagiri says, “I can move it.” So you cannot practice patience. You know? 
+If I say “yes,” very naturally your zazen is regulated by “Katagiri says ‘yes’”. So pretty easily you become lazy, don’t you think so? Because “Katagiri says I can move.” So you cannot practice patience, you know? 
 
 But if I say “don’t move,” you say, “Well...” *[Laughter.]* “I don’t like it.” *[He laughs.]* You hate me. Well, it’s okay to hate me, but you don’t want to do zazen, anyway. 
 
-So whatever I say, it’s not correct. Don’t you think so? *[They laugh.]*
+So whatever I say, it’s not correct. Don’t you think so? *[They laugh.]* So what I want to tell you is, “Do your best.” Do your best. Under all circumstances, do your best. That’s all you have to do. 
 
-So what I want to tell you is, “Do your best.” Do your best. Under all circumstances, do your best. That’s all you have to do. 
+Anyway, human life is very strange – funny, you know? *[He chuckles.]* We want to get certain rules and certain “frames”, about zazen, breathing... That’s interesting. To the minimum, you have to have certain information, rules, et cetera. But if you do zazen, right in the middle of the rules, many things come up! You don’t know how to take care of it. So very naturally you want to make a rule: how to deal with this one, or *B*, and *C*, and *A*. And then gradually you make rules... *lots of* rules. Katagiri says “do this, and when you deal with *A*, you can move.” So if you see the A, very naturally you can move. If you see *B*: forget it. So, just forget it. So there is no sense of subjectivity. *Who* is doing zazen? *You* do zazen. [It’s] not *regulations* doing zazen! *[He laughs.]* If I make rules, always giving rules to you like this – who is doing zazen? No sense of subjectivity. 
 
-Anyway, human life is very strange – funny, you know? *[He chuckles.]* We want to get certain rules and certain “frames”: about zazen, breathing... That’s interesting. But zazen... to the minimum you have to have certain information, rules, et cetera. But right in the middle of the rule, if you do zazen, many things come up! You don’t know how to take care of it. So very naturally you want to make a rule: how to deal with this one, or B, and C, and A. And then gradually you make rules... *lots of* rules. Katagiri says “do this, and when you deal with A, you can move it.” So if you see the A, very naturally you can move it. If you see the B: *forget it*. So, just forget it.
-
-So there is no sense of subjectivity. *Who* is doing zazen? *You* do zazen. [It’s] not *regulations* doing zazen! *[He laughs.]* But if I make rules – always like this, giving rules to you – who is doing zazen? No sense of subjectivity. 
-
-That is really a trap. And human beings really like it! But if you fall into this, you really struggle and you suffer. But on the other hand, you like it! Just like ants – always they like very much honey. They climb the honey bottle, and fall into the honey. They cannot get out. 
+That is really a trap. And human beings really like it! But if you fall into this, you really struggle and you suffer. But on the other hand, you like it! Just like ants – always they very much like honey. They climb into the honey bottle and fall into the honey. They cannot get out. 
 
 So that is human beings. Very strange. But on the other hand, it’s fun. *[He laughs.]*
 
