@@ -19,17 +19,21 @@ This is an audio recording of Katagiri Roshi offering zazen instruction to a med
 
 [Listen to Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
 
-[...] *Zazen* means Zen meditation: in Japanese *za*-*zen*. *Za* is sitting, *zen* is zen, tranquility. I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
+*Zazen* [is] Zen meditation: in Japanese *za*-*zen*. *Za* is sitting. *Zen* is zen, tranquility. 
 
-In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) [...] That means you have to sit with more than two beings; not only human beings. You cannot sit alone. So you should sit with more than two beings – in the earth, in the universe, not in your own egoistic, selfish territory. If you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
+I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
 
-And then, very naturally through *this* sitting, that sitting is exactly *zen*, tranquility. Because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
+In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) [...] That means you have to sit with more than two beings, [and] not only human beings; you cannot sit alone. So you should sit with more than two beings – in the earth, in the universe – not in your own egoistic, selfish territory. 
+
+[If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. And then very naturally [...] *that* sitting is exactly *zen*, tranquility – because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
 So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do. 
 
-Don’t expect anything *special*, okay? [Other than] this. Just do your best to do *this* zazen. 
+Don’t expect anything *special*, [other than] this. Just do your best to do *this* zazen. Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. 
 
-Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. So that’s all you have to do. But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something else! So very naturally you cannot [be] always exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. So when you want to do zazen, anyway, do your zazen. That’s all we have to do!
+So that’s *all* you have to do. But if you expect even slightly something *from* zazen, zazen becomes a means to an end. At that time, [there is] *zazen* and also *purpose*. So very naturally, there is something else! So very naturally you cannot [be] always exactly sitting, you cannot do your best to do sitting, because you expect something extra, [other than] zazen. 
+
+So when you want to do zazen, anyway, do your zazen. That’s all we have to do!
 
 If you feel hungry, all you have to do is just eat. And then *after* eating you can very naturally see something. But *before* you eat, you cannot expect a full stomach, because you [haven’t eaten] yet. So all you have to do is, you have to eat. 
 
@@ -37,13 +41,11 @@ But intellectually you have to know: what is zazen, what is the purpose, what’
 
 It’s not just eat *blindly*. With your *full* attention, your full kindness – then you eat. And then very naturally, you can see something else. 
 
-So, that is zazen. But usually we always expect something before you do zazen, [we expect something] from the zazen. Don’t you think so? So always your mind is spinning: “What is zazen? What’s the purpose of zazen?” If you do zazen, you have heard something about zazen from your friends, or from books: “Zazen makes you calm.” So very naturally you expect calmness; when you sit in zazen, then you expect the calmness. But actually your mind is busy! It’s pretty hard to find the calmness. So you are confused very much. 
+So, that is zazen. But usually we always expect something *before* you do zazen, [we expect something] *from* the zazen. Don’t you think so? So always your mind is spinning: “What is zazen? What’s the purpose of zazen?” If you do zazen, you have heard something about zazen from your friends or from books: “Zazen makes you calm.” So very naturally when you sit in zazen you expect the calmness. But actually your mind is busy! It’s pretty hard to find the calmness. So you are confused very much!
 
-So calmness or not calmness, that is an intellectual understanding, temporarily. “What is zazen? What is the purpose? What do you mean?” Et cetera. “Why do you have to do it?” Many reasons there. But when you start to do zazen, forget those explanations and just sit. 
+So calmness or not calmness, that is an intellectual understanding, temporarily. “What is zazen? What is the purpose? What do you mean?” Et cetera. “Why do we have to do this?” Many reasons there. But when you start to do zazen, *forget those explanations and just sit*. 
 
-There are three points we have to follow: harmonizing body; harmonizing mind; harmonizing your breath. Three points, in zazen.
-
-So, let me show [you] first how to do zazen. And then I will explain a little bit, after that. 
+There are three points we have to follow in zazen: harmonizing body, harmonizing mind, harmonizing your breath. So, let me show [you] first how to do zazen. And then after that, I will explain a little bit. 
 
 #### 6:30
 
