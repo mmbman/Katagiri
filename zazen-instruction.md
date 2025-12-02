@@ -19,7 +19,7 @@ This is an audio recording of Katagiri Roshi offering zazen instruction to a med
 
 [Listen to Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
 
-*Zazen* [is] Zen meditation: in Japanese *za*-*zen*. *Za* is sitting. *Zen* is zen, tranquility. 
+*Zazen* [is] Zen meditation: in Japanese *za*-*zen*. *Za* is “sitting”. *Zen* is zen, “tranquility”. 
 
 I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
 
