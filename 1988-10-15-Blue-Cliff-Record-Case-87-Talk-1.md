@@ -27,6 +27,8 @@ The case:
 
 This is the case. 
 
+#### 2:27
+
 Let me explain the pointer first, simply. The key point is that we as human beings shouldn’t express our strong individual experience in our own life, staying with it and emphasizing it too much, and forcing people to learn that experience. Your life must be in fluidity, like water: constantly deepening your life, day to day. That is [the] point it says. 
 
 > A clear-eyed fellow has no nest: ...
