@@ -216,17 +216,17 @@ So, that’s why, and at the same time, the rest of beings do not appear in fron
 
 That’s why Dogen Zenji says, “when you witness one side, one side is obscure.” (*Transcriber’s Note:* This is from *Genjokoan*.) When one side, your life, appears precisely and clearly, so-called *I*, at that time the rest of the beings, the other persons and trees, birds, don’t appear in front. Their life becomes very obscure; but they always support you as the contents of your life. That’s why you cannot ignore others’ life. 
 
-But apparently, egoistic sense always tries to ignore, and is saying “don’t touch me.” That is a human problem that always happens. 
+But apparently, the egoistic sense always tries to ignore, and is saying “don’t touch me.” That is a human problem; that always happens. 
 
-And then from this, in this case, Yun Men teaching this community said, “Medicine and disease subdue each other.” 
+#### 47:37
+
+And then from this: in this case, Yun Men teaching this community said, “Medicine and disease subdue each other.” 
 
 So [...] all the world becomes medicine; the whole world becomes medicine. And then, on the other hand, the whole world becomes disease. Because when you pick up a disease, the whole world becomes disease. And then, next moment, when you pick up another frame of a net, called *medicine*, the whole world becomes medicine. 
 
 This is true. 
 
-So very naturally, if you see the human world as a medicine, all becomes medicine. But if you see the whole world as in terms of your disease, the whole world becomes disease. 
-
-But strictly speaking, the basic nature of existence cannot be pinned down by any ideas. “The whole world is disease”, “the whole world is medicine” – no. Only when you pick up *medicine* – a frame of the one net as medicine – the whole world is medicine.
+So very naturally, if you see the human world as a medicine, all becomes medicine. But if you see the whole world as in terms of your disease, the whole world becomes disease. But strictly speaking, the basic nature of existence cannot be pinned down by any ideas. “The whole world is disease”, “the whole world is medicine” – no. Only when you pick up *medicine* – a frame of the one net as medicine – the whole world is medicine.
 
 Because psychological affliction makes your body sick, more and more. But if your mental situation is peaceful, and face the disease and the sickness without any sense of escaping from it, at that time, wherever you may go, the mental aspect of human life really helps for the recovery of your sickness. The physical situation is connected with mental. So if you see whole universe like this, the whole universe is medicine at that time, wherever you may go. You can carry disease, sickness, but nevertheless you can walk step by step, one by one, always in the path of recovery. 
 
