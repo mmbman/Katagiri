@@ -101,9 +101,9 @@ You have already lots of knowledge of charitable heart, or kindness, or consider
 
 So “to save people” means to walk. That is really Buddha’s way. 
 
-And leadership – we use the [words] *leadership* or *teacher*. If we say “I save you,” at that time there is a discrimination: “I” and “you”. “I” am superior; “you” are inferior; because “I” am saving “you”. *[He chuckles.]* So very naturally there is a discrimination there. But the real meaning of “leadership” or “spiritual teacher” must be a *peaceful walker*. Forever, under all circumstances: this is Buddha’s life, bodhisattvas’ life. Not under particular circumstances.
+And leadership – we use the [words] *leadership* or *teacher*. If we say “I save you,” at that time there is a discrimination: “I” and “you”. “I” am superior; “you” are inferior; because “I” am saving “you”. *[He chuckles.]* So very naturally there is a discrimination there. But the real meaning of “leadership” or “spiritual teacher” must be a *peaceful walker*. Forever, under *all* circumstances: this is Buddha’s life, bodhisattvas’ life. Not under particular circumstances.
 
-“To save people according to their type, he mixes with mud and water” – that is just like man and water becomes one. Because human beings have completely different personality, different characters. There is no same type of human beings. Even though your experience day to day is not always the same, if there are ten people, ten people always brings different lifestyle, different problems, different experiences. Every day, different. 
+“To save people according to their type, he mixes with mud and water” – that is just like mud and water become one. Because human beings have completely different personality, different characters. There is no same type of human beings. Even though your experience day to day is not always the same, if there are ten people, ten people always brings different lifestyle, different problems, different experiences. Every day, different. 
 
 So, from this point, if I see some person, that is like mud and water. Temporarily we can say “mud”, temporarily we can say “water”, but water and mud must walk together in peace and harmony. This is Buddha’s way. 
 
