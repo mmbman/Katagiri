@@ -33,15 +33,13 @@ Let me explain the pointer first, simply. The key point is that we as human bein
 
 > A clear-eyed fellow has no nest: ...
 
-That’s [because] there is nothing to hide, [nothing] to be hidden. Always a clear-eyed person has no place to be hidden [or] to hide; that means he is always open, [manifesting] himself according to circumstances and according to individual different persons, et cetera. 
+That’s [because] there is nothing to hide, [nothing] to be hidden. Always a clear-eyed person has no place to be hidden [or] to hide. That means he is always open, [manifesting] himself according to circumstances and according to individual different persons, et cetera. 
 
 So that’s why next it says, 
 
 > sometimes on the summit of the solitary peak weeds grow in profusion; ...
 
-“On the summit of the solitary peak” means Buddha. In other words, perfect aloneness, absolute aloneness in whole world – that is Buddha. Buddha appears. But “weeds grow in profusion”: that [means] his compassion always comes out [of] his life. Wherever he may go he is always alone absolutely, and nevertheless [there are] many people around and his compassion is over them. 
-
-That is here it says “sometimes on the summit of solitary peak weeds grow in profusion.” This “weeds grow in profusion” means compassion. The human world needs compassion, Buddha’s compassion; that’s why weeds grow in profusion. 
+“On the summit of the solitary peak” means Buddha. In other words, perfect aloneness, absolute aloneness in the whole world – that is Buddha. Buddha appears. But “weeds grow in profusion”: that [means] his compassion always comes out [of] his life. Wherever he may go, he is always alone absolutely, and nevertheless [there are] many people around, and his compassion is over them. That is [why it says here] “sometimes on the summit of solitary peak weeds grow in profusion.” This “weeds grow in profusion” means the human world needs compassion, Buddha’s compassion. [...]
 
 > ... sometimes he is naked and free in the bustling marketplace. 
 
