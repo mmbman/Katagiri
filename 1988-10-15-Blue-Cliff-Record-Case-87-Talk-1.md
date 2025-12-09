@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 87: Medicine and Disease Subdue Each Other – Ta
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
+<p align="center"><b>This transcript is in draft stage.</b></p>
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-87-lecture-1" target="_blank">Listen to this talk</a>
