@@ -37,11 +37,11 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 **Latest Updates:**
 
+- December 9, 2025: Posted draft of [*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 1](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1).
 - November 10, 2025: Posted draft of [“*Blue Cliff Record* Case 53: Pai Chang’s Wild Ducks”](1984-01-25-Blue-Cliff-Record-Case-53).
 - October 20, 2025: Posted draft of [“*The Awakening of Faith* – Talk 10: Time and Ignorance”](1984-05-16-Awakening-of-Faith-Talk-10).
 - October 2, 2025: Posted [“*Shōbōgenzō Kokyo*: Form and Mirror – Talk 2”](1986-10-19-Shobogenzo-Kokyo-Talk-2).
 - September 13, 2025: Posted draft of [“*Shōbōgenzō Kokyo*: Form and Mirror – Talk 1”](1986-10-18-Shobogenzo-Kokyo-Talk-1).
-- August 30, 2025: Worked on [*The Awakening of Faith*](awakening-of-faith) talks 1 through 9.
 
 Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
 

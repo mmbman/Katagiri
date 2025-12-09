@@ -465,7 +465,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 12
 
-1. *Blue Cliff Record* Case 87 Talk 1
+1. [*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 1](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1)
 1. *Blue Cliff Record* Case 87 Talk 2
 
 1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 1

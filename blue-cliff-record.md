@@ -116,5 +116,6 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1
 - Case 84 Talk 4: Three Aspects of Buddha's Silence
 - Case 86 Talk 1
 - Case 86 Talk 2
-- Case 87 Talk 1
+
+- [Case 87: Medicine and Disease Subdue Each Other – Talk 1](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1)
 - Case 87 Talk 2

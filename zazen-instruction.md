@@ -27,7 +27,7 @@ In Chinese, etymologically, the *za* [is that] two persons sit in the universe. 
 
 [If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. And then very naturally [...] *that* sitting is exactly *zen*, tranquility – because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
-So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. So all we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do. 
+So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. All we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do. 
 
 Don’t expect anything *special*, [other than] this. Just do your best to do *this* zazen. Just like a spinning top. The top is spinning; just spinning. At that time, the top becomes still on the floor, very naturally. 
 
