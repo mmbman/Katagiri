@@ -39,7 +39,7 @@ So that’s why next it says,
 
 > sometimes on the summit of the solitary peak weeds grow in profusion; ...
 
-“On the summit of the solitary peak” means Buddha. In other words, perfect aloneness, absolute aloneness in whole world – that is Buddha, Buddha appears. But “weeds grow in profusion”: that is compassion. His compassion always comes out [of] his life. So wherever he may go he is always alone absolutely, and nevertheless [there are] many people around and his compassion is over them. 
+“On the summit of the solitary peak” means Buddha. In other words, perfect aloneness, absolute aloneness in whole world – that is Buddha. Buddha appears. But “weeds grow in profusion”: that [means] his compassion always comes out [of] his life. Wherever he may go he is always alone absolutely, and nevertheless [there are] many people around and his compassion is over them. 
 
 That is here it says “sometimes on the summit of solitary peak weeds grow in profusion.” This “weeds grow in profusion” means compassion. The human world needs compassion, Buddha’s compassion; that’s why weeds grow in profusion. 
 
