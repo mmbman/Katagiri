@@ -118,4 +118,4 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1
 - Case 86 Talk 2
 
 - [Case 87: Medicine and Disease Subdue Each Other – Talk 1](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1)
-1. [Case 87: Medicine and Disease Subdue Each Other – Talk 2](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2)
+- [Case 87: Medicine and Disease Subdue Each Other – Talk 2](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2)
