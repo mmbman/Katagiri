@@ -3,7 +3,7 @@ title: "Devotion: Walking Alone with Open Heart"
 ---
 ## December 24, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
+#### [Previous](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2) | [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
 
 ### Summary
 
@@ -280,4 +280,4 @@ In order to walk, you need a peaceful way of life, more or less; because you don
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
+#### [Previous](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2) | [Next](1989-01-07-Dealing-with-Death-Dealing-with-Life) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)

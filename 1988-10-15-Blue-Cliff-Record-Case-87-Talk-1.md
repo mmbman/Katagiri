@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 87: Medicine and Disease Subdue Each Other – Ta
 ---
 ## October 15, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1988-10-05-Review-and-Renew) | [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1988-10-05-Review-and-Renew) | [Next](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -109,7 +109,7 @@ So, from this point, if I see some person, that is like mud and water. Temporari
 
 > If suddenly he releases an opening upwards, not even the Buddha’s eye could see him; ...
 
-“He releases an opening upward” – I don’t know, this is a little funny translation. Do you understand this? “If suddenly he releases an opening upward.” I don’t know... kind of, would you say, a single path, moving towards the truth. That [is the meaning of] “upward”. “Downward” means to descend to the human world, that is downward. 
+“He releases an opening upward” – I don’t know, this is a little funny translation. Do you understand this? “If suddenly he releases an opening upward.” I don’t know... kind of, would you say, a single path, moving towards the truth. That [is the meaning of] “upward”. “Downward” means to descend to the human world; that is “downward”. 
 
 So there are two ways for human life: it must be based on going upward and going downward. *Upward* means seeking constantly for the truth; going up. And *downward* means even if you seek for the truth through the practice, if your life is not rooted in the human world it doesn’t make sense, so you have to come back to human world, you have to live with all beings. Those are the two types. 
 
@@ -250,4 +250,4 @@ That is not something you try to discuss. You have to sit down, always, like tha
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1988-10-05-Review-and-Renew) | [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1988-10-05-Review-and-Renew) | [Next](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
