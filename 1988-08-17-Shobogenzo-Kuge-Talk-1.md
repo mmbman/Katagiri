@@ -1,0 +1,327 @@
+---
+title: "Shōbōgenzō Kuge: Flowers in the Sky – Talk 1"
+---
+## August 17, 1988 Dharma Talk by Dainin Katagiri Roshi
+
+#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Kuge](kuge)
+
+### Transcript
+
+**This transcript is in rough draft stage.**
+
+<p align="center" style="font-style: italic">
+<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/flowers-in-the-sky-1-of-12" target="_blank">Listen to this talk</a>
+</p>
+
+#### 0:00
+
+**Katagiri Roshi:** Let’s [look at] the introduction by Thomas Cleary [of] “Flowers in the Sky” – *Kuge* in Japanese. Shall we read? 
+
+**Reader:**
+
+> This essay is strongly colored with the Kegon doctrine of the interpenetration of reality and illusion. Reality, in Kegon terms, means the interdependence of all things, which also means the “emptiness” of things in themselves. Particular emphasis is placed in this essay on counteracting nihilistic tendencies in the interpretation of emptiness and illusoriness: this may be noted time and again as one of Dōgen’s persistent themes.
+>
+> This point of emphasis is summed up in Dōgen’s reversal of the focus of a traditional expression, “flowers in the sky.” This term refers to that which is illusory or unreal; but where it conventionally had a negative connotation, Dōgen uses it here in a positive way. That is, instead of treating illusion as something to be annihilated, Dōgen points out that all is illusion, and being empty in its very essence is in that sense identical to absolute reality.
+> 
+> This is like saying that all existence is relative and therefore empty of absolutes, so to realize emptiness it is not necessary to annihilate existence. In fact, the very idea of annihilating presumes existence as something in itself real, hence is illusion within illusion. Dōgen points out that not only mundane things are ‘‘flowers in the sky” but so are the Buddhist teachings themselves. This might be said to be a fundamental point of departure of Mahayana Buddhism, as articulated by the great dialectician Nagarjuna a millenium earlier.
+> 
+> The essay begins with a famous line attributed to Bodhidharma, the alleged founder of Zen in China: “One flower opens with five petals, forming a fruit of its own accord.” The “five petals” are traditionally thought to refer to the five Chinese patriarchs of Zen, or to the five houses of Chinese Zen. Dōgen points out these are multifold aspects of one “flower,” while the “one flower” is the unfolding of these various aspects. Elsewhere in *Shobogenzo*, Dōgen emphasizes that the five houses or schools of Zen are not to be thought of as representing divisions or fundamental differences, and that Buddhism should be viewed not in a fragmentary, sectarian way, but as a whole comprising many different facets. This notion of Buddhism as a whole which is unified though various, various though unified, is also characteristic of the idea of “one vehicle” in the Kegon and Hokke teachings. Also like the Kegon, Dōgen here in his introduction emphasizes practice, symbolized by the flower naturally bearing the “fruit” of realization. The metaphor of the flower and petals also can be extended to refer to the unity and multiplicity of all phenomena.
+> 
+> Next Dōgen goes on to bring up the classic symbol of the *udumbara* flower. This is a flower that blooms but once in three thousand years, a standard symbol for Buddha. Dōgen quotes an ancient saying that the *udumbara* flower blooms in “fire,” suggesting that buddhahood is realized in the world. This emphasis on nondualism, on the cultivation and realization of buddhahood as being nowhere but in this life, is also typical of Dōgen; he carries this logic through to illustrate the interdependence of awareness and existence, and the identity of Buddha and existence itself.
+> 
+> Subsequently the essay proceeds to its main theme, the unity of existence and emptiness. The word for ‘‘sky,” in the expression “flowers in the sky” is the same in Sino-Japanese as the word for the Buddhist term “emptiness,” so this expression could also be read from Chinese as “empty flowers” or “flowers of emptiness.” Dōgen stresses that everything without exception is “flowers in the sky.” The traditional saying that “flowers in the sky” are due to cataracts or obstructions in the eye is here presented positively, with “cataracts” being used to refer to compassion, or nonextinction, the acceptance and recognition of life as it is. This positive interpretation of “sickness” is also characteristic of the popular *Vimalakirti* scripture, in which “sickness” represents the sage’s compassion and adaptive being in the world. Like that scripture, this essay by Dōgen is aimed at cutting through the notion of nirvana as opposite to mundane life.
+>
+> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary.)
+
+**Katagiri Roshi:** Thank you.
+
+He mentions “the traditional saying that the flowers in the sky are due to cataracts or obstruction in the eye is here presented positively, with ‘cataracts’ being used to refer to compassion...” or et cetera. I think usually traditionally the *kuge*, flowers in the sky, has not a good connotation, a little bit negative, such as seeing lights and illusions inside and outside sometimes. When you do zazen and looking at the wall and you can see the lights sometimes – you know, white and black and red lights. And sometimes one single dot creates an animal’s head, and Avalokiteshvara’s look, and many things coming up. That is a kind of *kuge*, flowers in the sky. So that is delusions. 
+
+So most people are interested in those images you can see in zazen, or particularly when you do something with concentration, you experience lots of things. Sometimes [your body] feels light, and sometimes you feel your body is going up in the sky. And visibly or invisibly you can experience a lot. But whatever it is, traditionally that is a kind of *makyō* (魔境). In other words, the flowers in the sky, like cataracts, sickness of eyes. 
+
+Religion – if you become a serious religious person, easily you become sickness of religion. Lots of stuff you can see. And then that seeing the lots of things in front of you, in front of religion, in front of experience between religion and you, zazen and you – it’s fine; no problem. But the problem is that we really believe strongly that that experience is *true*. 
+
+So that is nothing but the delusions. Seeing the world from the individual telescope. 
+
+So I think Buddhism [is constantly] letting your mind and body go. You have to keep letting your mind and body [go] from many experiences, good, bad, right, and wrong. And then you come back to *zero*. Zero is the place where you can stand up. Every moment you become new. 
+
+So that is you have to return to zero. But when you return to zero, we don’t feel comfortable, because nothing. But in the nothingness, in the emptiness, I think there is a great way to let your life become new. But intellectually or our customs, habits, education, don’t believe it. So that’s why it is *very* difficult to do this. So we immediately hang around, hang on, this special, specific experience we have had – religiously, philosophically, or in the usual human life. In many ways. 
+
+But the Dōgen Zenji uses this traditional meaning of the term “flowers in the sky” as nothing but the decoration of the Buddha’s world. So, human bodies, human minds, six senses, or five *skandhas* – five *skandhas* means your body and mind. Five *skandhas*, six senses, and all kinds of behaviors, and your everyday life are nothing but the flowers in the sky, but this is exactly the decoration of the Buddha’s world. 
+
+So that’s why Thomas Cleary mentions in the last sentence, “This essay by Dōgen is aimed at cutting through the notion of nirvana as opposite to mundane life.” So nirvana is peaceful bliss. The mundane world, mundane life is simultaneously a peaceful bliss. We call [that] nirvana. 
+
+And then Thomas Cleary mentions this is based on the teaching of Kegon doctrine. He mentions that in the first sentence. Of course, it is true. But Dōgen Zenji doesn’t say to understand the meaning of cutting through the notion of nirvana as opposite to mundane life, but he emphasizes how to practice this. If the mundane world, [mundane life] is nirvana, peaceful bliss, how do you do this? So he focuses on exactly practice itself. How do you do it? How to live there? That is Dōgen’s point. 
+
+So it’s not only the understanding of a teaching that “the mind is Buddha,” “Buddha is mind,” “Buddha is a tree,” or “tree is Buddha,” or “tree is *in* Buddha,” or “Buddha is in tree.” Whatever you say, it is nothing but an understanding. How can you *practice* this? 
+
+It’s not spiritual fascination. If you use a particular spiritual fascination, you can see it. Buddha in tree, tree in the Buddha – you can see it. Or your *rakusu*: you wear the *rakusu* and somebody says *rakusu* is kind of mysticism, mysterious stuff. Probably, you think so. So if you think the *rakusu* or Buddha’s robe is a mysterious thing, I think you can expect something from this Buddha’s robe, imagining the great “lights” around the robe. Or, you know, Buddha’s halo? But that is nothing but the delusions. So I think the *rakusu* and the Buddha’s robe is important because we chant the triple treasure: “I take refuge in the Buddha, in the Dharma, in the Sangha,” regardless of how much you believe or you trust in the Buddha, Dharma, Sangha. It doesn’t matter. It matters. *[He laughs.]* It doesn’t matter because if I say it matters, you try to make sure of yourself, how much you believe or trust, by your head, by your experience, by your education. That’s why you cannot find assurance of existence through your understanding of your life. No. So I say it doesn’t matter because you have to go beyond, because practice itself is a great place where you build up new life. Beyond human beings, or beyond Buddha, or beyond the not-Buddha, beyond the not-human – anyway day to day, you can build up. That’s why Dōgen Zenji constantly [says] wherever you may be, whatever you do, what you have to do is to erect the Buddha banner – the banner of the truth. *Truth* means what turns the human world into golden earth. 
+
+That is a practice, okay? It is not discussion. How can you turn the human world into golden beings? We don’t know. If you discuss it, *endlessly* you have to discuss. Finally you don’t know *how*. But even though you don’t know, if you *do it*, practically, according to the Buddha’s teachings and ancestor’s suggestions, you can do it. You can do it. 
+
+For example, you don’t believe that zazen is Buddha or you are Buddha. You don’t believe it, because the more you practice zazen, the more you can see how human beings are. So, very naturally, you have doubt, and you have a doubt how long we should practice it in order to be Buddha, in order to get, you know, the peaceful bliss in human life. But no way! If you think of it, constantly you have to think. But day to day, you can do it. So according to ancestors’ suggestions, Buddha’s suggestions, anyway do it. You don’t believe zazen, what it is, but anyway *sit down*, in peace and harmony. And then, you can build up new life, which you have never seen before. *Gassho*, do it: *gassho*, properly do it. And then new life comes up. 
+
+But new life is not a a matter of [a] perception you have had. Constantly you have to demonstrate in actions, in activities. Day to day is *gassho*, next moment you have to *gassho* in practice, in action, in motion. That is our practice. [That is] called “continuation of practice” or “flow of practice”. 
+
+So this is a most important practice. So, in the *Kegon Sutra* (the *Avatamsaka Sutra*), I think philosophically *Kegon Sutra* [talks] about how the world and human beings, how the world and universe are interconnected and working together. Very in detail. It’s wonderful. But still [there are] questions there. Because we don’t know; we don’t know how to practice it. 
+
+So I think that practice in motion is beyond understanding of teaching, beyond understanding of life and experience, et cetera. Because your life must be right in the stream of practice in action, in motion. So constantly you have to be [one]. If you be one exactly, you don’t know what you are doing. Completely beyond your perceptions. 
+
+I always mention, if you [do a] high jump from a cliff to the ocean, in the process of jumping, I don’t think you recognize who you are, because you cannot create any gap between [you and] the practice in motion. Action in motion from moment to moment and your body must be one. Your emotion, your mind must be one with it. If your whole body becomes one with it, I don’t think there is any space for you to see what’s going on around you, what’s going on around the jumping. So all you have to do is from moment to moment, you are right on the flow practicing motion. 
+
+That is most important – not only [for] this practice, but whatever you do: sportsman, housewife, cleaning the room, washing your face, daily routine, being in the kitchen, eating a meal. Whatever you do, this is a very basic practice. And also this basic practice is completely open to everyone. Even [if] you believe you don’t do it, if you do as best as you can, you can do it. 
+
+So, the action in motion or practice in motion is flow of motion, flow of action, where there is no room for perception to catch up with it. This is the characteristic of motion, characteristic of action in its pure sense. 
+
+Well, that’s why, we don’t believe it, but human knowledge really can see the speed of time, as shortest as it is. So that’s why we can go to the moon, and we can create computers. But still: we are always understanding how fast time is going, how vast space is, how time and space are interconnected, interwoven at super-speed – we *understand* it, but still we don’t know how to *live there* with this body and mind. We can create the instruments, you know, airplanes, boats, and computers, et cetera. But if you don’t have those computers, and boats, and airplanes, then you don’t know how to live there. 
+
+So [...] we know how great our human knowledge is. Our knowledge, consciousness, is always catching up, very minutely; this is the human brain. That’s why we can create computers. But we know how weak we are, because we don’t know how to live. So very naturally the computer made by human beings becomes kind of a “god”, or divinity, and you can really depend on it because quickly you can know the answer, solutions, and quickly you know how to go up to the moon. But if there are no computers, we are completely confused. This is modern civilization. 
+
+So that’s why, even though we don’t know, from the beginning to end, wherever you are, anyway, this is a point, we have to constantly practice it. Otherwise, you never know it. No matter how long you practice so-called religion, you know? Religion is not the religion you believe. Religion is complete freedom from the frame of religion. At that time, religion becomes religion which makes your life *free* from any level, any frames, any concept, any perceptions. And then at that time, religion lets you return to life itself. At that time, you really appreciate religion. 
+
+So it’s not necessary to use particular religious terms, et cetera. You can really learn who you are through human life. 
+
+I think Dōgen Zenji [says this] in “Ocean Seal Samadhi,” talking about the characteristic [of] dharma. *Dharma* means the essential nature, ultimate nature of existence, which is going on, constantly in motion. So, I think it is very interesting point is here, commenting on the Buddha’s statement. Buddha said that, 
+
+> Only by the compounding of many elements is this body made. At the time of its appearance, only elements arise. At the time of its disappearance, only elements vanish. At the time these elements arise, they do not say “*I* arise.” And at the time these elements vanish, they do not say “*I* vanish.” 
+
+In other words, simply speaking, if you say “I am alive” – at that time you already leave a trace of “aliveness”. Because you use a word. The moment when you use the word, you leave simultaneously a trace of the word. Or, even if you say “I am exactly right on the flow of aliveness” – still you leave a trace of “being in the flow of aliveness,” *behind* your action in motion. 
+
+So, action in motion strictly speaking never leaves any perception, any concept, any trace behind action in motion, practice in motion. [It just arises]. 
+
+So, what is time? Time is just [arising]. That’s it. But if I say “time is just arising,” at that time the concept of *arise* is already words, so immediately we have a preconception of where it comes from, because otherwise we don’t understand the meaning of “arise.” So if you use “arise,” immediately subject and object, or *A* place and *B* place. And then from *A* place and *B* place, there is something in the B place. So at that time we say, “Oh, it [arises].” Automatically we do it, you know? *Very* quickly. But *arise* itself is before you think of it, *arise* itself is just *arise*. So Dōgen Zenji says, commenting on this, “When it arises, only element arises. This element arising never leaves behind arising.” So, do you understand? This arising itself, arising as practice in motion, is very pure, very pure. “Something pure” seems to be abstract, but I don’t think so, because your life is *exactly* like that. 
+
+If you don’t understand that [about] life,you can [look at] death, you know? Death is very pure. Death is a great opportunity for us to see something pure beyond our perception, like or dislike, whatever it is. The existence of the other world or non-existence of the other world – complete beyond. You have to face death as it really is. And then, when the death arises – how can I say? Does [arising] of death leave its own trace behind “arises”? No way. Just be one. 
+
+When you are just being one – nothing. 
+
+And then when we say nothing: “What’s that?” We are already thinking. 
+
+[Our] understanding of nothing scares us. That’s why we are struggling for another world after death. We can depend on intellectually, or imaginatively – anyway, in many ways, we try to get something. That [what we] repeatedly do. That is called *samsara*. It’s really *samsara*. 
+
+That’s why Dōgen Zenji say, “Elements arise, never leave behind arises.” This is your practice in motion, day to day. When you do *gassho*, this is *dharma arises*. That’s it. 
+
+But if you do it, *arises* itself is conceptualized, *very* quickly. Exactly in the same situation as you are making computer. You are poking your head into the time process. We are analyzing, very quickly. 
+
+So your consciousness is just like a computer. Very quick. And then we are really captivated by this – our curiosity of exploring how fast time is going. So, finally we forget, exactly, original arising of time. 
+
+Then we are completely far from it. But an important point is, time arising is what? It’s not a concept you can research, you can explore. Of course it is important. But as a next step, what you have to do is how to live there. If you don’t have anything – any computers, any divinities, any human bodies, anything – at that time how can you live there? Only with your body and mind, how can you live? 
+
+This is pretty difficult. If you understand this, religion is coming up there from that. 
+
+I went to a conference [on] Buddhism and Christianity in Colorado. One of the Christian ministers mentioned Buddhism is kind of metaphysical and philosophical; it’s not a religion. Well, I can understand [that], so I don’t want to argue with this. *[He laughs.]* But you cannot put the label on it, you know, because if you try to put the label on something existing – religion, philosophy, American life, Japanese life – well, you always understand them in terms of your education, your perceptions, your heredity, your karma – so no matter how long you discuss it, finally it’s nothing but the cause of fighting. That’s it. Worldly, or spiritually, or physically, materialistically, that is a war. That always happens. 
+
+So we believe how beautiful religion is, but using religion, finally we don’t know how to deal with religion itself. We are caught by religion. 
+
+So I think the Buddhistic way is really digging up the individual human life, digging up again and again, by you and also by studying and learning the Buddhist scripture. Buddhist scripture is not teaching to give you knowledge, philosophically or metaphysically – no. Buddhist teaching [tells] you how to dig up your life. That’s it. 
+
+So the more you try to get something outside of *you*, you are very confused. For instance, Buddha. You use the [word] Buddha – what do you mean, Buddha? *[He laughs.]* Where is the Buddha? Finally Buddha becomes very vague. Which is completely different from the concept of God. American people use [the word] God, and then it’s really attractive, because God comes from the Americans’ emotions, feelings of life. 
+
+So I don’t have any argument with this. It is fine. But I think this is a little bit different, the basics of studying human life. Of course religion should be something to study human beings, the human world. In the simplest way first – what is the simplest way of human life, human world? This is the first point.
+
+For instance, when you are born, how can you [be] born? Just cry. That’s it. This is a sign of your birth. 
+
+When you die, how do you die? Do you scream? Sure, you can scream. But when you become one exactly with death: nothing to scream. Just one simple, “Ooh.” That’s it. Very simple word. 
+
+If you go to Japan, you can see the lions in front of the shrines, sometimes in the Buddhist temples too. Two lions: on one side one lion opens his mouth like this, and sits down and looks, guarding the shrine’s territory and the shrine’s holy world. The other one closes his mouth. This is a sign of death. The other one is a sign of life. 
+
+So this is very simple, simple life. And then when you come back to this simple life, what it is? Still you cannot [say], “Oh, I understand it.” No, you cannot say so. Because if you see that simplest way of life, the more you are curious about it – what it is, how do you live – what is that? So, for century after century, for 22,000 years, particularly in Aryan India, constant research this one. 
+
+So, simplest way of life is not concept, it is practice in motion. That’s it. Because [it is in] relation with all sentient beings. [It is] just the practice in motion, action in motion, energy in motion, by which all sentient beings are produced, created. It is not certain powers. So this energy itself creates energy [...] as new life. At that time, new energies are manifested as trees, birds – [...] different forms. But when you come back to the simplest way of time, or dharma, whatever you say, it is very simple, practice in motion, action in motion. That’s it. And then, after one moment, it creates form. 
+
+So what we are interested in is the form of existence after arising of time in the simplest way. 
+
+That’s why Dōgen Zenji [says it] like this, “The element arising never leaves behind arising, therefore arising is not cognitive awareness.” It’s not cognitive awareness. “Not knowledge or perception, this is called they do not say ‘I arise’.” “No self, so-called ‘I’, looks at arising of dharma or not-arising of dharma.” Nothing, because ‘I’ is simultaneously dharma in motion, as it is. 
+
+At that time, that is a moment, that is a time you face directly, right now right here. And then, that is a place where you can create new life. New life means your life including the universe. 
+
+That is called peaceful bliss. 
+
+Buddhism constantly researches this. Where is the peaceful bliss? 
+
+But even if you don’t understand, according to practice, actually, under the guidance of the ancestors and the Buddha, you can do it, day to day. That’s why we practice like this, from the beginning to end. Even though you scream and you don’t like it, anyway, just like a mother trying to take care of boys, girls, et cetera: “Please, stay here, and come with me, and please stay in the house quietly, gently,” et cetera. Constantly we have to say [this]. And then – *probably* – before you die, probably you can notice. 
+
+[Or maybe] not. I don’t know. No guarantee. Because it depends on the individual. But it is sure, if you practice like that, you are exactly building up new life. 
+
+That is what Buddha says, Dōgen Zenji says, et cetera. Because peaceful bliss is right now, right here – you have to manifest [it], you have to build [it] up, you have to erect the banner of peaceful bliss. 
+
+What is it? It is not a concept. It is not something coming from others. It is something [where] you have to erect the banner of the peaceful bliss. 
+
+That’s why in the *Shodoka*, “Song of Enlightenment,” the author says, “Not seeing a single dharma is *tathagata*, buddha.” It’s really Buddha. It is able to call “kan ji zai Avalokita” – *Avalokita* means regarding freely. *Kan* means “observation”. *Ji zai* means “what is, just is”. That means, sign of freedom. “What is just is” is nothing but freedom or peaceful bliss. So, “kan ji zai” means facing to the world or facing to the human beings, at that time you are free because nature and you are exactly one. And *then* you can be free. But if you see nature objectively and try to understand it, or always are seeing the nature in front of you, called [seeing] objectively, you never feel perfect, peaceful bliss. Still you are fighting, in many ways. 
+
+So, I think a perfect peaceful bliss is nothing to see, even a single dharma. “Single dharma” means Buddha unifies Katagiri and nature. Well, we want to know this; we want to have this kind of theory and ideas. But actually, [that’s] not Buddha’s business, that’s your business, or Katagiri’s business. So I have to do it. So, I must be exactly one with nature. How? Well, just be. Just be in this nature; constantly be present in the nature. Regardless of whether you believe [it] or not, constantly be present, be present, be present. Finally, your whole body and mind becomes exactly the same and one with nature. And then, this is really peaceful. 
+
+That’s why he says this is a *tathagata*, Buddha. 
+
+Well, if I use the term Buddha, I think according to Buddhology you can explain what the Buddha means. Traditionally Buddha is divided into three kinds of Buddha. One is Buddha of the ultimate truth itself. Ultimate truth itself is Buddha. This is one. Second, the human body: this body and mind are Buddha himself. Because without this body and mind, we cannot see any way to realize the ultimate truth, ultimate being. So very naturally, we have to accept this body and mind. But still there is a separation between ultimate truth ...
+
+*[Tape change.]*
+
+... the nature of being is manifested. Then, at that time, it is called the third kind of Buddha: Sambhogakaya Buddha. 
+
+Sambhogakaya Buddha is the whole personality of life. *Whole personality of life* is yours, but when you manifest your *whole* personality, I think you must manifest your life interpenetrated, interconnected with the whole world – trees, birds, nature, and so on. *Then* your personality becomes the whole personality. 
+
+That is not something you try to research or explore, but that is something you can nurture and you can produce through practicing in motion, day to day. 
+
+That’s why this is Buddha, we call the three Buddhas, we call it in Sanskrit, Dharmakaya Buddha, that is the truth, the ultimate nature of the Buddha, existence. Dharmakaya we call it; *kaya* means body, *dharma* means truth. *Nirmanakaya*: *nirmana* means the human body, five *skandhas*, and *kaya* means the body. “Body” means the Buddha’s body and mind. And also Sambhogakaya Buddha, that is *between* Dharmakaya and Nirmanakaya, that is Sambhogakaya. A kind of trinity of the Buddha, Buddha bodies. 
+
+But still it’s not real Buddha. We understand this Buddha, but [it’s] still not *real* Buddha. We don’t know how to manifest Buddha. So the more you study and learn through the scriptures, Buddha becomes more vague. 
+
+So finally, Tozan Zen Master was asked by a monk – this koan is mentioned in the *Book of Equanimity*. Tozan Zen Master was asked by a monk, “What is the real Buddha who doesn’t belong to [these three categories] of Buddha?” In other words, I don’t want to know the Dharmakaya, I don’t want to know the Nirmanakaya, I don’t want to know the Sambhogakaya – because we don’t know what [they are]. We can poke our intellectual sense into Sambhogakaya, how Dharmakaya and Nirmanakaya are working – like a computer, we’re researching the time process, how first Dharmakaya, the truth, and human body working together. We can poke our head into it. That’s why we can research the shortest period of time in physics. But still we don’t know – if this body and mind is nothing but the shortest period of time, we are very confused, because nothing to depend on. So finally you have to destroy the computers et cetera; then only your body and mind is computer itself. How do we [give]? So it’s very confusing, very difficult to live. That’s why you have to go beyond those ideas of computers, ideas of brains and knowledge – otherwise you never experience perfect peaceful bliss, called religion or Buddhism. Never. So if you want to live peacefully or harmoniously, I think you have to go beyond this. That’s why the monk asked, “What is the real Buddha who doesn’t belong to these three categories of Buddha?” 
+
+And then Tozan Zen Master says... you should remember this statement. A very simple statement. Still we don’t believe it, but it’s very [interesting]. “Now and here am I wholehearted.” That’s it. 
+
+Not next moment, not previous moment – right now. Right here. 
+
+So that is really something. You don’t know. But you are always expecting that opportunity, great opportunity. “Next moment, probably something.” Even though you are despairing, still you expect such an opportunity. But we always expect such an opportunity in terms of language, in terms of conceptual understanding. That’s why such a great opportunity you expect always [turns into] a ghost and disappears. So we don’t know what it is. 
+
+That’s why Tozan Zen Master [speaks] like this. 
+
+Here is one more koan in *Bendowa*. I think here is interesting question and answer number 16. Well here is a koan. Let me read it. 
+
+The question is:
+
+> Some say in the buddha-dharma if you thoroughly penetrate the meaning of “the mind in itself is buddha” ... 
+
+... or “your life is nirvana”; your life is Buddha, your life is great beyond human speculation. In other words, you have a great capability to build up Buddha’s world. But we don’t believe it. We understand, we *hope* that – but we don’t know how to do it. 
+
+So, “the mind in itself is Buddha” ...
+
+> ... even without vocal recitation of scriptures or bodily practice in the Buddha way, you will be assured of lacking nothing in the buddha-dharma. Simply knowing that the buddha-dharma exists intrinsically in oneself is attainment of the Buddha way in its totality. It is not to be sought beyond this, in any other person. Is there then really any need to trouble oneself with negotiating the way in zazen? 
+
+The answer is:
+
+> Such words are particularly meaningless. Were things as you portrayed them, would not all spiritually perceptive persons be able to understand if they were taught these words? 
+>
+> Understand that the buddha-dharma consists above all in practice, creating the view that differentiates between self and others. If the Way was attained by knowing that self is Buddha, Shakyamuni long ago wouldn’t have undergone the hardship he did in guiding others to enlightenment. 
+
+If life is only based on the understanding of human life, then we can produce a peaceful life –  at that time, why [do] buddhas and ancestors constantly teach you in the practical sense, according to day to day life, according to individual life? 
+
+> I will corroborate this briefly with the example of worthy priests of the past. 
+>
+> Formerly, following the Zen master Fa-yen, a monk named Sun Tsao was asked by the master, “Tsao, how long is it now that you have been with me?” 
+> 
+> “It has already been three years,” he answered. 
+> 
+> “You are of the next generation...” 
+
+Sun Tsao monk practiced for three years.
+
+Three years for the Hogan Zen master Fa-yen. Three years is not three years; three years is already time including past, present and future. So three years is a very important period of time. Well, now and here is also great period of time. But he simply says, “I have been three years.” 
+
+And then he said,
+
+> “Why [haven’t you asked] anything about Buddhism?” 
+> 
+> So the monk says, “I must not deceive you. Formerly when I was with Zen master Ch’ing-feng, I thoroughly attained the peaceful bliss in the buddha-dharma.”
+
+Anyway, “I attained enlightenment.” 
+
+> The master said, “By what words did you attain that realm?” 
+> 
+> The monk replied, “I once asked Ch’ing-feng, ‘What is the self of the Buddhist disciple?’ And he answered, ‘Ping-ting t’ung-tzu comes for fire.’ 
+
+That means “fire boy”: “Fire boy comes for fire.” “Fire boy” means a boy or a monk who takes charge of the lamps, you know, cleaning. In ancient times we used lamps, you know – no electricity, so always we had special monks who took charge of the lamps. 
+
+My teacher also told about how difficult that job was – you know, cleaning the lamps. It’s very difficult, because we always leave a certain dust, and marks of the fingers and the glasses and the lamps. So he mentioned to me that if you clean lamps, you shouldn’t leave any marks of your fingers. *[He laughs.]* So how can I clean it? I don’t know! But he [said that]. And you shouldn’t have any dust, you know. Dust comes from the cloth by which you are cleaning. So how can I remove that dust? It’s pretty hard. 
+
+So it’s a very hard job. But here it says, that’s why, “a fire boy comes for fire.” 
+
+
+> “Those are fine words,” Hogen Zen Master said. 
+
+Those are great words by which you attained enlightenment...
+
+> “... In fact, I’m afraid you didn’t understand them.” 
+
+As a matter of fact, I’m afraid you didn’t understand that meaning, “the fire boy comes for fire.” 
+
+And then this monk said, 
+
+>  “I understand them to mean this: Fire boy is characterized by fire.”
+
+Of course, fire boy means fire, because fire boy is always seeking for the lamp, so-called fire. So, “the fire boy is characterized by fire”:
+
+> “... To look for fire with fire is like looking for the self with the self.”
+
+So who knows Buddha? Who knows Buddha? Who builds new life? Who makes the world peaceful? You. From this point, you have to seek you for you. In other words, Buddha seeks the Buddha for the Buddha. We can say so. Table is Buddha, I am Buddha, so Buddha receives Buddha as a table and makes the Buddha as the Buddha. At that time, table and I become one, and deep communication. But still that is an understanding, my understanding. 
+
+So then, 
+
+> The master said, “You are right, but indeed, strictly speaking, you didn’t understand it.”
+
+Still you don’t understand it.
+
+> “... If the buddha-dharma were something such as you describe, it wouldn’t have come down to the present day.”
+
+If you understand human life only by your emotions, by the intellectual sense, at that time, Buddhism or any Christian religions haven’t come down from generation to generation. Why did the ancestors guide you to understand human life as it really is day to day? It is something more than understanding. 
+
+Understanding is important, that’s why we have to study the teaching. But the teaching is still teaching, just like supporters for morning glory. 
+
+Then the monk was very angry in a sense. So the monk left the monastery immediately. But this monk was a little bit better, because on his way, he thought,
+
+> “Hogen Zen master is known far and wide for his competence. Moreover, he has five hundred disciples under him.” 
+
+Well, he says, at those days, Hogen Shu, the school of Hogen, was one of the five schools in those days. You know, Dōgen mentions in this chapter, the flowers in the sky. So, I think it is said that he had five hundred monks there. That’s why monk believes that he was very famous, very well known, so he is something more than the usual guy. So he returned to the monastery, where he repented and made his vow to Fa-yen, and he asked him again: “What is the self of the Buddhist disciple?”
+
+> The master replied, “Fire boy comes for fire.”
+
+He answered the same thing. But this “fire boy comes for fire” he uses is something more than your understanding which you have made. So, by this answer, Hogen Zen master immediately took this monk to return to original aspect of existence which is nothing but action, practice in motion. 
+
+What do you mean, “fire comes for fire,” “self comes for self,” “self seeks for the self, for the self” – what do you mean? It is not something understandable. 
+
+So finally Hogen Zen master uses the same words, but thse same words are profound, very profound. So, he pointed out that one. And then this monk was pretty clever, pretty nice, so in this story finally he realized what it means. 
+
+> Hearing these words, the monk was greatly enlightened in the buddha-dharma. 
+> 
+> It is clear one cannot realize the buddha-dharma by understanding that one’s self is Buddha. If this were the buddha-dharma, the master wouldn’t have used such words to guide the monk and wouldn’t have admonished him in the manner he did. 
+>
+> From the first time you meet a great master, you ought simply to inquire as to the rules and regulations with regard to practice, then wholeheartedly negotiate the way in zazen. And keep from letting your mind hold to superficial and partial knowledge. Then the buddha-dharma’s wonderful means will not be unavailing. 
+
+So that is most important. Our life is Buddha, we are all Buddha. But the question is, it is not something understandable, so how do we practice this truth in our everyday life? That is the point; that is always the point. Whatever you say – “Buddha is in us,” “Buddha is with me,” “Buddha is on us,” whatever you say, it doesn’t hit the real [bullseye] of life. 
+
+So how do we know? How do we know? Again and again, we practice this. 
+
+Finally, you know, Dōgen Zenji [said]:
+
+> Venerable Mahakasyapa received the World-Honored One’s transmission directly, face to face, mind to mind, body to body, and eye to eye. Mahakasyapa respectfully regarded Shakyamuni Buddha while making offerings and bowing formally. Thousands of times Mahakasyapa has pounded his bones and crushed his body. 
+
+I used before this expression, and then a student said, “I don’t like it.” *[He laughs.]* “... because I don’t want to crush my bones.” I don’t mean you should crush your bones *actually*. That expression means how hard we practice, again and again. We don’t know how often, how many thousands and thousands of times we respect the Buddha and the bodhisattvas, and zazen practice, and practice. How many thousands of times we practice, we don’t know. But this is important – that’s it. Even though I say *gassho*, and then this great opportunity “now and here, am I, is wholehearted.” This is a unique great opportunity to let the flower of your life force bloom in a completely new way. 
+
+We don’t believe this, but everything blooms in that way. Flowers, grasses, pebbles – everything dies in that way, completely. Death is new life, life is new life. Moment is new moment. Moment is not moment you have understood. You believe moment is constantly new. So how do we do this? This is a practice. Anyway, shortest period of the moment, by which you can produce computers and airplanes to reach the moon – it is still science, it is still discussing the world objectively. But *you* must be – your life itself must be shortest period of time. How do you do it? Where is it? For *whom* do you have to practice that? What kind of benefit can you get from this? Lots of questions there. But this is a great practice for us. Otherwise, you never know real death itself. Even though even slightly you see dimly the other world after death, still your mind [going] astray. If you believe reincarnation, you are caught by reincarnation. 
+
+I don’t mean reincarnation is not true. It is true. But if you believe it, you are caught by reincarnation. 
+
+So how can you be reincarnated? That is the point. Where is it? Why we have to do this? Why are we interested in reincarnation? For *whom* must you be reincarnated? What is the benefit that you get if you are reincarnated? Lots of questions. Where is it? Those questions comes from where? 
+
+That’s why *Kuge* is, I think, is, if you see something, a single being, you have to see the single being, but you have to not see the single being. That is a practice, okay? If you see the table, immediately your consciousness sees the table as a single being. The next moment you are caught by the idea of single being. Do you? Simultaneously. And then we are involved in what? Where? You know, the idealistical world created by your consciousness. Which lets you go farther and farther from the original, very beginning, at the stage of arising of time. We don’t know. Completely we forget this. 
+
+So when you see the table, you have to see the table, because it’s impossible to escape. If you don’t see the table, without seeing the table, and then if you can’t see this table, you have to die. You know, your life doesn’t exist. As long as you exist, you have to see with your consciousness. But it is the first experience. But from the first experience, then you have to come back to original state of your experience – very pure experience. That means the unity of this table and I. 
+
+That means you have to go beyond. You shouldn’t be caught by this idea of table. 
+
+What’s that? So, you have to deal with this table as a Buddha. 
+
+What do you mean [by] “as a Buddha”? I mentioned the other day, in chosan, too many? Buddha is very strict, very serious – no excuse. So if you face this directly, you have to see directly, no excuse. Morning comes, *morning*. It’s morning, not afternoon. No comparison. If you appear, if you arise, you are you, that’s it. And also it is a very serious and very strict state of existence because it is the morning, but that morning is limitless morning, the idea of morning, because it’s connected with the whole world. Temporarily we call it morning, because it’s vast; we don’t know how to know the vastness of a certain period of time, so that’s why we use the word “morning”. But if you understand the morning in the word, you are caught by the word. 
+
+So, finally, morning is morning – very strict, no excuse. But simultaneously, whether you don’t believe the morning or you believe the morning, morning accepts you all. So it’s very tolerant, compassionate. Your existence is *forgiven* – accepted. 
+
+But if you don’t [do] anything, the acceptance by whole unity doesn’t make sense. If you are accepted by the whole world, I think you should make it alive. That is how to make it alive. Practice. 
+
+Everything you are facing day to day, it’s always too many, very serious, but on the other hand, very compassionate. Very serious, no excuse, but on the other hand, very compassionate. That’s why if you don’t like it, you can go any place. If you don’t believe it, you can go, you can believe anything else. If you don’t like your life, you can kill yourself. It’s freedom. But wherever you may go – to death, to life – wherever you may go, you are still embraced in the whole universe. 
+
+Just like breathing – always blows quietly in the field of the horse pasture. And then coming back, here and there. And the grass is just waving; that’s it. And stand up again and the breathing goes. Very soft, very close to us. But on the other hand, very serious, very strict, no excuse. 
+
+So that’s two kinds of things always there. 
+
+So Buddhism, Zen practice, tries to put you right in the middle of practice in motion, that’s it. 
+
+So, this is the meaning of “flowers in the sky.” Then, next, we will study the main subject.
+
+#### 1:20:36 end of recording
+
+---
+
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+
+#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Kuge](kuge)
