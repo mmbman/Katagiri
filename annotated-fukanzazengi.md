@@ -229,8 +229,8 @@ This document is a work in progress. I will update this page as I transcribe tal
 > KR: In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.
 
 - This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) at [21:38](1979-06-14-Fukanzazengi-Talk-6#2138).
-- “The opportunity provided by” is omitted from the Sōtōshū translation, perhaps to streamline the sentence, but this is a questionable choice. The difference is whether the referenced devices bring about enlightenment directly, or they provide an opportunity.
-- “Opportunity” is *ki* (機), which comes up again in “pivotal opportunity of human form”; see below.
+- “The opportunity provided by” is omitted from the Sōtōshū translation, but this seems questionable. 
+- “Opportunity” is *ki* (機), which comes up again in “pivotal opportunity of human form”; see below. Other dictionary definitions of *ki* include “spring, trigger, motive, principle, potentiality, occasion” (see *The Heart of Dōgens’s Shōbōgenzō*, translated by Norman Waddel and Masao Abe, p. 12). For more on *ki* see [“Dealing with Death, Dealing with Life”](1989-01-07-Dealing-with-Death-Dealing-with-Life).
 
 > 豈爲神通修證之所能知也。可爲聲色之外威儀、那非知 見前軌則者歟。  
 >  
