@@ -15,7 +15,7 @@ title: "Shōbōgenzō Kuge: Flowers in the Sky – Talk 2"
 
 #### 0:00
 
-**Katagiri Roshi:* ... The first sentence. 
+**Katagiri Roshi:** ... The first sentence. 
 
 > Flowers in the Sky
 >
