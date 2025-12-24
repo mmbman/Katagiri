@@ -5,29 +5,27 @@ title: "Review and Renew: Buddhism for the Twenty-First Century"
 
 #### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
 
-### Summary
-
-
 ### Transcript
 
-**This transcript is in rough draft stage.**
+**This transcript is in draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/review-and-renew-buddhism-for-the-21st-century" target="_blank">Listen to this talk</a>
 </p>
 
-
 #### 0:00
 
-**Katagiri Roshi:** Good morning. The topic I am speaking of today is “Review and Renew: Buddhism for the Twenty-First Century.” This is a really big subject. For me, it is too big a title, but as best as I can I will try to talk about it. 
+**Katagiri Roshi:** Good morning. The topic I am speaking of today is “Review and Renew: Buddhism for the Twenty-First Century.” 
+
+This is a really big subject. For me, it is too big a title, but as best as I can I will try to talk about it. 
 
 I don’t want to get deeply into Buddhist history in order to review Buddhism. And also, as to *renewing* Buddhism, I think there is nothing to renew [in] Buddhism itself, but [we should] renew ourselves, human beings, for the 21st century. Because Buddhism is mainly very conservative, in order to maintain the essence of Buddha’s teaching century after century. If you forget the essence of the Buddha’s teaching, I think Buddhism doesn’t work. For a long time, in every country where Buddhism went, Buddhas and ancestors tried to transmit that essence of Buddha’s teaching; that’s why Buddhism flourished in every country it went to. To China, to Tibet, to Japan; Buddhism grows and helps the individual culture and individual people’s lives. So from this point, I think there is nothing to renew in Buddhism itself, but [we should] renew the human beings who take care of Buddhism. That is the most important point for us. 
 
 And also, in the 21st century, I think all the sciences, philosophies, psychology, religion, physics and biology, advance very much in order to create a better life, a better world, by researching the depths of human life, the human world. So very naturally, I think science – for instance, physics – is no longer a science separate from Buddhism. Buddhism has a very close relation with physics, or biology, and many sciences. 
 
-For instance, I think in ancient times Dōgen Zenji talked about the moment: 6,400,098,088 instants in a day. Or, a moment consists of 70 instants. Like this. And then Dōgen Zenji said, “If you don’t believe [in] this moment, you cannot arouse bodhi mind” – in other words, without believing in the moment, you cannot seek for the truth, you cannot take care of human life with deep understanding and share you compassion with all sentient beings; that is bodhi mind. But lately, I think physics already finds the shortest period of a moment, much more than the understanding of the moment in Buddhism. [And by the] virtue of discovering the shortest period of a moment, we can go to the Moon, and we can research the [subatomic] world, and understand it. So from this point, I think physics is no longer separate from Buddhism, because physicists already know the shortest period of time and how to use the shortest period of time. By using the shortest period of time, we can almost control the human world, including other planets. So very naturally, [people] strongly believe that physics is the best thing to control human life, to create a better world, a better life. Not only physics, but also biology, and psychology, et cetera. In other words, the sciences are invading Buddhist territory or religious territory. Do you understand what I mean? So very naturally you cannot deal with religion or Buddhism separately from the sciences. In ancient times, religion was separated, but from now on, you cannot separate them. 
+For instance, I think in ancient times Dōgen Zenji talked about the moment: 6,400,098,088 instants in a day. Or, a moment consists of 70 instants. Like this. And then Dōgen Zenji said, “If you don’t believe [in] this moment, you cannot arouse bodhi mind” – in other words, without believing in the moment, you cannot seek for the truth, you cannot take care of human life with deep understanding and share you compassion with all sentient beings; that is bodhi mind. But lately, I think physics already finds the shortest period of a moment, much more than the understanding of the moment in Buddhism. [And by the] virtue of discovering the shortest period of a moment, we can go to the Moon, and we can research the [subatomic] world and understand it. So from this point, I think physics is no longer separate from Buddhism, because physicists already know the shortest period of time and how to use the shortest period of time. By using the shortest period of time we can almost control the human world, including other planets. So very naturally, [people] strongly believe that physics is the best thing to control human life, to create a better world, a better life. Not only physics, but also biology, and psychology, et cetera. In other words, the sciences are invading Buddhist territory or religious territory. Do you understand what I mean? So very naturally you cannot deal with religion or Buddhism separately from the sciences. In ancient times, religion was separated, but from now on, you cannot separate them. 
 
-So from this point, I think Buddhism is still Buddhism, and Buddhism tries to maintain the essence of Buddhism... [but] how to apply [Buddhism] to modern society, modern life? This is most important. I think human beings in the 21st century could be very confused: what is the best thing which can give compassion and kindness and peace, and brighten and fill human life? [Sort of like] lubrication for the car. Religion is kind of a lubrication for the machine, for human life. This is very important for us. 
+From this point, I think Buddhism is still Buddhism, and Buddhism tries to maintain the essence of Buddhism... [but] how to apply [Buddhism] to modern society, modern life? This is most important. I think human beings in the 21st century could be very confused: what is the best thing which can give compassion and kindness and peace, and brighten and fill human life? [Sort of like] lubrication for the car. Religion is kind of a lubrication for the machine, for human life. This is very important for us. 
 
 So I think in developing the sciences toward the 21st century, I think human beings could be very confused. So I think from now on we have to begin to study Buddhism very deeply, and understand [the nature of] human being, the human world, instead of dealing with mystical religious “stuff”. By researching very deeply human life, human being, then Buddhism becomes the great thing which we can display in the universal market. Not the small religious market, the universal market. Then, we should let the people make a choice of Buddhism by the individual human being. That is very important. 
 
@@ -37,11 +35,11 @@ First, I would like to take a little look at the beginning of Mahayana Buddhism 
 
 And Mahayana Buddhism tried to center on the [idea] of the *bodhisattva*. Before the first century, *bodhisattva* was [a word] just for Shakyamuni Buddha’s previous lives. In the past lives before Gotama Sidhartha became a Buddha, he was called [the] bodhisattva. But in Mahayana Buddhism in the first century, I think bodhisattva [became] very popular, and [it] applied to everyone who can [practice Buddhism]. 
 
-*Bodhi* means enlightenment, and *sattva* means being. Traditionally, *bodhisattva* was assumed to be the person who seeks for the truth or enlightenment. But strictly speaking, I think particularly according to Buddha’s teaching, *bodhi* is not separate from *sattva*; bodhi *is* sattva. Because the Buddha says that we are buddha. Buddha is not separate from us. So bodhisattva is [that] we are already bodhisattva: the enlightened being called Buddha. That is the meaning of bodhisattva in the Mahayana. 
+*Bodhi* means “enlightenment”, and *sattva* means “being”. Traditionally, *bodhisattva* was assumed to be the person who seeks for the truth or enlightenment. But strictly speaking, I think particularly according to Buddha’s teaching, *bodhi* is not separate from *sattva*; “bodhi” *is* “sattva”. Because the Buddha says that we are buddha. Buddha is not separate from us. So *bodhisattva* is [that] we are already bodhisattva: the enlightened being called Buddha. That is the meaning of *bodhisattva* in the Mahayana. 
 
 What I am interested in is that the Mahayana movement germinated from the lay Buddhists of those days. So if you read the *Saddharma Pundarika Sutra* (the *Lotus Sutra*), behind it I think you can see a kind of movement of bodhisattva life. [Traditionally], monks should be taking trips all over India; they couldn’t have any particular place to live. But in the first century, I think some of the monks tried to be the head of the *pagoda*, *stuppa*. If you read the *Saddharma Pundarika Sutra*, that kind of thing occurred. And also, there was no discrimination of the practice between men and women, monks and laity in those days; the laity and monks, and men and women, gathered and practiced together. This is a brief outlook of the beginning of the Mahayana in the first century. 
 
-When you look at the Mahayana in the first century I think you can find the similarity of Mahayana Buddhism with American Buddhism. Since I came to the United States, I have been practicing with Americans, [and] we have practiced together, men and women, and also no discrimination between the monks and priests and the lay Buddhists; they have practiced together. Some confusion is there, but this is reality, so we try to practice in such circumstances. 
+When you look at the Mahayana in the first century I think you can find the similarity of Mahayana Buddhism with American Buddhism. Since I came to the United States, I have been practicing with Americans, [and] we have practiced together, men and women, and also no discrimination between the monks and priests and the lay Buddhists, they have practiced together. Some confusion is there, but this is reality, so we try to practice in such circumstances. 
 
 And then later in the first century, the Mahayana set up a monks’ life separate from the laity. I think the same applies to American Buddhism now. We don’t know which way to go; we don’t know what real Buddhism is, because Buddhist scriptures came into America translated into English at random, not systematically, so Americans try to read the Buddhist scriptures like a person who is drowning, grasping straws. That’s why Americans know pretty well about Buddhism, but actually, deep inside, I think still they’re very confused, because there are too many kinds of Buddhism, too many kinds of religious stuff. So in a sense I can give great sympathy to American Buddhism, but I can’t help it. In such circumstances, we try to walk step by step. 
 
@@ -51,7 +49,11 @@ In order to walk step by step in the confused circumstances of American Buddhism
 
 And *compassion* is that a bodhisattva puts the comfort of others before their own convenience – which means they don’t manifest themselves only in the selfish view, or in a selfish manner, or rough behavior. Always they are thinking of others, and are concerned about how to help them, before being concerned about their own life. This is compassion. 
 
-In other words, no one will dispute the fact that kindness is a fine virtue. Particularly the teacher or friend who lives most vividly in our memory is a person who was very kind and gentle, considerate and charitable. One of my friends, Yokoi Roshi ([横井覚道 Yokoi Kakudō](https://terebess.hu/zen/mesterek/YokoiKakudo.html)), was using language very roughly and carelessly, criticizing me and putting me down, but whatever he did, I think I found that there was a very deep kindness there. So that was a great teacher for me. Your teacher or your friends who really live most vividly in your memory are the people who are very kind, gentle, considerate, and charitable. Even in everyday human life, this kind of kindness is important; much more, compassion is very important for us.
+In other words, no one will dispute the fact that kindness is a fine virtue. Particularly the teacher or friend who lives most vividly in our memory is a person who was very kind and gentle, considerate and charitable. 
+
+One of my friends, Yokoi Roshi (Yokoi Kakudō 横井覚道), was using language very roughly and carelessly, criticizing me and putting me down, but whatever he did, I think I found that there was a very deep kindness there. So that was a great teacher for me. 
+
+Your teacher or your friends who really live most vividly in your memory are the people who are very kind, gentle, considerate, and charitable. Even in everyday human life, this kind of kindness is important; much more, compassion is very important for us.
 
 #### 26:53
 
@@ -85,15 +87,23 @@ And second, I think I mentioned that we should put others’ life in our place. 
 
 In Zen Buddhism, we have to be considerate not only of human beings, but also we have to be considerate of the tables, cushions, toilet paper – all of the many things. So we do practice with a gassho when you go to sleep, and chant the verse of sleep; and when you have a meal we chant the meal sutra; this kind of actual practice is a great way of manifesting universal life with our body. This is a very simple practice.
 
-And then, I said in the ... 
+And then, I said in the [talks on *Kuge*: “Flowers in the Sky”] ... 
 
 *[Tape change.]*
 
-“... one flower opens with five petals, forming a fruit which ripens of its own accord. As the flower blooms, its five petals open. We cannot tell which comes first, which comes later. This one flower is the Buddha’s world, and the five petals are grasses, trees, birds, fish – each single event in our daily lives. When grasses and trees are received as that which is alive and is caused to be alive in the universe prior to our analytic understanding of them, then we can be impressed by their lives. This is called Buddha’s life. The same applies to each single event in our everyday lives. Each event could be taken care of as Buddha’s life and not dealt with from a selfish viewpoint or with careless behavior. We should learn a pious way of life, in which each worldly thing is held kindly as Buddha’s life. And our arrogance, which is based on limited human knowledge, and carried with us, is thrown away. When we handle each single aspect of daily living with a warm spirit and heart, the Buddha’s life is manifested with our body. Within this practice there is a vivid path, which helps one’s total personality grow and mature. An ancient teacher said that this practice is a way of handling one’s life in which one continues to walk quietly in the mist and finds that, without being aware of it, one’s dress has become completely wet. In moving toward the 21st century, science, culture, and many things in one’s daily life will endlessly advance for the sake of creating a better life, better world. However, I wonder if peace and bliss can be found in the process of their advancement. All people in the universe should seriously consider how one can peacefully walk hand-in-hand with all beings.”
+“... one flower opens with five petals, forming a fruit which ripens of its own accord.” As the flower blooms, its five petals open. We cannot tell which comes first, which comes later. This one flower is the Buddha’s world, and the five petals are grasses, trees, birds, fish – each single event in our daily lives. When grasses and trees are received as that which is alive and is caused to be alive in the universe prior to our analytic understanding of them, then we can be impressed by their lives. This is called Buddha’s life. 
+
+The same applies to each single event in our everyday lives. Each event could be taken care of as Buddha’s life and not dealt with from a selfish viewpoint or with careless behavior. We should learn a pious way of life, in which each worldly thing is held kindly as Buddha’s life. And our arrogance, which is based on limited human knowledge, and carried with us, is thrown away. When we handle each single aspect of daily living with a warm spirit and heart, the Buddha’s life is manifested with our body. 
+
+Within this practice there is a vivid path, which helps one’s total personality grow and mature. An ancient teacher said that this practice is a way of handling one’s life in which one continues to walk quietly in the mist and finds that, without being aware of it, one’s dress has become completely wet. 
+
+In moving toward the 21st century, science, culture, and many things in one’s daily life will endlessly advance for the sake of creating a better life, better world. However, I wonder if peace and bliss can be found in the process of their advancement. All people in the universe should seriously consider how one can peacefully walk hand-in-hand with all beings.
 
 That is my statement. In the beginning I mentioned that what we should renew is not to renew Buddhism but to renew human life. But in order to renew human life, I don’t think there is a particular special practice, but this is everyday life. In everyday life we can find a practice by which the universe and truth can be manifested with this body. At that time you can really feel appreciation and many thanks to all sentient beings. 
 
-And sometimes we have to practice in the monasteries, sometimes we have to go to the church or temple and participate in Sunday service, et cetera. These are particular practices, basic practices for us. For instance, if you want to practice archery, I think your target [must be] stable in front of you, and shoot it. Or even if you shoot a gun, I think in order to master basic practice, you practice is always stable in front of you, and shoot it. Without having this basic practice, if you immediately use a gun toward a moving target, it’s very dangerous for us. Confusion comes up, sometimes hurting people. So in everyday life, we can practice: being kind to the cushions, and tables, and toilet paper – we can do it! But still, sometimes there is confusion there. So how can practice apply to everyday life? In order to do this, I think we need to have the basic practice of going to the temple or church on Sunday, and chanting, participating in the Sunday service, and listening to Buddha’s teaching. This is the basic practice. And sometimes we stay at the monastery and practice. 
+And sometimes we have to practice in the monasteries, sometimes we have to go to the church or temple and participate in Sunday service, et cetera. These are particular practices, basic practices for us. 
+
+For instance, if you want to practice archery, I think your target [must be] stable in front of you, and shoot it. Or even if you shoot a gun, I think in order to master basic practice, you practice is always stable in front of you, and shoot it. Without having this basic practice, if you immediately use a gun toward a moving target, it’s very dangerous for us. Confusion comes up, sometimes hurting people. So in everyday life, we can practice: being kind to the cushions, and tables, and toilet paper – we can do it! But still, sometimes there is confusion there. So how can practice apply to everyday life? In order to do this, I think we need to have the basic practice of going to the temple or church on Sunday, and chanting, participating in the Sunday service, and listening to Buddha’s teaching. This is the basic practice. And sometimes we stay at the monastery and practice. 
 
 That’s it. 
 
@@ -103,7 +113,7 @@ Do you have some questions?
 
 **Question:** Hojo-san? Were you making a point that 21st century human beings maybe are becoming more obstinate or stubborn because technology spoils [us], because technology promises that it can control the universe?
 
-**Katagiri Roshi:** Yes, they may become more stubborn, more arrogant. That’s why we have to offer certain circumstances where they can manifest or they can realize the bigger scale of the world through their own research. Because even though they become more and more stubborn by the strong belief of their accomplishments, but reality [...] would rather be [the] reverse sometimes: by stubbornness they can realize the bigger scale of the world. So as best as we can, we try to give compassion to them, and offer certain circumstances where they can feel the bigger scale of the world. That is living together in peace and harmony. 
+**Katagiri Roshi:** Yes, they may become more stubborn, more arrogant. That’s why we have to offer certain circumstances where they can manifest or they can realize the bigger scale of the world through their own research. Because even though they become more and more stubborn by the strong belief of their accomplishments, but reality [...] would rather be [the] reverse sometimes: by stubbornness they can realize the bigger scale of the world. So as best as we can, we try to [have] compassion [for] them, and offer certain circumstances where they can feel the bigger scale of the world. That is living together in peace and harmony. 
 
 #### 54:15
 
@@ -111,7 +121,9 @@ Do you have some questions?
 
 **Another person:** [Did you say] that was wisdom?
 
-**Katagiri Roshi:** You can see it with wisdom. I think your breath is a good analogy. You always breath every day. Even though you sleep, even though you don’t pay attention to it, always breathing is going and your heart is working. Who takes care of this? Is it your effort? Well yes, your effort, because you try to keep your body in good shape, exercising, et cetera – that is your effort. But on the other hand, there is something more than your effort, [by which] your heart is moving. That is, I say, the heart is *caused to be alive*. Is that clear? 
+**Katagiri Roshi:** You can see it with wisdom. 
+
+I think your breath is a good analogy. You always breath every day. Even though you sleep, even though you don’t pay attention to it, always breathing is going and your heart is working. Who takes care of this? Is it your effort? Well yes, your effort, because you try to keep your body in good shape, exercising, et cetera – that is your effort. But on the other hand, there is something more than your effort, [by which] your heart is moving. That is, I say, the heart is *caused to be alive*. Is that clear? 
 
 So as a whole, not only human beings, but trees, birds, all sentient beings, are caused to be alive. That is called Buddha’s life.
 
@@ -127,15 +139,19 @@ So as a whole, not only human beings, but trees, birds, all sentient beings, are
 
 **Katagiri Roshi:** With concentration. Careful attention means with full concentration. You try to deal with it with wholeheartedness. 
 
-**Question:** It’s seems that concentration is involved in thought process, it seems that what you’re talking about is more an awareness than ...
+**Question:** It seems that concentration is involved in [the] thought process, it seems that what you’re talking about is more an awareness than ...
 
-**Katagiri Roshi:** Awareness, and simultaneously it becomes practice. Of course with concentration, consciousness is involved. When you want to deal with this table, consciousness is already involved, because consciousness sees this table. But consciousness is very complicated, not simple work, because it’s connected with your heredity and education, and emotions, and judgement, evaluation... connected with many things. That’s why when you see it, immediately you judge it, and then next emotional judgement [or] feeling is coming up. So finally we don’t use this table with wholeheartedness. Do you understand what I mean? So consciousness is already involved. Without consciousness, you cannot live in this world. 
+**Katagiri Roshi:** Awareness, and simultaneously it becomes practice. Of course with concentration consciousness is involved. When you want to deal with this table, consciousness is already involved, because consciousness sees this table. But consciousness is very complicated, not simple work, because it’s connected with your heredity and education, and emotions, and judgement, evaluation... connected with many things. That’s why when you see it, immediately you judge it, and then next emotional judgement [or] feeling is coming up. So finally we don’t use this table with wholeheartedness. Do you understand what I mean? 
+
+So consciousness is already involved. Without consciousness, you cannot live in this world. 
 
 **Question:** It seems to me like if you concentrate too much, if you think too much about being careful, then *more* judgements come up.
 
 **Katagiri Roshi:** That is you playing with your consciousness. So you have to let it go. You have to use consciousness as simply as you can: you should do it and then let it go. That’s practice. 
 
-But usually we do it with wholeheartedness and then we judge the result. And then, what should we do, we should work harder, and then we do that, and then we judge it. That kind of thing always happens. So [with] that, finally we are very confused, nervous, you know? Exhausted. So all you can do is, with wholeheartedness, deal with this *now*, and then let it go. You should open; and then next moment, you just do it, with a [new, fresh] feeling. 
+But usually we do it with wholeheartedness and then we judge the result. And then, what should we do, we should work harder, and then we do that, and then we judge it. That kind of thing always happens. So [with] that, finally we are very confused, nervous, you know? Exhausted. 
+
+So all you can do is, with wholeheartedness, deal with this *now*, and then let it go. You should open; and then next moment, you just do it, with a [new, fresh] feeling. 
 
 So always there are two practices: holding, and letting it go. *Holding* means see this table. And then do it. And then let it go. 
 
@@ -151,7 +167,9 @@ So always there are two practices: holding, and letting it go. *Holding* means s
 
 **Same person:** So not really criticizing Buddhist ceremony or something [...] but ...
 
-**Katagiri Roshi:** No. In Japan, funeral services and memorial services are criticized by many people, because the memorial service becomes more and more “the business,” so they don’t like it. So recently, they have funeral services without a priest, and using a hotel instead of a temple. More than [in Christianity]; they don’t use *anything*, just putting flowers around, decorating, and having pictures there, that’s it. That kind of thing happens in Japan. But a funeral service is a funeral service; I think the point is how to use this funeral service. Because one hundred thousand years ago, already our ancestors started to do burial services. I don’t think it’s necessary to maintain [the funeral service], but I want to maintain that spirit of being considerate of others. That is most important. Because it’s very difficult to manifest this consideration or charitable [feeling]. That’s why [we have] the service and rituals, [so through them] we can manifest [it]. 
+**Katagiri Roshi:** No. In Japan, funeral services and memorial services are criticized by many people, because the memorial service becomes more and more “the business,” so they don’t like it. So recently, they have funeral services without a priest, and using a hotel instead of a temple. More than [in Christianity]; they don’t use *anything*, just putting flowers around, decorating, and having pictures there, that’s it. That kind of thing happens in Japan. But a funeral service is a funeral service; I think the point is how to use this funeral service. Because one hundred thousand years ago, already our ancestors started to do burial services. 
+
+I don’t think it’s necessary to maintain [the funeral service], but I want to maintain that spirit of being considerate of others. That is most important. Because it’s very difficult to manifest this consideration or charitable [feeling]. That’s why [we have] the service and rituals, [so through them] we can manifest [it]. 
 
 #### 1:03:50
 
@@ -163,7 +181,7 @@ So always there are two practices: holding, and letting it go. *Holding* means s
 
 **Katagiri Roshi:** Forever. That is longevity. *[He laughs.]* 
 
-That is called *jumyō* in Japanese: lifespan. If you use the word lifespan, it’s a little bit limited, but jumyō is not [really] lifespan, [it is] endless life. *Ju* is longevity, *myō* is life. So, something continuous from past to the present to the future. This is longevity; eternity. Eternal continuation. 
+That is called *jumyō* in Japanese: *lifespan*. If you use the word lifespan, it’s a little bit limited, but *jumyō* is not [really] lifespan, [it is] endless life. *Ju* is longevity, *myō* is life. So, something continuous from past to the present to the future. This is longevity; eternity. Eternal continuation. 
 
 #### 1:05:02 end of recording
 
