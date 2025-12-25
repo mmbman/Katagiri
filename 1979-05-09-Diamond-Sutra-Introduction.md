@@ -11,10 +11,7 @@ Katagiri Roshi begins a series of talks on the *Diamond Sutra* by discussing the
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/diamond-sutra-introduction)
 
 #### 0:00
 
