@@ -11,9 +11,7 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/fukanzazengi-lecture-1)
 
 #### 0:00
 
