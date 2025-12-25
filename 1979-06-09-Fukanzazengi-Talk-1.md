@@ -21,19 +21,19 @@ Katagiri Roshi begins a series of talks on *Fukanzazengi*, Zen Master Dōgen’s
 
 > For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.
 
-This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside.” From the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. 
+This is a sort of conclusion of the main subject in *Fukanzazengi*. [...] “In zazen, the right dharma is manifesting itself” means the original nature of the self is manifesting, very naturally, and also that “from the first, dullness and distraction are struck aside” – from the first, distraction and dullness are going away by themselves, even though there is nothing to force them to go away. 
 
 This is [the real] meaning of *shikantaza*. 
 
-It’s pretty difficult to understand, but this is really true, which you experience in your daily living. [Our] life is really based on this teaching. 
+It’s pretty difficult to understand, but this is really true, [and you experience this] in your daily living. [Our] life is really based on this teaching. 
 
-When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, from the first, dullness and confusions and distractions are struck aside, because you are manifesting yourself as you really are from moment to moment. In other words, you can stand up straight, right now, right here, but that means you can manifest *yourself*; so if you can stand up straightly right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
+When you yourself manifest, if you manifest yourself *as you really are*, at that time, very naturally, from the first, dullness and confusions and distractions are struck aside because you are manifesting yourself as you really are from moment to moment. In other words, you can stand up straight, right now, right here, but that means you can manifest *yourself*; so if you can stand up straight right now, right here, that means you can't be stumbling over distractions. [What is called *stumbling over*] from the first [is] struck aside.
 
 Or, particularly when you get angry, or when you're confused, very naturally you really want to express anger and confusion in your daily living. But I don't know exactly whether it is the best way to keep away from anger, or to understand anger, what it really is. If you really want anger to go away, very naturally all you have to do is, you must be in the really big scale of the world. 
 
-In other words, if you do *gassho*, or sometimes, religiously speaking, you pray to God, you pray to the Bodhisattvas, you pray to Avalokiteshvara: “Please help me. Please help.” And at least while you are praying to God, or you are praying to the Buddha, or Bodhisattva Avalokiteshvara, Manjushri – or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
+In other words, you do *gassho*, or sometimes, religiously speaking, you pray to God, you pray to the bodhisattvas, you pray to Avalokiteshvara: “Please help me. Please help.” And at least while you are praying to God, or you are praying to the Buddha, or Bodhisattva Avalokiteshvara, Manjushri – or while you are sitting here – there is quietness, tranquility. Well, very naturally, anger is struck aside, from the first. 
 
-But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally, people don't feel good; people get angry with *you*.‌ So very naturally, anger is sort of snowballing, again and again.
+But we don't do this; completely the opposite. If you get angry, [you] *express*. But if you express anger, you know pretty well, the expression of anger influences others. So you create your circumstances, which is called *angry world*. So very naturally people don't feel good; people get angry with *you*.‌ So very naturally anger is sort of snowballing, again and again.
 
 But when you do zazen, or when you pray to God, “Please help me” – even though you don't know how to deal with anger, you pray to God, “Please help me” – why do you pray to God? Does God help you? Does God take away your anger? I don't think so!
 
@@ -49,9 +49,9 @@ That is our life, okay?
 
 So we have a practice of bowing [to] Buddha. Bowing [to] Buddha is to express the deepest appreciation to your existence: how sublime life is, how important your life is. 
 
-But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. You don’t understand. Even if you understand, that is just a speck of dust of understanding of the human world, so actually, you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence. How? Let’s bow, just bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
+But you don't understand how sublime your life is, how important your life is – how important a tree’s life is. You don’t understand. Even if you understand, that is just a speck of dust of understanding of the human world, so actually you don't understand. But anyway, how sublime life is is *reality*, real reality, completely beyond human speculation. This is reality. This is your life. This is the tree's life. This is the Sun's life. This is the Moon's life. This is the Universe's life. So if it is true, even though you don't understand, why don't you express the deepest appreciation to your existence? How? Let’s bow; just bow to the Buddha. Touching your whole body to the floor, bow. That is a way to express appreciation to your existence. 
 
-Before you bow, you must be *you* who has already accepted your life, how sublime [your life] is. And then that's why you can bow. There is no ego understanding, ego consciousness, or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
+Before you bow, you must be *you* who has already accepted your life, how sublime [your life] is, and then that's why you can bow. There is no ego understanding, ego consciousness, or *selfish* understanding. “I don't understand” or “I understand” – whatever you say, there is nothing. When you are completely buddha, when you really accept the sublimity of your life, of your existence, very naturally you can bow. 
 
 So to bow is simultaneously to accept the sublimity of life. So very naturally, ego consciousness from the first is struck aside. 
 
@@ -59,7 +59,7 @@ That is what Dōgen Zenji says. So [the first point is], if you do zazen accordi
 
 But actually, we don't do zazen like this. Zazen is used as a means. 
 
-At that time, you accept yourself as an immature person. And then through zazen you want to reach a certain higher level, which is called *a mature level of human life*, seen in the future. At that time, the present life is immature or unhappy; that's why you want to practice zazen. 
+At that time, you accept yourself as an immature person, and then through zazen you want to reach a certain higher level which is called “a mature level of human life,” seen in the future. At that time, the present life is immature or unhappy; that's why you want to practice zazen. 
 
 So at that time, zazen is completely a means to an end. That means you already accept your life [as] not sublime, your life [as] unhappy. [...] If you do zazen like this, as a means to an end, you accept the lack of sublimity in your existence. That's why you really want to do zazen. 
 
@@ -67,7 +67,7 @@ But no matter how long you do zazen like *this*, it's very difficult to realize 
 
 So just *do* zazen. *Do zazen* means you are present from moment to moment within the actual dynamic working which is called *doing zazen*. Becoming one with *doing zazen*, not seeing zazen [...] objectively or conceptually. If you see zazen as a means, it is conceptualized; that's why zazen is a little bit something far from you. So that is the dualistic world. 
 
-The important point is, you must accept zazen as total activity, which is vividly alive from moment to moment. Even though you don't understand what zazen is, accept zazen, which means, *do* zazen. Even though you don't understand how sublime your life is, anyway, bow to the Buddha. If you bow to the Buddha, selfish understanding from the first is struck aside. 
+The important point is, you must accept zazen as total activity, which is vividly alive from moment to moment. Even though you don't understand what zazen is, accept zazen, which means *do* zazen. Even though you don't understand how sublime your life is, anyway, bow to the Buddha. If you bow to the Buddha, selfish understanding from the first is struck aside. 
 
 That is *shikantaza* – very naturally.
 
