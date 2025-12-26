@@ -231,7 +231,9 @@ So finally, we have to practice regulating the mind. That regulation of the mind
 
 But how can you practice egolessness? 
 
-Dōgen Zen Master says (in *Shōji*, “Life and Death”): if you really simply forget your body and mind, you should throw away yourself into the house of Buddha.
+Dōgen Zen Master says (in *Shōji*, “Life and Death”): 
+
+> If you really, simply forget your body and mind, you should throw away yourself into the house of Buddha.
 
 That means, you should throw yourself away... to something. That *to something* is to your object. But this object is not merely an object, this is the house of the Buddha. 
 
@@ -241,7 +243,7 @@ So that is egolessness.
 
 And also, if you throw yourself away, your body and mind, into the house of the Buddha, at that time, Dōgen Zen Master says:
 
-> ... when functioning comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in anyone's mind.
+> When functioning comes from the direction of the Buddha, and you go in accord with it, then there's no strength needed and no thought expended. Free from birth and death, you become Buddha. Then there can be no obstacle in anyone's mind.
 
 [That] means if you throw away yourself into the house of Buddha, that is nothing but expressing the original nature of existence. Very naturally; simultaneous. 
 
@@ -249,9 +251,9 @@ So, here is zazen. If you see zazen and you separately, that is a situation in w
 
 So first of all, you have to make arrangement of zazen and you, circumstances and the sensory world; you have to arrange all things. And then, if you arrange all circumstances, [as I told you], then you should take care of zazen, with egolessness.
 
-At that time, the practice of egolessness is to throw away yourself into zazen, perfectly [in the flow of] zazen. Offer your body and mind to zazen completely. At that time, there is no self. No-self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
+At that time, the practice of egolessness is to throw away yourself into zazen, perfectly [in the flow of] zazen. Offer your body and mind to zazen completely. At that time, there is no self. No self. But if you completely offer yourself to zazen, that zazen helps you, simultaneously. 
 
-That egolessness, based on the spirit of throwing away, offering yourself into zazen, is based on the help of *samadhi*. [You can only] throw away into zazen; at that time, you cannot do it without *samadhi*: one-pointedness.
+That egolessness, based on the spirit of throwing [yourself] away, offering yourself into zazen, is based on the help of *samadhi*. [You can only] throw away into zazen; at that time, you cannot do it without *samadhi*: one-pointedness.
 
 If you want to practice *samadhi*, one-pointedness, you have to make arrangement of circumstances. Cease all affairs and all involvements. There is no chance to *involve* in the sound of the cars, and trees, birds, whatever. Throw away everything, and then you can really focus on just one object. This is *samadhi*. If you practice *samadhi*, if you are right in the middle of *samadhi*, very naturally there is the practice of egolessness, because you can offer yourself to zazen. 
 
@@ -295,7 +297,7 @@ So the important point is arrangement of our circumstances: how to use the weeds
 
 So, that is the conclusion of the main subject in [*Fukanzazengi*]. That's why Dōgen Zenji says that if you do zazen according to what he [says], very naturally the dharma is manifesting itself, and from the first, dullness and distraction are struck aside. That is really the zazen we always do. 
 
-If you believe that by the zazen “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony. Because if you believe *that*, zazen is always something far from you. And not only zazen – you accept yourself as sort of an unhappy person, so you yourself are also a person far from the real person; opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult [for you] to deal with zazen and whatever you do. So, that is not [the] practice for us.
+If you believe that by the zazen “I should be happy,” or “I want to do something,” this is not real practice. You never find peace and harmony [that way], because if you believe *that*, zazen is always something far from you. And not only zazen – you accept yourself as sort of an unhappy person, so you yourself are also a person far from the real person; opposed to happiness or unhappiness. That's why it's pretty difficult for people to deal with you, and also it's very difficult [for you] to deal with zazen and whatever you do. So, that is not [the] practice for us.
 
 #### 1:07:20 end of recording
 
