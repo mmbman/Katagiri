@@ -537,7 +537,7 @@ Now, I don’t exactly mean that I try to escape – because we have to be *cent
 
 **Katagiri Roshi:** No. The pain you believe exists is sort of dregs you can pick up. 
 
-For instance, I always tell you that talking like this, and doing zazen like the posture for full lotus and half lotus for two hours, I don’t feel pain. The pain exists here; but I don’t feel pain. *Now* I feel pain, because I’m paying attention to it. So, the pain is here; it exists. But pain doesn’t exist when I just be here; pain completely becomes one with me, so no pain. If you say, “that’s pain”, it is already some dregs that you can see *after* the experience of pain – *after* real pain, or before pain.
+For instance, I always tell you that talking like this, and doing zazen like the posture for full lotus and half lotus for two hours, I don’t feel pain. The pain exists here; but I don’t feel pain. *Now* I feel pain, because I’m paying attention to it. So, the pain is here; it exists. But pain doesn’t exist when I just be here; pain completely becomes one with me, so no pain. If you say “that’s pain,” it is already some dregs that you can see *after* the experience of pain – *after* real pain, or before pain.
 
 *[Tape change.]*
 
@@ -549,9 +549,7 @@ For instance, I always tell you that talking like this, and doing zazen like the
 
 **Same person:** With what?
 
-**Katagiri Roshi:** With zazen. Even though there is no demand, no order, no effort – dullness and distraction drop off. 
-
-Drop off means, become one with zazen. In other words, absorb into zazen. That is from the first.
+**Katagiri Roshi:** With zazen. Even though there is no demand, no order, no effort – dullness and distraction drop off. “Drop off” means become one with zazen. In other words, absorb into zazen. That is from the first.
 
 **Same person:** [At the moment.]
 
