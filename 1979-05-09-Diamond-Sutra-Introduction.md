@@ -213,8 +213,6 @@ That’s why we have to continue to sit. I don’t know why. *[He laughs.]* But 
 
 #### 58:09 end of recording
 
----
-
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
 #### Previous | [Next](1979-06-09-Fukanzazengi-Talk-1) | [List](list#1979) | Series: [*Diamond Sutra*](diamond-sutra)
