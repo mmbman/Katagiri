@@ -345,7 +345,7 @@ That’s why the koan says,
 
 If you pick up the rice, if you see the rice, there is no gap between rice and you. If you pick up zazen, there is no gap between zazen and you.
 
-But there is always arrogance there. Arrogance separates, immediately separates two things. And if you separate, immediately your consciousness starts to work, and analyze, evaluate or judge. And next you can create effective preferences. And then, that’s pretty hard to stand up there.
+But there is always arrogance there. Arrogance separates, immediately separates two things. And if you separate, immediately your consciousness starts to work, and analyze, evaluate or judge. And next you can create affective preferences. And then, that’s pretty hard to stand up there.
 
 And then always we, this main case says, 
 
