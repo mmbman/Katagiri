@@ -11,10 +11,7 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-diamond-sutra-giving-non-covetousness)
 
 #### 0:00
 
@@ -28,23 +25,29 @@ Why is the perfection of generosity the most important quality in Mahayana Buddh
 >
 > Subhuti replied: “Great, O Lord, great, O Well-Gone, would that heap of merit be! And why? Because the Tathāgata spoke of the ‘heap of merit’ as a non-heap. That is how the Tathāgata speaks of ‘heap of merit’.”
 >
-> (From *Buddhist Wisdom: The Diamond Sutra and the Heart Sutra* by Edward Conze, pp. 34-35, immediately following the passage quoted in the previous talk.)
+> (From *Buddhist Wisdom: The Diamond Sutra and the Heart Sutra* by Edward Conze, pp. 34-35.)
 
 The commentary by Conze here is very interesting. Let me read it first:
 
 > The merit to be derived from giving depends, among other things, on the preciousness of the gift, and the quality of the recipient. The gift consists of the seven precious things, mentioned also at chapter 11, 19, 28, 32a. They are gold, silver, lapis lazuli, coral, gems, diamonds, and pearls. When this most precious of all material gifts is given in abundance to the Tathāgatas, who are the most exalted persons of all, then this act of giving produces a quite exceptional amount of merit. This sounds strange to modern ears. The Tathāgatas have all they need, they certainly can make no use of all this gold, silver, etc., and so how could this gift benefit them? Would it not be very much more to the point to relieve the sufferings of those who are in want, and to give them what they need, and what they would use so gladly? Is there not a complete and callous disregard of the poor in the Buddhist statement that the best gift is that which is given by the dispassionate to the dispassionate? Common sense as we understand it must withhold its approval from this statement. Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.
+> 
+> (From *Buddhist Wisdom: The Diamond Sutra and the Heart Sutra* by Edward Conze)
 
-In Mahayana Buddhism, the practice of perfection of giving is one of the most important practices for us, because it is one of the six *paramitas*. Giving is the first item of the six paramitas. But in primitive Buddhism, the most important practice for Buddhists is to view in the proper way; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice the perfection of giving. 
+In Mahayana Buddhism, the practice of perfection of giving is one of the most important practices for us, because it is one of the six *paramitas*. Giving is the first item of the six paramitas. 
+
+In primitive Buddhism, the most important practice for Buddhists is [Right View]; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice the perfection of giving. 
 
 If you read Mahayana Buddhist scriptures, very often they say, “give offerings decorated with seven precious treasures to Tathāgatas, to Arhats, to noble enlightened men.” According to modern sense, it doesn’t make sense to give in that way. Why don’t you give an offering consisting of seven jewels – gold, silver, et cetera – to the poor? But if you understand the practice of giving in that way, it’s pretty difficult to understand the real spirit of Mahayana Buddhism. That’s why Conze says, “Some meditation on the subject is perhaps called for, and it will be all the more fruitful when preceded and accompanied by actual acts of generosity.” I would like to talk about this point of view tonight. 
 
 #### 7:44
 
-Dōgen Zen Master says, giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
+Dōgen Zen Master says giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
 
 This is very common, very common in the human world. That’s why we always fight each-other. Arguments, disputes, and finally, we fight. Finally we separate, and... what is the term I always use... *[he struggles for the term]* divorce. *[Laughter.]* It very often happens in this world. 
 
-That’s why Dōgen Zenji says the practice of giving is not to covet. This is very important. Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
+That’s why Dōgen Zenji says the practice of giving is not to covet. This is very important. 
+
+Here is a very interesting poem by Rainer Maria Rilke. This is just a piece of a poem by him in the late years of his life: 
 
 > Only we see death; but the beast is free   
 > and has its death always behind it and God before it,   
@@ -58,46 +61,8 @@ That’s why Dōgen Zenji says the practice of giving is not to covet. This is v
 > ...   
 > That’s what Destiny is: to be face to face  
 > and nothing but that and always opposite.  
->      
-> (*Transcriber’s Note:* This seems to be mostly the same as a section of *The Eighth Duino Elegy* by Rainer Maria Rilke (see [this source](http://my.fit.edu/~rosiene/rilke.pdf)), but Katagiri Roshi appears to be missing a couple pieces of it, and he says “unfolded” instead of “unfolding.”)
->
->> (Here are a couple different translations for reference. Skip these if not interested.)
->> 
->> [Translated by Robert Hunter:](http://www.hunterarchive.com/files/Poetry/Elegies/elegy8.html):
->>  
->> We alone face death.  
->> The beast, death behind and  
->> God before, moves free through  
->> eternity like a river running.  
->> Never for one day do we  
->> turn from forms to face  
->> that place of endless purity  
->> blooming flowers forever know.  
->> Always a world for us, never  
->> the nowhere minus the no:  
->> that innocent, unguarded  
->> space which we could breathe,  
->> know endlessly, and never require.  
->> ...  
->> This is destiny: to be opposites,  
->> always and only to face  
->> one another and nothing else.  
->>   
->> [Translated by J.B. Leishman and Stephen Spender:](https://pdfs.semanticscholar.org/11c6/f887f323717de5a30a7b77052a0ecbe479f4.pdf):
->> 
->> We only see death; the free animal  
->> has its decease perpetually behind it  
->> and God in front, and when it moves, it moves  
->> into eternity, like running springs.  
->> We’ve never, no, not for a single day,  
->> pure space before us, such as that which flowers   
->> endlessly open into: always world,  
->> and never nowhere without no: that pure,  
->> unsuperintended element one breaths,  
->> endlessly knows, and never craves.  
->> ...  
->> That’s what Destiny means: being opposite,  
->> and nothing else, and always opposite.
+
+(*Transcriber’s Note:* This seems to be mostly the same as a section of *The Eighth Duino Elegy* by Rainer Maria Rilke, but Katagiri Roshi appears to have skipped a piece of it, and he says “unfolded” instead of “unfolding,” amongst a few other variances.)
 
 This is just a piece of chapter eight of *Duino Elegies*, composed by Rilke in the late years of his life. In this book, what he wants to tell us is not pessimistic of the human world, but it is of the oneness of life and death. The title, *Duino Elegies*, is something pensive, but behind this poem he really wants to say [something about] oneness of life and death. 
 
