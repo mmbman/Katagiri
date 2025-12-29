@@ -41,7 +41,7 @@ If you read Mahayana Buddhist scriptures, very often they say, “give offerings
 
 #### 7:44
 
-Dōgen Zen Master says giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only to money, not only to the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
+Dōgen Zen Master says giving is not to covet. This is the meaning of the practice of giving: not to covet. More or less, we are very covetous – not only toward money, not only toward the material, but to psychological or mental situations, whatever they are, we are very covetous. To be covetous means to try to take something in your hand always; always trying to get more. Not giving something to others, but trying to get something from others. This is covetousness. 
 
 This is very common, very common in the human world. That’s why we always fight each-other. Arguments, disputes, and finally, we fight. Finally we separate, and... what is the term I always use... *[he struggles for the term]* divorce. *[Laughter.]* It very often happens in this world. 
 
@@ -77,21 +77,27 @@ This is just a piece of chapter eight of *Duino Elegies*, composed by Rilke in t
 > and when it walks it goes toward eternity,   
 > as springs flow.  
 
-Only human beings can see death. We can see death in many ways, from many angles. Before you and behind you, to the right, to the left; there are many ways we can see death. “But the beast is free and has its death always behind it.” It means the beast – the animals, birds, dogs, cats, whatever it is – is free from the death, which we can see. [It’s] completely different. Death is always *behind* the beast’s life; death never attacks the beast. So the beast never despairs in death.
+Only human beings can see death. We can see death in many ways, from many angles. Before you and behind you, to the right, to the left; there are many ways we can see death. 
 
-So that’s why [it says] “God before it.” *God* means, in this case, the vastness of space. He never sees death in front of him; he is always going ahead toward the vastness of space, eternity; that means “God before it.” That’s why he said, “when it walks it goes toward eternity.” [It’s] completely eternity: he doesn’t know that in a moment there is some destiny he doesn’t see. So that’s just to go ahead, and then only when he sees something dangerous is he scared. But he doesn’t see death. So death is completely one with the beast, always. 
+“But the beast is free and has its death always behind it.” It means the beasts – the animals, birds, dogs, cats, whatever it is – are free from the death which we can see. [It’s] completely different. Death is always *behind* the beast’s life; death never attacks the beast. So the beast never despairs in death.
 
-That’s why he said, “When it walks it goes toward eternity, as springs flow.” Just as springs flow: springs flow from the ground, always coming up. No suffering. So from this point, the beast never suffers from life or death. They have subjective feeling, according to their instinct, so they fear death or something dangerous only when they see something dangerous right in front of them. But they never think of death, they never think there is something dangerous in a second. So whatever happens, they always walk toward eternity; no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
+So that’s why [it says] “God before it.” *God* means, in this case, the vastness of space. He never sees death in front of him; he is always going ahead toward the vastness of space, eternity; that [is the meaning of] “God before it.” That’s why he said, “when it walks it goes toward eternity.” [It’s] completely eternity: he doesn’t know that in a moment there is some destiny he doesn’t see. So that’s just to go ahead, and then only when he sees something dangerous is he scared. But he doesn’t see death. So death is completely one with the beast, always. 
+
+That’s why [Rilke] said, “When it walks it goes toward eternity, as springs flow.” Just as springs flow: springs flow from the ground, always coming up. No suffering. 
+
+So from this point, the beast never suffers from life or death. They have subjective feeling, according to their instinct, so they fear death or something dangerous only when they see something dangerous right in front of them. But they never think of death, they never think there is something dangerous in a second. So whatever happens, they always walk toward eternity; no fear. The fear appears only when they see it right in front of them. That is what Rilke said. 
 
 #### 18:16
 
-And then next: “Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It’s forever world and nowhere without not. That’s what Destiny is: to be face to face and nothing but that and always opposite.”
+And then next: 
 
-This is a very common lifestyle of human beings: being present face to face. Creating the world, the world created by us, and thinking that world is the most important for us. That’s why we really cling to the world created by us. At that time we are always present face to face.
+> Never, not for a single day do we have pure space before us in which the flowers are always unfolded. It’s forever world and nowhere without not. That’s what Destiny is: to be face to face and nothing but that and always opposite.
+
+This is a very common lifestyle of human beings: being present face to face. Creating the world – the world created by us – and thinking that world is the most important for us. That’s why we really cling to the world created by us. At that time we are always present face to face.
 
 That way to live is sort of miserable. Because if you are present face to face, there is always argument, dispute, and quarrel, fighting each other. Look at the problem of divorce, look at the fighting between a man and a woman; look at the human world. Wife and husband, you and your friends, between people – we are always face to face, and fight.
 
-This is very common for us. That’s why Rilke says, “that’s what destiny is, to be face to face.” That looks just like human destiny. But human destiny is not something with which your life is completely tied up. Destiny is something which allows you to be free. You can turn over destiny; you can cut your way to the fortune. 
+This is very common for us. That’s why Rilke says, “That’s what destiny is, to be face to face.” That looks just like human destiny. But human destiny is not something by which your life is completely tied up; destiny is something which allows you to be free. You can turn over destiny; you can cut your way to the fortune. 
 
 If you follow life face to face always, there are always human problems: arguments, fighting, complaining; finally, divorce, and living separately, and hatred – always. 
 
@@ -115,19 +121,25 @@ Well you always hate the parent, but the parents are *your* parents. If you’re
 
 #### 28:00
 
-That’s why next, Rilke said, “Never, not for a single day do we have pure space before us in which the flowers are always unfolded.” 
+That’s why next, Rilke said,
+
+> Never, not for a single day do we have pure space before us in which the flowers are always unfolded.
 
 Have you ever experienced the vastness of space in which the blooming flowers very smoothly enter into your heart, without “decoding” them? We are always *decoding* flowers. Do you understand decoding flowers? Without decoding the beautiful flowers, the beautiful blooming flowers smoothly enter into your heart. That is the vastness of space. 
 
-In Buddhism, that vastness of space is what is called emptiness. Emptiness is vast, unfathomable, boundless. [There is] no particular power, no particular force, [like] what you think. But it is there, which is unfathomable, and deep, and vast, and boundless. And then when you get into it, it’s very evasive for us to understand what it is, because it is vast, it is boundless. But when it is not there, when it doesn’t exist, it’s very difficult for *us* to exist. So that is space, that is what is called emptiness. 
+In Buddhism, that vastness of space is what is called *emptiness*. Emptiness is vast, unfathomable, boundless. [There is] no particular power, no particular force [like] what you think – but it is there, which is unfathomable, and deep, and vast, and boundless. And then when you get into it, it’s very evasive for us to understand what it is, because it is vast, it is boundless. But when it is not there, when it doesn’t exist, it’s very difficult for *us* to exist. So that is space, that is what is called emptiness. 
 
-So, “Never do we have a pure space before us in which the flowers are always unfolded. It’s forever world and ... nowhere without not.” We always see the world created by us; “nowhere without not.” Always we see the world created by us, and believe that is important for us. But the most important thing is the vastness of space. The world created by us is a tiny world. We can see it from each individual telescope. This is also important for us, because that is the world in which we live. But in order to live in this small world, we have to know the bigger scale of the world. That is the vastness of space. According to Buddhism, it is called emptiness. Emptiness is not the [world]. I don’t know what it is. But *it is* emptiness – anywhere, anytime.
+So, “Never do we have a pure space before us in which the flowers are always unfolded.”
 
-(*Transcriber’s Note:* For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness.” The poem – in German – actually says something like “*never* nowhere without not,” or “never the nowhere minus the no.” In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)
+> It’s forever world and ... nowhere without not.
+
+We always see the world created by us: “nowhere without not.” Always we see the world created by us, and believe that is important for us. But the most important thing is the vastness of space. The world created by us is a tiny world. We can see it from each individual telescope. This is also important for us, because that is the world in which we live. But in order to live in this small world, we have to know the bigger scale of the world. That is the vastness of space. According to Buddhism, it is called emptiness. Emptiness is not the [world]. I don’t know what it is. But *it is* emptiness – anywhere, anytime.
+
+(*Transcriber’s Note:* For “nowhere without not,” Katagiri Roshi seems to interpret “without not” as emptiness, and “nowhere” as meaning the same as “never”, i.e., “never emptiness.” The poem – in German – may actually say something like “*never* nowhere without not,” or “never the nowhere minus the no.” In that case, “nowhere without not” or “the nowhere minus the no” would be emptiness. However, the point is probably the same.)
 
 #### 32:17
 
-But in order to experience the vastness of space which is called emptiness, unfortunately, we have to experience a big shock. A big shock... because we are really stubbornness of ego. Stubbornness of ego means the state of human consciousness which allows you to be covetous, trying to get something, not giving something to others. 
+But in order to experience the vastness of space which is called emptiness, unfortunately, we have to experience a big shock. A big shock, because we are really stubbornness of ego. *Stubbornness of ego* means the state of human consciousness which allows you to be covetous, trying to get something, not give something to others. 
 
 If you always try to get something from others, we have to be present face to face, and finally, we fight. But sometimes we should stop doing this, stop trying to get something from others, and just sit side by side to each other, without being covetous. That’s pretty good for us both, in order enter into the vastness of space. Vastness of space is the human attitude which allows you to accept others, with whom you believe you are always face to face. If you sit side by side to each other without trying to take something from others ... then at that time you can *give* something to others. And then, people can learn something from you. 
 
@@ -135,23 +147,35 @@ If you try to give something to others, sometimes you can give something materia
 
 #### 36:00
 
-That’s why [*Diamond Sutra* says,] “The Lord asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds” – this world system of 1,000 million worlds means the whole universe – “with the seven precious things, and then gave it as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”
+That’s why [the *Diamond Sutra* says,] “The Lord asked: What do you think, Subhuti, if a son or daughter of good family had filled this world system of 1,000 million worlds” – this world system of 1,000 million worlds means the whole universe – “with the seven precious things, and then gave it as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones, would they on the strength of that beget a great heap of merit?”
 
-The seven precious things is not to be face to face always. To walk nestling close to each-other, to sit next to others, holding the shoulders with compassion, et cetera, for example. That way of practice, giving to others, is really precious, more than gold or silver, because people can get something from you, and you can give something to others. 
+“The seven precious things” is not to be face to face always. To walk nestling close to each-other, to sit next to others, holding the shoulders with compassion, et cetera, for example. That way of practice, giving to others, is really precious, more than gold or silver, because people can get something from you, and you can give something to others. 
 
-For instance, if you become a Buddhist, or even though you are not Buddhist – most of you don’t believe that you are exactly Buddhist. Well that’s okay, but you are studying Buddhism, so when you go to your families, most of the families argue against your belief. And then many people ask me, “How can I explain Buddhism?” I don’t know! I don’t know completely how to explain Buddhism to people who don’t know about it. But still, if you try to be face to face with your parents who don’t know Buddhism, you really fight each other. Don’t you think so? So why don’t you be present with them, next to the people, side by side? When you get up in the morning, when it’s time to greet people, why don’t you say “good morning”? Why don’t you have breakfast in peace and harmony? That’s pretty good. This is very nice, a precious jewel, more than gold or silver. Then people can learn lots of things from you. And then finally the parents are curious, very curious of what you are doing. So someday, they ask you, “Shall I visit your center?” or, “Shall I visit your place, to see what you are doing?” This is very natural.
+For instance, if you become a Buddhist, or even though you are not Buddhist... most of you don’t believe that you are exactly Buddhist. Well that’s okay, but you are studying Buddhism, so when you go to your families, most of the families argue against your belief. And then many people ask me, “How can I explain Buddhism?” I don’t know! I don’t know completely how to explain Buddhism to people who don’t know about it. But still, if you try to be face to face with your parents who don’t know Buddhism, you really fight each other. Don’t you think so? So why don’t you be present with them, next to the people, side by side? When you get up in the morning, when it’s time to greet people, why don’t you say “good morning”? Why don’t you have breakfast in peace and harmony? That’s pretty good. This is very nice, a precious jewel, more than gold or silver. Then people can learn lots of things from you. And then finally the parents are curious, very curious of what you are doing. So someday, they ask you, “Shall I visit your center?” or, “Shall I visit your place, to see what you are doing?” This is very natural.
 
-So, if you’re always face to face, it’s pretty difficult to teach something, or to be in peace and harmony with people. That’s why Rilke feels that human life is always face to face, always opposite. That’s pretty hard. So have you ever experienced pure space? Flowers just always unfolded. That is emptiness, which is vast, which is unfathomable – you don’t know what it is. But when it doesn’t exist, *you* cannot exist. And if it doesn’t exist, human life is very cold, miserable. This is vastness of space, or emptiness.
+If you’re always face to face, it’s pretty difficult to teach something, or to be in peace and harmony with people. That’s why Rilke feels that human life is always face to face, always opposite. That’s pretty hard. 
+
+So have you ever experienced pure space? Flowers just always unfolded. That is emptiness, which is vast, which is unfathomable – you don’t know what it is. But when it doesn’t exist, *you* cannot exist. And if it doesn’t exist, human life is very cold, miserable. This is vastness of space, or emptiness.
 
 #### 40:56
 
-“Then give it” – the precious things – “as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones.” These are not a particular person, because all are Buddha. We have to give these precious things to everybody – to the trees, to the birds, to all sentient beings – like this. 
+> “Then give it” – the precious things – “as a gift to the Tathāgatas, Arhats, Fully Enlightened Ones.” 
 
-“At that time, can we beget a great heap of merit?” And then Subhuti said: “Great, O Lord, great, O Well-Gone, would that heap of merit be!” *Of course* you can get merit. People beget a heap of merit. Even though you don’t try to give, people can get something from you. Your parents, your friends can get something of what Buddhism is, from each pore of your body. 
+These are not a particular person, because all are Buddha. We have to give these precious things to everybody – to the trees, to the birds, to all sentient beings – like this. 
 
-And then: “And why? Because the Tathāgata spoke of the ‘heap of merit’ as a non-heap.” We don’t know what is merit, how I can give something precious to others. We don’t know how we can teach Buddhism to our parents who don’t know. But if you just be present with them in peace and harmony, day after day, sitting side by side, and sometimes massage them on the shoulders – very naturally they can learn. This is the “heap of merit”. But there is nothing you can be covetous of, there is nothing to hold on to, because you don’t know when or how you can give. The only thing you can do is, just be present with them side by side, not face to face always. 
+> “At that time, can we beget a great heap of merit?” And then Subhuti said: “Great, O Lord, great, O Well-Gone, would that heap of merit be!” 
 
-If you are always face to face, you really want to give something consciously, idealistically or psychologically. And then, if people don’t accept your teaching, well, you really get angry. That is a religious problem, in the human world. Even though Buddhism is beautiful, if people accept Buddhism and try to teach it, they create a problem. [Where is the] *real* Buddhism? Christianity is beautiful, but if you accept Christianity and try to give Christianity to people, you create the problem – idealism. Because consciously, we are present face to face. That means we are really stubbornness of ego, which allows you to be always face to face. That means we are always based on covetousness, trying to get something from others ... without giving something from you to others. That is a miserable life. It’s very miserable.
+*Of course* you can get merit. People beget a heap of merit. Even though you don’t try to give, people can get something from you. Your parents, your friends can get something of what Buddhism is, from each pore of your body. 
+
+And then: 
+
+> “And why? Because the Tathāgata spoke of the ‘heap of merit’ as a non-heap.” 
+
+We don’t know what merit is, how I can give something precious to others. We don’t know how we can teach Buddhism to our parents who don’t know. But if you just be present with them in peace and harmony, day after day, sitting side by side, and sometimes massage them on the shoulders – very naturally they can learn. This is the “heap of merit.” But there is nothing you can be covetous of, there is nothing to hold on to, because you don’t know when or how you can give. The only thing you can do is, just be present with them side by side, not face to face always. 
+
+If you are always face to face, you really want to give something consciously, idealistically or psychologically. And then, if people don’t accept your teaching, well, you really get angry. That is a religious problem, in the human world. 
+
+Even though Buddhism is beautiful, if people accept Buddhism and try to teach it, they create a problem. [Where is the] *real* Buddhism? Christianity is beautiful, but if you accept Christianity and try to give Christianity to people, you create the problem – idealism. Because consciously, we are present face to face. That means we are really stubbornness of ego, which allows you to be always face to face. That means we are always based on covetousness, trying to get something from others ... without giving something from you to others. That is a miserable life. It’s very miserable.
 
 #### 45:20
 
@@ -187,7 +211,7 @@ In our daily living, the vastness of space is something that basically we don’
 
 #### 1:00:00
 
-But anyway, in Omaha we demonstrated for five miles, and had a religious service conducted by a Catholic priest, and I attended that. And last, the ceremony of floating the lantern boats. You know the lantern boats? In Japan, in the Obon ceremony – you know the Obon ceremony in Japan? It’s one of the biggest Buddhist ceremonies in Japan, inviting the spirits of your grandparents and ancestors, on August 12 or July 12. And *[unintelligible]*, and then decorate the family altar, offering food, inviting a priest and performing a Buddhist service, in each family. On August 16, we try to send spirits of the family ancestors to their own home, by boat. That is a lantern boat, a little lantern. Make a little boat, and put a candle on it, and float that lantern boat on the river. Then the lantern boat is going away, forever. That’s the ceremony. 
+But anyway, in Omaha we demonstrated for five miles, and had a religious service conducted by a Catholic priest, and I attended that. And last, the ceremony of floating the lantern boats. You know the lantern boats? In Japan, in the Obon ceremony – you know the Obon ceremony in Japan? It’s one of the biggest Buddhist ceremonies in Japan, inviting the spirits of your grandparents and ancestors, on August 12 or July 12. And *[unintelligible]*, and then decorate the family altar, offering food, inviting a priest and performing a Buddhist service, in each family. On August 16, we try to send spirits of the family ancestors to their own home by boat. That is a lantern boat, a little lantern. Make a little boat, and put a candle on it, and float that lantern boat on the river. Then the lantern boat is going away, forever. That’s the ceremony. 
 
 And then we did it in Omaha, on the Missouri River. But American people didn’t know what’s going on there. So motor boats, and, ***vrrrmmm***! *[Laughter.]* Lantern boats turn over. *[Everyone laughs.]*
 
