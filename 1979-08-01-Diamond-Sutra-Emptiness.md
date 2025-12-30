@@ -207,7 +207,7 @@ To talk is very important, because the activity *you talk* comes up from the ori
 
 “Emptiness”: this is a word. But the activity I talk about, emptiness itself, is not a word, because words are already emptiness, and the subject I am talking about is also emptiness. So I am not talking about the emptiness I can see or get. That is a word. When I am talking about emptiness, I myself am emptiness always. And words also are emptiness, always. 
 
-So, “emptiness” – this is [that] I have to talk about emptiness. To talk is important, but not the word. Most people are completely cheated by the word. If I say “emptiness,” [you say,] “Oh, I don’t like it, because emptiness is negative.” But emptiness is pretty nice. Emptiness is emptiness. Completely denied. Why do I exist? Why does the rose exist? Completely denied. That negation leads you to touch the exact core of existence of the rose itself. That is negation; that’s what emptiness is. 
+So, “emptiness” – this is [that] I have to talk about emptiness. To talk is important, but not the word. Most people are completely cheated by the word. If I say “emptiness,” [you say,] “Oh, I don’t like it, because emptiness is negative.” But emptiness is pretty nice. Emptiness is emptiness. [...] Why do I exist? Why does the rose exist? Completely denied. That negation leads you to touch the exact core of existence of the rose itself. That is negation; that’s what emptiness is. 
 
 So emptiness is very important for us. A more positive, affirmative term is, I told you, *stability*. Stability, or *maturity*, or *spiritual security*. That is emptiness. Through the emptiness, you can really experience spiritual security, or stability. Perfect stability.
 
