@@ -87,7 +87,7 @@ Dōgen Zenji also [says] in his *Shobogenzo* (in the chapter *Yuibutsu yobutsu*,
 
 > When you realize buddha-dharma, you do not think, ‘This is realization just as I expected.’ Even if you think so, realization invariably differs from your expectation. Realization is not like your conception of it. For this reason, realization cannot take place as previously conceived. When you realize buddha-dharma, you do not consider how realization came about. You should reflect on this. What you think one way or another before realization is not a help for realization.
 
-So, “when you realize buddha-dharma”: *buddha-dharma* is your original nature of existence, which is constantly gushing out like spring water from the ground. This is the life energy which everyone has, everything has. Even a tree, birds, et cetra. That life energy is constantly gushing out like spring water from the ground, constantly. It means constantly changing, constantly developing. There is no chance you can stop, [no place] you can be stuck. It is constantly developing.
+So, “when you realize buddha-dharma”: *Buddha-dharma* is your original nature of existence, which is constantly gushing out like spring water from the ground. This is the life energy which everyone has, every*thing* has. Even a tree, birds, et cetra. That life energy is constantly gushing out like spring water from the ground, constantly. It means constantly changing, constantly developing. There is no chance you can stop, [no place] you can be stuck; it is constantly developing.
 
 It means you can constantly knock on the door. If you knock on the door, constantly something comes up.
 
@@ -95,9 +95,11 @@ Another [thing] I always tell you, [about] personality or capability. You judge 
 
 The more you knock on the door, the more it’s coming up. You don’t expect [it]. Before you do [it], you imagine the limitation of your capability or personality, et cetera. But it is not the real capabilities or abilities you have. It is constantly developing, constantly. Just like spring water.
 
-So that is called *buddha-dharma*. Buddha-dharma means the original nature of the being [that] everything has is life energies which are gushing out from the ground like spring water. Constantly developing, constantly changing. That is called buddha-dharma.
+So that is called *buddha-dharma*. Buddha-dharma means the original nature of the being [that] everything has is life energies which are gushing out from the ground like spring water. Constantly developing, constantly changing. That is called buddha-dharma. 
 
-When you realize buddha-dharma, when you see it, then, well, it is called enlightenment. Well, through zazen or through working hard, through taking the best care of your life, maybe you attain enlightenment. When you realize buddha-dharma, you cannot think of it. Because if you really realize that depth of human life, you cannot explain it. It’s within you, but you cannot pin down exactly what it is. In other words, it’s pretty hard to show it or to give it to somebody. Because enlightenment or awareness of the total picture of human life is very individual, personal, spiritual security. Very personal. It’s very difficult to show.
+When you realize buddha-dharma, when you see it, then, well, it is called *enlightenment*. 
+
+Well, through zazen, or through working hard, through taking the best care of your life, maybe you attain enlightenment. When you realize buddha-dharma, you cannot think of it, because if you really realize that depth of human life, you cannot explain it. It’s within you, but you cannot pin down exactly what it is. In other words, it’s pretty hard to show it or to give it to somebody. Because enlightenment or awareness of the total picture of human life is very individual, personal, spiritual security. Very personal. It’s very difficult to show.
 
 But still [there is] a chance to teach or to guide people, because you are there and you act on this spiritual security in your everyday life. That’s why even though you don’t say anything, you just sit down, [still] you can teach. Your silence can teach people. Because you are constantly developing in the realm of spiritual security.
 
