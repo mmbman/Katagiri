@@ -12,13 +12,13 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1
 
 ##### [Case 1: The Highest Meaning of the Holy Truths, Talk 1](1979-11-17-Blue-Cliff-Record-Case-1-Talk-1)
 
-Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to pay attention to everything and flow with events like a stream of water. This is a way of “cutting off the myriad streams,” so that a harmonious, wonderful life can bloom. If there is anything “showy” about it, if there is something to be gained, it is not the real practice of Zen. But say, at just this moment – whose actions are these?
+Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Record*. The first case is the famous story of Bodhidharma’s encounter with Emperor Wu. In Talk 1 of 2 on this case, Katagiri Roshi focuses on the pointer (or introduction). To explain it, he tells some stories about his training as the *anja* or *jisha* (attendant) at Eiheiji monastery, where the “everyday food and drink” of a monk is to give compassionate attention to everything and flow with events like a stream of water.
 
 ---
 
 ##### [Case 1: The Highest Meaning of the Holy Truths,  Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
-Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Sōtō denominations.
+Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we might find the spirit of Zen, beyond the Rinzai and Sōtō denominations, pointing directly beyond words and language, by studying the *Blue Cliff Record*.
 
 ---
 
