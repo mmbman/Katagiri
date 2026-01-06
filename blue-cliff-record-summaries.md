@@ -18,7 +18,7 @@ Katagiri Roshi introduces a long-running series of talks on the *Blue Cliff Reco
 
 ##### [Case 1: The Highest Meaning of the Holy Truths,  Talk 2](1979-11-18-Blue-Cliff-Record-Case-1-Talk-2)
 
-Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we might find the spirit of Zen, beyond the Rinzai and Sōtō denominations, pointing directly beyond words and language, by studying the *Blue Cliff Record*.
+Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, the space between silence and speech, and the need to communicate in a deep way. He says that we might find the spirit of Zen, beyond the Rinzai and Sōtō denominations, pointing directly beyond words and language, by studying the *Blue Cliff Record*.
 
 ---
 
