@@ -7,24 +7,21 @@ title: "Blue Cliff Record Case 1: The Highest Meaning of the Holy Truths, Talk 2
 
 ### Summary
 
-Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we may find the spirit of Zen, pointing directly beyond words and language, by studying the *Blue Cliff Record*. He concludes by saying that we have to understand our practice in terms of general Buddhism, beyond Mahayana and Theravada, and beyond the Rinzai and Sōtō denominations.
+Why is there “no merit”? Katagiri Roshi covers one of the most famous stories in Zen Buddhism: Bodhidharma’s meeting with Emperor Wu. Along the way, he explains *tanpankan* (a “board carrying fellow”), the meaning of the inscription on Ranier Maria Rilke’s grave, and the space between silence and speech. He says that we might find the spirit of Zen, beyond the Rinzai and Sōtō denominations, pointing directly beyond words and language, by studying the *Blue Cliff Record*.
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-1-the-highest-meaning-of-the-holy-truths-lecture-2-of-2)
 
 #### 0:00
 
-**Katagiri Roshi:** I read the main subject of Case 1 already yesterday. This is a very famous story in [Zen Buddhism](glossary#zen-buddhism), so I think most of you know it pretty well. 
+**Katagiri Roshi:** I read the main subject of Case 1 already yesterday. This is a very famous story in Zen Buddhism, so I think most of you know it pretty well. 
 
-> Emperor Wu of Liang asked the great master [Bodhidharma](glossary#bodhidharma), “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
+> Emperor Wu of Liang asked the great master Bodhidharma, “What is the highest meaning of the holy truths?” Bodhidharma said, “Empty, without holiness.” The Emperor said, “Who is facing me?” Bodhidharma replied, “I don’t know.” The Emperor did not understand. After this Bodhidharma crossed the Yangtse River and came to the kingdom of Wei.
 
-In the history of Bodhidharma, it is said that he went to China in about 520 CE. Of course there are several different opinions about the definite year when Bodhidharma went to China, but anyway, about 520 he went to China to teach [Buddhism](glossary#buddhism). So that was the first time which the seed of Zen Buddhism was planted in China. That’s why this event was very important for Zen Buddhism. That’s why if you read the Zen koans, the Zen monks always bring up the question, “What is the meaning of Bodhidharma coming to China to teach Zen Buddhism?” What for? Why did Bodhidharma go to China and teach? For many, many years, this question is very important in Zen Buddhism. Many monks discuss this. It looks like the same question in Christianity, for instance, “Why is it that God is incarnated as a human named Jesus?” Same question. I don’t want to explain this today. But, that’s why in Zen Buddhism, this is very important for a Zen teacher.
+In the history of Bodhidharma, it is said that he went to China in about 520 CE. Of course there are several different opinions about the definite year when Bodhidharma went to China, but anyway, about 520 he went to China to teach Buddhism. So that was the first time which the seed of Zen Buddhism was planted in China. That’s why this event was very important for Zen Buddhism. That’s why if you read the Zen koans, the Zen monks always bring up the question, “What is the meaning of Bodhidharma coming to China to teach Zen Buddhism?” What for? Why did Bodhidharma go to China and teach? For many, many years, this question is very important in Zen Buddhism. Many monks discuss this. It looks like the same question in Christianity, for instance, “Why is it that God is incarnated as a human named Jesus?” Same question. I don’t want to explain this today. But, that’s why in Zen Buddhism, this is very important for a Zen teacher.
 
-Anyway, Bodhidharma went to China in about 520, and met with Emperor Wu. This story is the discussion between Emperor Wu and Bodhidharma. The commentary by [Engo Zenji](glossary#engo-kokugon) says:
+Anyway, Bodhidharma went to China in about 520, and met with Emperor Wu. This story is the discussion between Emperor Wu and Bodhidharma. The commentary by Engo Zenji says:
 
 > When Bodhidharma first met Emperor Wu, the Emperor asked, “I have built temples and ordained monks; what merit is there in this?” Bodhidharma said, “There is no merit.” He immediately doused the Emperor with dirty water. If you can penetrate this statement, “there is no merit,” you can meet Bodhidharma personally. Now tell me, why is there no merit at all in building temples and ordaining monks? Where does the meaning of this lie?
 
