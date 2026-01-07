@@ -337,7 +337,11 @@ Questions?
 
 **Same person:** Well, no, but the commentator thought he deserved it. Isn’t that what this was?
 
-**Katagiri Roshi:** Oh yes, he has to deserve thirty blows. Otherwise, you cannot open your eyes. For instance, I told you before, when I was at the temple, I had a strike for two weeks [after I had attended] a week or so ... because I hated the monks’ life and temple life. Finally my teacher says, coming into my room, “Dainin, get up. When the time comes, when everyone gets up, you get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is these thirty blows. *[He laughs.]* I actually deserved thirty blows. That’s why I couldn’t stay there; I felt shaky, my body and mind is shaky, anyway. But I gave up; I didn’t strike. Next day, I did it, anyway; get up in the morning, and chanting, fixing meals. Still I hated it, *[laughter]* but anyway, I did it. But this is monk. So that is really thirty blows. But if you’re not ready to open your eyes, even though what he’s suggesting is very gentle – he didn’t scold me. “Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again.” That’s it. Very simple. If you’re not ready to accept this as thirty blows, well, that’s a pretty usual answer, suggestion. But anyway, that was really thirty blows for me. 
+**Katagiri Roshi:** Oh yes, he has to deserve thirty blows. Otherwise you cannot open your eyes. 
+
+For instance, I told you before, when I was at the temple, I [went on] a strike for two weeks, [after I had attended] a week or so ... because I hated the monks’ life and temple life. Finally my teacher came into my room and said, “Dainin, get up. When the time comes, when everyone gets up, you get up. Everyone having breakfast; why don’t you have breakfast? When the time comes to get up, please get up.” Well, that is these thirty blows. *[He laughs.]* I actually deserved thirty blows. That’s why I couldn’t stay there; I felt shaky, my body and mind was shaky, anyway. But I gave up; I didn’t strike. Next day, I did it; got up in the morning, and chanting, fixing meals. Still I hated it... *[laughter]* but anyway, I did it. [This is being a] monk. 
+
+So that is really thirty blows. But if you’re not ready to open your eyes... Even though what he’s suggesting is very gentle, he didn’t scold me: “Dainin. When the time comes for everyone to get up, please get up. If you feel sick, after that you can go to bed again.” That’s it. Very simple. If you’re not ready to accept this as thirty blows, well, that’s a pretty usual answer, suggestion. But anyway, that was really thirty blows for me. 
 
 Well, I don’t know if Emperor Wu accepted thirty blows. I don’t know, but anyway, that is Engo Zen Master’s comment.
 
@@ -351,11 +355,11 @@ And he doesn’t know that the great illumination shines forth from under his ow
 
 **Same person:** When he says he deserves thirty blows for his phrase?
 
-**Katagiri Roshi:** Yes. *[He laughs.]* Because he says, “Ridiculous. You cannot get him back, get Bodhidharma back again.” But if we go there and ask Bodhidharma, “Please come back again” – maybe so, don’t you think so? But he says, don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But actually not, it is really great. Do you understand? 
+**Katagiri Roshi:** Yes. *[He laughs.]* Because he says, “Ridiculous. You cannot get him back, get Bodhidharma back again.” But if we go there and ask Bodhidharma, “Please come back again” – maybe so, don’t you think? But he says don’t go there. That is a little bit against the human speculation. That’s why he said he should deserve thirty blows. But actually not, it is really great. Do you understand? 
 
 #### 1:12:38
 
-**Question:** What you’re saying... Why didn’t Bodhidharma in the first place, you know, explain to Emperor Wu what he was saying, if the Emperor didn’t understand, wouldn’t that have benefited ...
+**Question:** What you’re saying... Why didn’t Bodhidharma, you know, in the first place explain to Emperor Wu what he was saying? If the Emperor didn’t understand, wouldn’t that have benefited ...
 
 **Katagiri Roshi:** *[cackles]* 
 
@@ -371,7 +375,9 @@ Well, for Emperor Wu it is very hard to stand up in no explanation. And also, fo
 
 *[Long pause.]*
 
-It’s because the explanation is Bodhidharma’s explanation, not the Emperor’s explanation. So my explanation is *mine*, not yours. You should find *your* explanation, through my explanation. That’s all. So sometimes, even though my explanation is going again and again, if you’re not ready to accept my explanation, well you don’t understand. Don’t you think so?
+It’s because the explanation is Bodhidharma’s explanation, not the Emperor’s explanation. So my explanation is *mine*, not yours. You should find *your* explanation through my explanation. That’s all. 
+
+So sometimes, even though my explanation is going again and again, if you’re not ready to accept my explanation, well, you don’t understand. Don’t you think so?
 
 Is that okay?
 
@@ -389,12 +395,11 @@ Is that okay?
 
 **Same person:** Is it like a joke?
 
-**Katagiri Roshi:** It’s not a joke. It’s not a joke. It’s very true. But, it means that Engo Zen Master indirectly praised Zen Master Chih. Because, you cannot say his way is good, or his way is bad. According to common sense, his way is good, but in a sense it’s not good, because he suggested Emperor Wu shouldn’t send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih where the truth is. So finally, nothing to say. How great his way is, completely beyond human explanation; *that’s* what he says, very easily. He plays [intellectually], saying that his way is *against* the common way. So, from this point he should deserve thirty blows. But, this is wonderful. That’s why he says he doesn’t know the great illumination shines from under his own feet. 
+**Katagiri Roshi:** It’s not a joke. It’s not a joke. It’s very true. But, it means that Engo Zen Master indirectly praised Zen Master Chih. Because, you cannot say his way is good, or his way is bad. According to common sense his way is good, but in a sense it’s not good, because he suggested Emperor Wu shouldn’t send anybody to get him back. According to this, this is not a good way. But broadly speaking, in a sense, his way is pretty good, because his way is directly to let Emperor Wu show Chih where the truth is. So finally, nothing to say. How great his way is, completely beyond human explanation; *that’s* what he says, very easily. He plays [intellectually], saying that his way is *against* the common way. So, from this point he should deserve thirty blows. But, this is wonderful. That’s why he says he doesn’t know the great illumination shines from under his own feet. 
 
 The commentary is very helpful for you, so if you have time, read the commentary. From now on, if I have time, I would like to explain the *Blue Cliff Record* cases one by one.
 
 #### 1:18:32 end of recording
-
 
 ---
 
