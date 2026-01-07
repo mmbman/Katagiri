@@ -7,36 +7,33 @@ title: "Blue Cliff Record Case 2: The Ultimate Path Is Without Difficulty, Talk 
 
 ### Summary
 
-Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting one hundred percent” – not ninety, not ninety-nine, only one hundred or zero. He also uses the example of turning on a TV set instead of intellectually studying the TV set. How do we have faith when there is nothing to depend on? How did Chinese monks keep Buddhism alive when institutional Buddhism was dismantled? What did Gempo Yamamoto Roshi say to a practicioner who wanted to “save all beings”? Also: dragging yourself in muddy water like a sewer rat chased by a cat. 
+Katagiri Roshi introduces Case 2 of the *Blue Cliff Record*, “The Ultimate Path Is Without Difficulty,” with an examination of the pointer to the koan. Engo Kokugon (Chinese: Yuanwu Keqin) expresses the Ultimate Path in terms of “the task of the fundamental vehicle of transcendence.” What is the nature of truth, and how do we realize it? To express it, Katagiri Roshi uses an analogy of “grabbing the bar” in gymnastics and “getting one hundred percent” – not ninety, not ninety-nine, only one hundred or zero.
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-blue-cliff-record-case-2-lecture-1)
 
 #### 0:00
 
-**Katagiri Roshi:** At this time, I would like to study with you the second case of the [*Blue Cliff Record*](glossary#blue-cliff-record). The title is “The Ultimate Path is Without Difficulty”. Let me first read the main case:
+**Katagiri Roshi:** At this time, I would like to study with you the second case of the *Blue Cliff Record*. The title is “The Ultimate Path is Without Difficulty.” Let me first read the main case:
 
-> [Jōshū](glossary#jōshū-jūshin), teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
+> Chao Chou, teaching the assembly, said, “The Ultimate Path is without difficulty; just avoid picking and choosing. As soon as there are words spoken, ‘this is picking and choosing,’ ‘this is clarity.’ This old monk doesn’t abide within clarity; do you still preserve anything or not?”
 >
 > At that time a certain monk asked, “Since you do not abide within clarity, what do you preserve?”
 >
-> Jōshū replied, “I don’t know either.”
+> Chao Chou replied, “I don’t know either.”
 >
 > The monk said, “Since you don’t know, Teacher, why do you nevertheless say that you do not abide within clarity?”
 >
-> Jōshū said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
+> Chao Chou said, “It is enough to ask about the matter; bow and withdraw.”
 > 
-> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR). 'Jōshū' is substitued for 'Chao Chou', since Katagiri Roshi uses the Japanese name.)
+> (From *The Blue Cliff Record*, translated by Thomas Cleary.)
 
-This is the main case. This morning I would like to read the pointer, which is pointing out the most important keys in the main case *[unintelligible]*. The pointer is written by [Engo Zen Master](glossary#engo-kokugon).
+This is the main case. This morning I would like to read the pointer, which is pointing out the most important keys in the main case *[unintelligible]*. The pointer is written by Engo Zen Master.
 
-> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the [Buddhas](glossary#buddha) of [the three times](glossary#three-times) can only know it for themselves; the successive generations of [patriarchs](glossary#ancestor) haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “[Ch’an](glossary#chan)” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
+> Heaven and earth are narrow; sun, moon, and stars all at once go dark. Even if blows of the staff fall like rain and shouts roll like thunder, you still haven’t lived up to the task of the fundamental vehicle of transcendence. Even the Buddhas of the three times can only know it for themselves; the successive generations of patriarchs haven’t been able to bring it up in its entirety. The treasury of teachings of the whole age cannot explain it thoroughly; clear eyed patch robed monks cannot save themselves completely. When you get here, how will you ask for more instruction? To say the word “Buddha” is trailing mud and dripping water; to say the word “Ch’an” is a face full of shame. Superior people who have studied for a long time do not wait for it to be said; late coming beginners simply must investigate and apprehend it.
 
-In this pointer Engo Zen Master emphasizes the significance of “the task of the fundamental vehicle of transcendence.” In other words, that is the great path, or the Ultimate Path; he uses a different term [here], *the task of the fundamental vehicle of transcendence*. This is the main point in this pointer. Plainly speaking, this is the truth, or original nature of existence, or [dharma](glossary#dharma). Dōgen Zenji said in *Fukanzazengi*, “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dōgen uses the term *dharma vehicle*. 
+In this pointer Engo Zen Master emphasizes the significance of “the task of the fundamental vehicle of transcendence.” In other words, that is the great path, or the Ultimate Path; he uses a different term [here], *the task of the fundamental vehicle of transcendence*. This is the main point in this pointer. Plainly speaking, this is the truth, or original nature of existence, or *dharma*. Dōgen Zenji said in *Fukanzazengi*, “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dōgen uses the term *dharma vehicle*. 
 
 #### 6:40
 
