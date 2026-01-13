@@ -217,7 +217,7 @@ So, *shikantaza* is arrangement of all things, and then sit down. That’s all.
 
 This is really bodhisattva practice, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don’t say [anything], somebody realizes. You have something to tell him or her. 
 
-So that is *shikantaza* – the zazen you do, mentioned by Buddha. It’s pretty difficult to understand for us, intellectually, because we are getting the use of always analyzing and synthesizing everything in the dualistic world; it’s very difficult to *stop immediately*. That’s why even though you stop for a while, you don’t appreciate that practice. But this practice is only the best way. 
+So that is *shikantaza* – the zazen you do, mentioned by Buddha. It’s pretty difficult to understand for us, intellectually, because we are getting the use of always analyzing and synthesizing everything in the dualistic world; it’s very difficult to *stop immediately*. That’s why even though you stop for a while, you don’t appreciate that practice. But this practice is [...] the best way. 
 
 We can explain how important this kind of [Buddhist] practice is philosophically, psychologically – but it takes time. That is a huge world, the philosophical background, psychological background. But even though you don’t know [it], you can do it – right now, right here. This is a very urgent need; we have to do it. Whoever you are, wherever you may be, you can do it. 
 
