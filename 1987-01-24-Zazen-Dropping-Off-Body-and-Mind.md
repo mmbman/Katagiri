@@ -23,9 +23,9 @@ First of all, you should keep in mind that Zen Buddhism tries to see or hear or 
 
 Zen Buddhism, particularly Dōgen Zenji, constantly mentions that we should see or hear [or] understand the human world in terms of flow actions, flow practice, flow process. Constantly, under all circumstances. Not in terms of *concept*, not in terms of the conceptualized world. The world you can usually see is already something conceptualized; this is the world you live [in] and you believe. But if we present the world [as] something more than conceptualization, you are very confused, because there is nothing to depend on. 
 
-Usually everyone depends on, consciously or unconsciously, conceptualization of the world. That's it; this is your world. So the Buddha and ancestors try to present the world *before* you conceptualize. That's why it is a little difficult to understand it. But, we *have* to. We have to research it. We have to *taste* it. We have to understand it. Okay? 
+Usually everyone depends on, consciously or unconsciously, conceptualization of the world. That's it; that is your world. So the Buddha and ancestors try to present the world *before* you conceptualize. That's why it is a little difficult to understand it. But, we *have* to. We have to research it. We have to *taste* it. We have to understand it. Okay? 
 
-“Sanzen is zazen.” *Sanzen* means literally to surrender yourself to tranquility or simplicity in life. To surrender yourself or to submit to perfect tranquility or simplicity in life. This is called *sanzen*. Usually *sanzen* is translated as “practice,” but “practice” in English doesn't hit the mark to *sanzen*.
+“Sanzen is zazen.” *Sanzen* means literally to surrender yourself to tranquility or simplicity in life. To surrender yourself or to submit to perfect tranquility or simplicity in life; this is called *sanzen*. Usually *sanzen* is translated as “practice,” but “practice” in English doesn't hit the mark to *sanzen*.
 
 *Fukanzazengi* [which we] chant every evening uses the original term *sanzen*. So remember, *sanzen* is to surrender yourself to tranquility or simplicity in life. 
 

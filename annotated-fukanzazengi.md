@@ -184,6 +184,7 @@ This document is a work in progress. I will update this page as I transcribe tal
 >  
 > SZ: Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen.
 
+- For “the essential art of zazen,” see [“Zazen: Entry to the Buddha Dharma” at 18:32](https://katagiritranscripts.net/1987-03-07-Zazen-Entry-to-the-Buddha-Dharma#18:32): “... zazen is *shinjin datsuraku*, that means ‘casting off body and mind,’ in other words ‘dropping off body and mind.’ Or, he says, ‘Dullness and distraction are struck aside from the beginning.’ ... So at the dropping off body and mind if you do zazen, simultaneously the dullness and distractions are struck aside from the beginning. This is a key point of zazen. That’s why Dōgen Zenji [says] ‘This is the essential art of zazen.’”
 - “Don’t think anything” is “think not-thinking”: see [“*Diamond Sutra*, Talk 8: Provisional Being”](1979-07-25-Diamond-Sutra-Provisional-Being”).
 - For *shujo shin* (“one-mind”) as *non-thinking*, see [“*The Awakening of Faith* – Talk 33”](1986-03-07-Awakening-of-Faith-Talk-33).
 
