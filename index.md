@@ -11,6 +11,11 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 [**Talk Summaries**](summaries)
 
+**Resources:**
+
+- [Katagiri Roshi’s Zazen Instruction](zazen-instruction)
+- [Annotated *Fukanzazengi*](annotated-fukanzazengi)
+
 **Talk Series:**
 
 - [*Awakening of Faith*](awakening-of-faith)
@@ -29,11 +34,6 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [Tiantai Buddhism](tiantai-buddhism)
 - [Zen Forms and Ceremonies](zen-forms)
 - [Miscellaneous Talks](miscellaneous)
-
-**Resources:**
-
-- [Katagiri Roshi’s Zazen Instruction](zazen-instruction)
-- [Annotated *Fukanzazengi*](annotated-fukanzazengi)
 
 **Latest Updates:**
 
