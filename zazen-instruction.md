@@ -13,8 +13,6 @@ This is an audio recording of Katagiri Roshi offering zazen instruction to a med
 
 ### Transcript 
 
-*This transcript is in draft stage.*
-
 #### Part 1 
 
 [Listen to Part 1](https://www.youtube.com/watch?v=0-Sx0FSjh20)
