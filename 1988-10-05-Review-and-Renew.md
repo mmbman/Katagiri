@@ -3,7 +3,7 @@ title: "Review and Renew: Buddhism for the Twenty-First Century"
 ---
 ## October 5, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
+#### [Previous](1988-08-10-The-Need-and-Way-of-Repentance) | [Next](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
 
 ### Transcript
 
@@ -193,4 +193,4 @@ That is called *jumyō* in Japanese: *lifespan*. If you use the word lifespan, i
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)
+#### [Previous](1988-08-10-The-Need-and-Way-of-Repentance) | [Next](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [List](list#1988) | Series: [Miscellaneous](miscellaneous)

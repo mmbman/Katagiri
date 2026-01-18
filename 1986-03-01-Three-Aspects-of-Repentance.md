@@ -7,7 +7,7 @@ title: "Lay Ordination Lecture 2 of 7: Three Aspects of Repentance"
 
 ### Summary
 
-Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *formless atonement*. Repentance is not a ritual of trying to get forgiveness from someone; rather, repentance is to be present right in the middle of peace and harmony. He describes three aspects of repentance. The first is that we should realize the world of compassion and heart; this is to realize “the world prior to germination of any subtle ideas,” which is called Buddha. The second aspect is that we should accept Buddha’s compassion with readiness; this is sometimes called *samadhi*, or egolessness. The third aspect is ritual, which is “interacting communion between you and the universe.” To illustrate these points, Katagiri Roshi discusses the role of the *doan* in Zen, the meaning of the word *Shakyamuni* in Chinese, and the poem “How To Make A Portrait Of A Bird” by Jacques Prévert.
+Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *formless repentance*. Repentance is not a ritual of trying to get forgiveness from someone; rather, repentance is to be present right in the middle of peace and harmony. He describes three aspects of repentance. The first is that we should realize the world of compassion and heart; this is to realize “the world prior to germination of any subtle ideas,” which is called Buddha. The second aspect is that we should accept Buddha’s compassion with readiness; this is sometimes called *samadhi*, or egolessness. The third aspect is ritual, which is “interacting communion between you and the universe.” To illustrate these points, Katagiri Roshi discusses the role of the *doan* in Zen, the meaning of the word *Shakyamuni* in Chinese, and the poem “How To Make A Portrait Of A Bird” by Jacques Prévert.
 
 ### Transcript
 
@@ -15,7 +15,7 @@ Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *for
 
 #### 0:00
 
-**Katagiri Roshi:** Last week, we studied the significance of lay ordination. Today, I would like to talk about *repentance*, because lay ordination begins with the ritual of repentance. Sometimes Buddhist repentance is translated as *formless repentance* (or *formless atonement*). But anyway, let’s use the usual term *repentance*.
+**Katagiri Roshi:** Last week we studied the significance of lay ordination. Today I would like to talk about *repentance*, because lay ordination begins with the ritual of repentance. Sometimes Buddhist repentance is translated as *formless repentance* (or *formless atonement*). But anyway, let’s use the usual term *repentance*.
 
 In Buddhism, repentance is not to apologize to someone for one’s errors or one’s mistakes; repentance is not a ritual of trying to get forgiveness from someone by making an apology for what one has done. Because if you understand repentance in this way, very naturally you fall into the trap of dualism. You cannot get real peace from dualism; real peace is beyond dualism. If you understand repentance or make repentance in the dualistic sense, you are always seeing some confusion. You cannot get out from human confusions [that way].
 
@@ -97,15 +97,15 @@ That is the second condition.
 
 #### 32:02
 
-One more thing (or condition). Technically, Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” 
+One more [condition of repentance]. Technically, Zen Buddhism says, “Passing through a thicket of brambles, cutting down a thicket of sandalwood.” 
 
 “Passing through a thicket of brambles” means complicated troubles in the human world. [Life is] very complicated, but you have to pass through anyway, you have to always carry on despite the troubles. I don’t think you should ignore the troubles, you have to take care of the troubles. But you cannot stay with them, so that means passing through, constantly. 
 
 And also, “cutting down a thicket of sandalwood”: sandalwood means something good, something pretty, something beautiful. Very naturally, we attach to something good, something pretty, something sweet. But we have to always cut it down and pass through this one too. It’s not so easy. Particularly, if you do something good, we want to be proud of ourselves. We want to attach to our lives. 
 
-And also, the sutra says, it is the essential nature of repentance not to attach to the purity. Not to attach to the purity means not to attach to purity and to impurity, too. This is the essential nature of repentance. 
+And also, the sutra says, it is the essential nature of repentance not to attach to purity. “Not to attach to purity” means not to attach to purity and to impurity too. This is the essential nature of repentance. 
 
-So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert which I mentioned a couple of years ago: “How To Make A Portrait Of A Bird.” Do you remember? It’s very beautiful for children. 
+So the essential nature of repentance means what? I think of the poem composed by Jacques Prévert which I [talked about] a couple of years ago: “How To Make A Portrait Of A Bird.” Do you remember? It’s very beautiful for children. 
 
 In the beginning, he says: 
 

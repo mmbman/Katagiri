@@ -2,9 +2,9 @@
 title: "Receiving the Precepts"
 ---
 
-Katagiri Roshi gave more than one series of lectures on *jukai*, “receiving the precepts,” otherwise known as lay ordination. This series is from 1986.
+Katagiri Roshi gave more than one series of lectures on *jukai*, “receiving the precepts,” otherwise known as lay ordination. 
 
---- 
+## 1986 Series 
 
 ##### [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 ###### February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
@@ -16,7 +16,7 @@ Katagiri Roshi introduces a series of lectures on receiving the precepts, otherw
 ##### [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
 ###### March 1, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *formless atonement*. Repentance is not a ritual of trying to get forgiveness from someone; rather, repentance is to be present right in the middle of peace and harmony. He describes three aspects of repentance. The first is that we should realize the world of compassion and heart; this is to realize “the world prior to germination of any subtle ideas,” which is called Buddha. The second aspect is that we should accept Buddha’s compassion with readiness; this is sometimes called *samadhi*, or egolessness. The third aspect is ritual, which is “interacting communion between you and the universe.” To illustrate these points, Katagiri Roshi discusses the role of the *doan* in Zen, the meaning of the word *Shakyamuni* in Chinese, and the poem “How To Make A Portrait Of A Bird” by Jacques Prévert.
+Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *formless repentance*. Repentance is not a ritual of trying to get forgiveness from someone; rather, repentance is to be present right in the middle of peace and harmony. He describes three aspects of repentance. The first is that we should realize the world of compassion and heart; this is to realize “the world prior to germination of any subtle ideas,” which is called Buddha. The second aspect is that we should accept Buddha’s compassion with readiness; this is sometimes called *samadhi*, or egolessness. The third aspect is ritual, which is “interacting communion between you and the universe.” To illustrate these points, Katagiri Roshi discusses the role of the *doan* in Zen, the meaning of the word *Shakyamuni* in Chinese, and the poem “How To Make A Portrait Of A Bird” by Jacques Prévert.
   
 ---
 
@@ -59,5 +59,10 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 ###### June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
 *Summary not yet available.*
+
+## 1988 Series
+
+##### [Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance](1988-08-10-The-Need-and-Way-of-Repentance)
+
 
 ---
