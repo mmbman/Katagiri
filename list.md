@@ -443,7 +443,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 ### 1988
 
 1. Lay Ordination Lecture (2nd Series: 1 of 3): Depending on the Dharma
-1. Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance
+1. [Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance](1988-08-10-The-Need-and-Way-of-Repentance)
 
 1. Recording of Chants
 
