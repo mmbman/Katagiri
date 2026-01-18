@@ -29,9 +29,9 @@ The same applies to the mudra you do in your zazen. I always mention this mudra 
 
 *Refined action* means your understanding must be deepened. You shouldn’t understand in a very narrow way. So that’s why I say your action, human action, must be *refined*. That is important. 
 
-So how do you do it? This a key point: how do you accept this mudra created by two hands? Is this merely a form created by two hands? Or this is a symbol of universe as it is? It’s not matter of discussion; it is something you have to accept and do it. Then how do you do it? 
+So how do you do it? This a key point: how do you accept this mudra created by two hands? Is this merely a form created by two hands? Or this is a symbol of universe as it is? It’s not matter of discussion; it is something you have to accept and do it. 
 
-That is your determination. But determination [comes] from your idea, thinking. [You are] always thinking, and then you can see [a] clear understanding of what this mudra is. So you can understand this is a form created by two hands, called *mudra*; on the other hand, this is exactly mudra as it really is. Two sides. And then, which way to go? Well, maybe mudra-as-it-is is a little better than this way [of] talking about [it idealistically], idealistical determinations. So let’s take this way. 
+Then how do you do it? That is your determination. But determination [comes] from your idea, thinking. [You are] always thinking, and then you can see [a] clear understanding of what this mudra is. So you can understand this is a form created by two hands, called *mudra*; on the other hand, this is exactly mudra as it really is. Two sides. And then, which way to go? Well, maybe mudra-as-it-is is a little better than this way [of] talking about [it idealistically], idealistical determinations. So let’s take this way. 
 
 So if you take this way, you can realize how shaky your determination is, because your determination is always based on *no root*, because always [you are thinking] “this is right, I have to do it.” Then if you continue to ask yourself “is that true,” finally your determination finds no root of its own. So whatever kind of determination [you have] is nothing but a changeable being, constantly. 
 
