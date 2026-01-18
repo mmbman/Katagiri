@@ -63,9 +63,7 @@ The same applies to a way of how to actualize the ordinary karmic life on the ba
 
 This is called *living in vow*. Bodhisattvas always direct their daily living to [this]. Always. 
 
-So, the bodhisattva’s vow, or living in vow, means that bodhisattvas always aim at a certain direction in their lives, contemplating a way of peaceful living with all living beings, and trying to actualize this way – life after life, wherever or whenever they may be. 
-
-A bodhisattva has a direction to aim at, in order to live in order to live their lives in peace [and] in harmony with all sentient beings, life after life, wherever they may be. So that means they use their lives not only for the sake of their own life but also others’ life, being or not being, visibly or invisibly. This is bodhisattvas’ vow. 
+So, the bodhisattva’s vow, or living in vow, means that bodhisattvas always aim at a certain direction in their lives, contemplating a way of peaceful living with all beings, and trying to actualize this way – life after life, wherever or whenever they may be. A bodhisattva has a direction to aim at in order to live in their lives in peace [and] in harmony with all sentient beings, life after life, wherever they may be. So that means they use their lives not only for the sake of their own life but also others’ life, being or not being, visibly or invisibly. This is bodhisattvas’ vow. 
 
 So that is a bodhisattva’s direction. *Direction* is direction which you have [which] you will not yet reach, so direction is a great image of human life: how to live with all sentient beings. [So] this is an image. But an image is not merely an image, because the image is important, the image is something giving a certain great suggestion of how to live. So if you have an image, all we can do is try to make it alive, day to day. How? We should move toward that image, proceed toward that image. 
 
