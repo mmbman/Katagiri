@@ -1,0 +1,326 @@
+---
+title: "Shōbōgenzō Kuge: Flowers in the Sky – Talk 3"
+---
+## August 27, 1988 Dharma Talk by Dainin Katagiri Roshi
+
+#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Kuge](kuge)
+
+### Transcript
+
+**This transcript is in rough draft stage.**
+
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/flowers-in-the-sky-3-of-12)
+
+#### 0:00
+
+The last time we read the founder of Zen teacher’s statement – Zen Buddhism in China – founder’s statement of Zen in China:
+
+> “One flower opens with five petals, forming a fruit which ripens of its own accord.” 
+
+I talked about this, which is quite different meaning from usual sense. “One flower opens with five petals,” it doesn’t mean one is divided into five, or five returns to one. One *is* five petals; five petals *are* one, exactly. 
+
+It doesn’t mean one is *in* five petals, or five petals are *in* one. It doesn’t mean this. One is *exactly* five petals. Each of the five petals is exactly one.
+
+And then that is what? That is “forming a fruit which ripens of its own accord.” Naturally – something ripens. 
+
+Persimmons: when the persimmon is ripe, persimmon must [accept] all beings in the universe. So, persimmon is what? Persimmon is not autumn, separate from spring, summer, winter, universe, trees, birds, et cetera. Persimmon is nothing but the whole universe, the total manifestation of whole universe. This is a persimmon’s existence. 
+
+Then, how does the persimmon [ripen]? Persimmon must be one, exactly. That means whole universe. At that time, persimmon naturally is ripe. 
+
+Do you understand? This is very important, okay? This is our practice. 
+
+When you read some book, I think trying to understand the meaning that this book’s author says, that is a secondary. The most important point is that time and opportunity and season, you are facing the book, and the author, and you just read. That’s it. Then, you are ripe, naturally. 
+
+That is pretty hard, because our consciousness is always working. We try to understand first. Of course, understanding is important. But if you don’t understand, but all you have to do is to face the book and read – not at random, not carelessly, but with wholeheartedness read it. That’s all. Not lying down and drinking a tea and read, what, you know, Buddhist scriptures. Buddhist scriptures is Buddhist scriptures, which are different from the usual book. Okay? [Like] the explanation of how to play [the game] Go: quite a different book. So, Buddhist scriptures, if you want to make your personality mature, I think you should accept you, your life, as precious. Because you want to; you want to take care of and you want to see your personality like this, consciously and unconsciously, and then you want to read the book, Buddhist scriptures. And then when you read the Buddhist scriptures, completely you forget how precious your life is. What is the first motivation of reading this book? Then you lie down and drinking a coffee and then read it. Already that is something missing, okay? When you read the scriptures, sit down anyway, by the desk and straighten to your posture, anyway read it. Even five minutes, ten minutes, that’s fine. 
+
+When I was at college, a famous Zen teacher always taught zazen to the college students. And then he asked a student, “Have you ever read one of the Dōgen Zenji’s works?” One of the students said, “Yes, I did.” And then teacher asked, “Where did you read it?” [The student] said, “I read it on the train.” *[He laughs.]* The train. And immediately [the teacher scolded him]: “How stupid you are. You never understand the meaning that Dōgen Zenji tries to tell you; you never understand the teaching [that way].” 
+
+That is most important, because your attitude is... not the idea. Attitude, behavior, taking action [in] something is something in motion. You have to do it. Something is *going*, right now. 
+
+So, that’s why scripture is what? Scripture is to give you [rough] instructions about you, about others, about the trees, about the pebbles and birds and the whole universe, functioning totally, dynamically. So we have to pay homage to scripture. And then, you become one with scripture, and then you are ripened, naturally. 
+
+So, that is everything is getting mature, getting ripe like this. In the process of becoming one with whole universe, then everything is getting mature. Otherwise, you never have an opportunity to have a ripe persimmon. *[He laughs.]* Obviously, you have to eat the bitter persimmon. 
+
+So that is “one flower opens with five petals.” 
+
+#### 9:10
+
+The other day I mentioned different denominations, different human beings, different trees, different birds, and then you pick up one and then you strongly believe this is the truth. At that time, automatically, unconsciously or consciously, the rest of the beings are excluded. 
+
+But you cannot exclude anything. If you choose one, you have to accept *all*.
+
+That means, what you choose is only one. This is natural, so everyone should. You cannot choose two or three. So you have to make a choice of one, but you have to take *all*. How do you take all? 
+
+So through the one, you have to manifest *all* within the one. *How?* This is really depending on your way of how to deal with the one, which you have made a choice of. 
+
+So your life is yours, not others. So how do you let the flower of your life force bloom in the whole universe? In other words, your life must be [the] flower of whole universe. This is your life. So, your life, which you have chosen already. So, how do you take care of this one? Each of different denominations, each of different trees, birds, et cetera. Whenever you make a choice, you have to take one, only one. But one must be *all*. And also, *all* must be one. 
+
+Concretely speaking, if you learn something, you have to learn something under the guidance of teacher: calligraphy, painting, or skiing, and diving, et cetera. Under the guidance of one teacher you have to learn, you have to master through and through. And then you can get a certain way how to dive, how to write calligraphy, which is exactly the same as the teacher’s type. *Gassho*, bow – exactly the same type. Before you are conscious of it, your *gassho* become the same type. 
+
+I know the several people, when I was in monastery, one monk said that everyone criticized him because he always imitated the teacher’s way. So then no one paid respect to him. But anyway, whatever they said, he always just do it, just do it. Finally, his behavior was exactly same the as the teacher’s behavior. *Gassho*, way of walking, writing calligraphy – the same. So, this is kind of coming up. So, naturally you master something, you master sport, and diving, and writing, and taking pictures, and whatever you do, the mastering technique or way of writing is exactly the same as the teacher’s way. 
+
+And then we believe, this is wonderful, this is great. But next, you have to break this wall once more again. In other words, learning the same things under a *different* type of guidance. And then, you can really go beyond this. 
+
+I don’t mean you should *always* get the different type of guidance, okay? I mean even under the one guidance, I think through and through you have to go through, you have to go beyond, constantly. Even though you exactly become one with the teacher’s [style], but there is no reason why you have to stay with it. Because life is always moving, like the Ganges River: huge, and going constantly. So nothing to depend on, nothing to always stick to, as life as a whole is constantly moving, helping all sentient beings. Because there are all sentient beings, okay? If you stay with it, the all sentient beings can be seen narrowly, [in a] very narrow, shallow way, looking at through your “telescope”. But always the telescope you have, but put it aside and move, put it aside, move, put it aside, move. Constantly you have to move. This is our practice. Then your personality is yours, but it’s not yours. Very naturally your personality is completely a ripe persimmon, you know? You cannot say what it is. Total personality: soft, gentle – but it’s not always soft, gentle; it’s very “strict”, sometimes severe, but just like [a breath], cool, always going here and there. So that is a total personality, universal personality. Then, whenever you walk, I think people are really moved by this kind of personality. When you see somebody and then people realize it, naturally, even though they cannot explain it. 
+
+So, that is always we have to do it. That’s why your life is your life, because your life is something which you have chosen, okay? Or you had given to you. So this is you. But how do you take care of this? One body and mind – it must be the whole universe, five petals. 
+
+And then, within the five petals – five petals means the many beings, birds, trees, all beings in the universe – can be the contents of your life. Exactly the contents. So birds cannot be separated from you. Trees are not separated from you. So very naturally you can understand the life of trees, the life of birds, life of insects. So *all* contents of your life, exactly your life. 
+
+So that’s why myriad, myriad dharmas, dharma, myriad things bloom in the realm of your life. That’s it. 
+
+That is your life is what? Your life is your whole universe. So the whole universe; within the whole universe, many beings bloom, okay? Where is that? This is you.
+
+So Dōgen Zenji [says] 
+
+> The negotiation of the way with concentrated effort I now teach, first one, makes myriad dharmas exist in realization. 
+
+*Realization* means the whole universe. Whole universe. This is another [from] *Bendōwa*. One point is “makes myriad dharmas exist in whole universe”. Whole universe. So myriad dharmas, trees, birds, all sentient beings become contents of your life, which is nothing but the whole universe. So, trees are not separate; the whole universe is not separate from you. The whole universe [is] you, okay? 
+
+So “makes myriad dharmas exist in realization.” 
+
+Second: “practice is a total reality.” *Total reality* means *one*. Practice *one*. Where? Right now. 
+
+That is very serious, and very concentrated zeal, very concentrated zeal, right now. 
+
+In other words this is nothing but “not sparing body and life.” In the *Lotus Sutra*, I think it says, 
+
+> “If any have zealously progressed, constantly maintained kindly hearts, and never spared body and life, then you may preach it to them.” 
+
+“Preach it” means the *Lotus Sutra*. 
+
+So first, “if any have zealously progressed.” Anyone: if trees, birds are progressed, okay? Anyway, zealously. If you want to progress, if you want to develop your personality zealously, constantly maintaining kindly hearts – compassionate hearts. [Practice] day to day with compassionate hearts, and you have to take care of your life. “And never spare body and life” – that is with compassion, compassionate heart, and taking care of your life is exactly to not spare body and life. 
+
+In other words you have to really devote yourself to do something. “Something” means your life, but your life is not yours, because this is the whole universe. This is a great opportunity and time where you can manifest the whole universe. That’s why you really want to know buddha-mind, which means the whole universe. Buddha-mind [is the] whole universe. Buddha mind, the whole universe, which is perfectly peaceful, perfectly harmonious. This is the buddha-mind. 
+
+If you want to see Buddha mind with single mind, you never spare body and life, naturally. Because the whole universe and you are one. There is no sense of subject, *who*does this, as an object. “The whole universe” is not something objective; the whole universe is you. So very naturally, no sense of sparing body and life, [and] no sense of *not* sparing the body and life. Exactly you can jump in. 
+
+Like diving from the top of a cliff. Shall I spare body and life right now, in order to jump into, or shall I not spare? No way. You just stand up and then jump. 
+
+Before this, when does such an opportunity come? Well, practice! But that practice is what? Practice is exactly the same as the moment you are jumping into. The practice we do every day is the same opportunity you jump into the ocean from the cliff. Exactly the same. But we always separate: “practice is practice, and the final practice, jumping into the ocean, is final.” But I don’t think [so]. Because we practice very hard, with hard work, and also with no sense of effort or not effort. Practice, constantly practice. That is a sportsman’s act. That is, well, sportsman’s, musicians’ and artists’ acts. Exactly. 
+
+A religious person should take care of this kind of action in everyday routine. Everyday routine should be taken care of like this. *Then* you become a great religious person. 
+
+Do you understand this one? How difficult it is, and also how *vague* it is. Because everyday routine is exactly the same as the practice of sportsmen, artists, musicians. So where is the piano for the spiritual people? Piano is everyday routine. Where is the ocean you can jump into as a religious person? The ocean is daily routine. 
+
+This is the point that people always don’t understand. Always people miss this point. 
+
+So that’s why the *Lotus Sutra* says, “If any have zealously progressed, constantly maintained kindly hearts, and never spared body and life, then you may preach it to them.” *Then* you may talk, your mouth open naturally. “Your mouth” means your whole body. Your body and your mind, your mouth, open. And then you can speak. You can talk. 
+
+So, “The one flower opens with five petals, forming a fruit which ripens of its own accord.” This is, so the, as a conclusion, we have to take care of our life, individual life, but you should take care of it *universally*. Because you have to share your life with all sentient beings. So you refine your life again and again, exploring constantly, again and again, day to day, endlessly. You have to explore it, research it, every day. And then your personality blooms as the whole universe, five petals. At that time, one flower blooming and the whole five petals blooming are exactly one. One opportunity, right now. 
+
+That one opportunity is called ripeness. That is total ripeness. You cannot say *who*, you cannot say *what*. Personality; what is a personality? Psychologically you can say “it’s personality,” but we don’t know. What’s something wonderful from a person? We feel it but we don’t know what it is. It helps people actually, but how he helps, how she helps, we don’t understand it. But practically if he or she faces people or all sentient beings, immediately he or she helps. Silently, or with his or her mouth or behavior, whatever, in many ways helps. That is to ripen; personality is ripe. 
+
+#### 30:12
+
+So next, that’s why:
+
+> One should study the time of this flower’s blooming, as well as its light and color. 
+
+This time, the time of the flower blooming. The one flower blooming, what is the time and opportunity? This is important. What is the time when the one flower bloomings is simultaneously the whole world arises? One flower blooms is the whole world arises. Dōgen Zenji [says it] like that.
+
+Because this is... if you practice sports or whatever very seriously, I think one’s action must be always based on this sense. One flower bloomings is the whole world arises. And then your practice is ripened. 
+
+Then, great opportunity, special opportunity will come. Not [that] special opportunity will come in the common sense, [but] so-called jumping into the ocean properly, exactly. But that final special opportunity is always in each of practices on a daily basis. We do. 
+
+Otherwise, we should take care of each of practices on the daily basis, should be taken care of like that. And then, final opportunity comes, but final opportunity is not final. Final opportunity is exactly same as the usual practice we have made day to day. That’s why you stand up on the cliff very calmly. 
+
+But if you always expect a *special* opportunity, that special opportunity make you scared, or unstable, uneasy. So, stability is ripe naturally on the daily basis. 
+
+Where? That is the time and occasion one flower blooms. 
+
+> One should study the time of this flower’s blooming...
+
+So we have to explore this time and occasion. Time and occasion. 
+
+One flower blooms, which is exactly same as the whole world arises. What is this time and occasion? Where is it? What is it?
+
+> ... as well as its light and color. 
+
+In Buddhism, light or color means the function, working. Operating; something operating constantly, something moving constantly, that is *functioning*. 
+
+And Dōgen Zenji mentions the whole world is light of the self. The whole universe is light of the self. So, he comments on this light, he mentions about light. 
+
+He says light is [...] oneness of eyeball and cornea. *[There is some discussion of the term ‘cornea’.]* This expression is exactly right. Light is functioning. I mentioned, functioning. Light is oneness of eyeball and cornea. Do you understand this one? Cornea and eyeballs are nothing but the devices of machine, okay? *[He laughs.]* For the human body. But they are not separate. If they are separated, I don’t think we can have any opportunity to see anything. 
+
+So *to see* means what? *To see* is due to the existence of the eyeball, due to the existence of the cornea. But only through the cornea we can see? Or only through the eyeball we can see? No. Then how can we see? Well, cornea and eyeball should work together. How do we work together? 
+
+Well, “how” means a question, okay? *[He chuckles.]* Always questions: how? Because eyeballs and cornea are already one in the universe, working together. The human life and trees working together. How? “How” is already a question we made *after* unity of eye and trees. 
+
+How do I be one with a moose when I saw it? We don’t know; I don’t know. But already anyway, the eye and the moose becomes one, the whole universe becomes one; *then* something happens. So “how” is a question *after* the total unity, total oneness between moose and eye, and, well, eyeball and cornea. 
+
+So before the questions we make, there is already the functioning. 
+
+If you say “a single [grain of] dust exists here”, a single [grain of] dust is not single [grain of] dust, single [grain of] dust is nothing but functioning. So single [grain of] dust goes beyond its own ideas, its own frame and concept. Because it is functioning. So when you see the eyeball, you have to see the functioning of the eyeball. [Does the] eyeball function by itself? No; the cornea and also many beings around. [They are] with the whole body and mind, and then cornea becomes exactly one with eyeball. 
+
+This is called *light*. Light of eyeball, light of cornea. 
+
+That light of cornea, light of the eyeball is, in a general sense, the action called “to see.” In words. 
+
+But to see is not in words. To see is something you have to see. So it’s functioning; between the object and the eye, object and you, always functioning. That is to see.
+
+That is the light and color. So he says, study the time and occasion. 
+
+Time and occasion is not the metaphysical idea of time and space; no. Time and space are working together, and time is nothing but the functioning of the whole universe. This is the time and occasion we are facing day to day from moment to moment. That’s why, “as well as it’s light and color.” You have to pay attention to the functioning of time, color of the time.
+
+So if you see your eyeball, you have to see the eyeball [and] simultaneously you have to see the functioning of eyeball, how the eyeball is functioning in the whole universe. That is what Dōgen Zenji says. 
+
+#### 41:24
+
+> The multiplicity of one flower is five petals, the opening of five petals is one flower. 
+
+“Multiplicity of one flower” means one flower *is* five petals. “Five petals” means five one flowers. Five one flowers. Five ones. 
+
+*[He laughs; there is some discussion of the meaning of “five ones”.]
+
+In other words, five petals consist of five ones. 
+
+*[He laughs.]* Do you understand? 
+
+**Someone:** No! *[She laughs.]* It’ll come.
+
+**Katagiri Roshi**: Five is what? 
+
+**Same person**: Five.
+
+**Katagiri Roshi**: Togetherness of one; five ones. That. 
+
+What is the number ten? Ten ones. 
+
+What is the universe? What is eternity? Eternal ones. 
+
+What is the one circle? Infinite dots, [infinite] one dots. Okay? Myriad, myriad dots in one circle. That is called, we say, “one circle.” 
+
+That’s why here it says “multiplicity of one flower is five petals.” Five petals. 
+
+So one flower is not separate from five petals. My life is not separate from all of you. My life is all of *your* life. Okay? 
+
+Do you understand this one? My life is not separate from this table, and desk, and the toilet, and the washing face, and... You cannot separate it. Daily routines and [others’ emotions], you [can’t] separate it. “My life is you” means, [even] if you don’t believe, can you ignore a person who is crying? Saying, “That’s your business; it is not my business.” Can you ignore him or her? Her life? Even though there is nothing to help her or him – you want to do something. Well, even though nothing, you want to be with her or him. Or even though you are separate, you are living far from here or there, I think your thinking is always with him or her. 
+
+What do I mean by this? 
+
+Your life is exactly my life; my life is yours. Five petals are one; one is five petals. Exactly. 
+
+So I say, five petals are five ones. One flower is five petals. 
+
+Concretely speaking, my life, and all of your lives, are nothing but contents [or] quality of my life. That’s it. That’s why, unconsciously or consciously, you cannot ignore others’ life. Naturally you want to share it. 
+
+We do always, but when you think [of the] human world, we are always separate. That’s why problems always happen. But practicing in religion must be mastered by your practice on an everyday basis. Not separate. You have to learn something [on] the same on the one ground, constantly. 
+
+*[Tape change.]*
+
+... Even religions, always separated. Divinity and human beings, profane and [sacred], always separated. Finally we are confused, using the beautiful words. Under the beautiful words we are always confused, under the beautiful flags always we are fighting. That is the human world. 
+
+So if you want to learn religion or the spiritual life, I think the key point is to learn *oneness*, exactly oneness. Oneness of eyeballs and cornea. 
+
+What is this? This is nothing but functioning. 
+
+Do you love your life? Yes – it’s okay. Do you hate your life? That’s alright. Anyway, day to day your life must be functioning with all sentient beings. This is oneness of your life. Oneness of your life and the whole universe. 
+
+This is our practice. 
+
+That practice is never be mastered overnight – or in ten years or twenty years. Day to day, you have to learn. 
+
+That’s why it says here, “The multiplicity of one flower is the five petals, the opening of five petals is one flower.” 
+
+So, if you see those people, and if you see this nature, and Hokyoji and zendo and the kitchen, whatever kind of buildings are beautiful or temporal, it doesn’t matter. All five petals, trees, birds, different words, must be one. Must be one. Because they exist exactly like that. 
+
+But we don’t believe it. What prevents you from understanding the oneness of the building and nature, the whole universe as one? What is it? You have to research this. What prevents you from understanding this oneness? 
+
+And then, usually, if you practice again and again, maybe you can find that you can reach the bottom of the human life circle. This is the truth. At that time, you are fine. But sometimes, you can touch ego. This is the human ego. Very deeply. I understand “but”. We always say “but”. Always there is a something. So when you research, exploring, again and again, you go dig out again and again, day to day, through this quiet, very smooth practice, and then you touch something. That is the bottom of human beings, called ego. Through this ego, if you find the ego, next you have to go beyond this one, once more again. And then, that is the truth. The universe, whole universe. 
+
+The next sentence is 
+
+> Where the principle of one flower comes across is, “I originally came to this land to communicate the teaching and save deluded sentient beings.”
+ 
+“I originally came to this land to communicate the teaching” means Bodhidharma went to China to teach the buddha-dharma, and save all sentient beings. That’s Bodhidharma’s message. 
+
+But “where the principle of one flower comes across is” – you have to go through again and again, deeply, the principle of one flower. One flower which is exactly the same as five petals, the whole universe, many beings. And then it is exactly same as the meaning of “I originally came to this land to teach buddha-dharma,” to teach the truth. 
+
+Because wherever you may go, truth is truth, truth is one. So wherever you may go, already the truth is there. It is not something *new* discovered by Bodhidharma or Shakyamuni Buddha. Truth is omnipresent, always as one. 
+
+So that’s why he says “I originally came to this land to communicate the teaching and save deluded sentient beings.” But there is no particular sense of “deluded beings”, because already deluded beings are what? Deluded beings are nothing but the beautiful, magnificent decoration of Buddha’s world. So through the deluded beings we can understand tree’s life, we can share our lives with all sentient beings. So deluded beings are coming from the one, the whole universe. 
+
+So deluded beings are nothing but one of the five petals. So through the five petals called deluded beings, we have to manifest whole universe. Again and again we have to research it. That is “save deluded all sentient beings” is exactly same meaning as “forming a fruit which ripens of its own accord.” And “I originally came to this land to communicate the teaching” is exactly same as “the one flower opens with five petals.”
+
+That’s it. Do you have a question? 
+
+#### 54:56
+
+**Question:** Is that, whatever it is that causes us, prevents us from seeing the oneness and instead seeing the separation, separate, similar to what happens when we ask how after something has already happened? 
+
+**Katagiri Roshi:** Mm-hmm. “How” is already something happens, event. 
+
+**Same person:** Like separate, after the event...
+
+**Katagiri Roshi:** Yeah. The question how, the question is already the separated world. Do you understand? 
+
+Questions “how,” very tricky meaning there. “How” is already something coming from the separation of the word, simultaneously there is a hint where the separation should return to. 
+
+Because *how*? How means no particular answer there: how, where, what. 
+
+**Same person:** Is ego the asker of the how? 
+
+**Katagiri Roshi:** Yes, ego. That is the ego. 
+
+Ego originally is not something wrong. Originally it’s very pure, very pure energies. Automatically you come: “Why? How?” It’s coming up. If I see this table: “how heavy it is,” *[he laughs,]* how huge. Why don’t you make a little bit light table, like this? “What?” immediately is coming up. But that question is coming from my ego, based on my education, habit, heredity and customs, and *then* the question comes up. Do you understand? 
+
+If you don’t know this table, if you don’t have any concept of the table, “lectern,” whatever kind of a word you make, you don’t feel anything. But if you have certain customs, knowledge, or habit in the past, well, if you see this kind of thing, immediately some question comes up. “What is this?” Just like a *gassho*, and bow. You say, “What?” You know? *[He laughs.]*
+
+#### 58:05
+
+**Question:** Roshi, when you said originally it’s very pure when you’re looking at the lectern, where is the moment that you are saying is pure, before all those other things... ? 
+
+**Katagiri Roshi:** That why that is the first arising, the very incipient stage of arising. Do you understand? It’s very pure experience. That’s simple. And then after this, we make it complicated, again and again. 
+
+**Someone:** It seems to me that ... sorry.
+
+**Someone else:** So we can overcome this complication through our daily practice?
+
+**Katagiri Roshi:** Mm-hmm. 
+
+Through the daily practice we have to understand how complicated we have made. Complicated life we have made. And then if you really [feel or] taste [it] deeply, you can return to [naturality], simplicity, the original source of life, which it started.
+
+**Same person:** So you sort of get to know the ego really well.
+
+**Katagiri Roshi:** Right. 
+
+#### 59:43
+
+**Question:** So actually ritual plays a role in that ... *[unintelligible]*
+
+**Katagiri Roshi:** Ritual, and not only the ritual but also washing your face, and all things, and reading the book, and every day. We should take care of practice based on the very incipient stage of arising, which arising leaves no sense of its own existence behind arising. That’s it; always pure. That is arising, in a pure sense. That is action in motion, which happens at the very incipient stage of existence. Very pure. That’s why trees, birds, and all sentient beings work together without any hindrances. That’s why [it’s] peaceful, very peaceful. 
+
+But with consciousness, it’s very hard to [see] the perfect peace, you know? *[He laughs.]* We know the peace, but already that peace is pretty much something. Do you understand? 
+
+So that’s why we have to understand how complicated peaceful life we have. 
+
+#### 1:01:25
+
+**Question:** It seems to me that sometimes even in that very first moment there is some ego. For instance I was walking along a while ago by the garden and stepped on the garden hose. And all of a sudden I was about five feet away, because my first impulse told me that I had stepped on a snake. Is it true that sometimes the ego can sort of come into even that very first... 
+
+**Katagiri Roshi:** Already you are trying to catch up or grasping at the boar head from behind. *[He laughs.]* Do you understand? Time. This analogy is not a good one. *[He laughs.]* Human consciousness always tries to catch the boar head from behind; that means you never get it. You never get it.
+
+**Same person:** Oh!
+
+**Katagiri Roshi:** Always slipping. But that is consciousness; that is the time process. You are never exactly time exactly through your consciousness. 
+
+So that’s why Zeno, the Greek philosopher, [said] time never catch up rapid. Never catch up exactly with the turtles, because the time process, you know. That if you are always in the time process you never get time as it really is. So ego is just like that. 
+
+That’s why when you do *gassho* with wholeheartedness, immediately consciousness goes backward and tries to catch [it]. ... That is analysis, judgment, evaluation coming up. And then finally you lose the way how to go, how to get out. So constantly the road in the forest is very complicated; it becomes a puzzle. 
+
+So simply, you have to do it. If you see your consciousness goes back behind you and tries to catch you, but forget it, just do it, just do it, just do it! *[He laughs.]* That’s all we can do. 
+
+If you don’t believe it, why don’t you jump off the top of the cliff? Try. Or even though you are not a specialist, you can jump, just like from the feet, you know, you can jump. But anyway, at best as you can, you have to keep the proper posture and jump in. At that time, what is the space that you can poke your head into it? Where is it? Where is the time and space your head can poke into it? No time, actually. But a little time there, because consciousness always tries to catch up. Even right in the middle of the time process – you seem to be one, but not *exactly*. *[He laughs.]* You have to catch up, analyzing, synthesizing, evaluating: “pretty good”; something like that. 
+
+But all you have to do is, your life must be flowing. Your jumping must flow constantly. So even though your consciousness pokes its own head into it, next moment you have to be, you have to be, continuation of just being with it. That’s it. That is our practice. 
+
+But this is a pretty hard practice. Because it’s too simple for us. But this is a key point we have to learn. 
+
+#### 1:06:34 end of recording
+
+---
+
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+
+#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Kuge](kuge)
