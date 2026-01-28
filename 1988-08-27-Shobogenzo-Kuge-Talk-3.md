@@ -141,7 +141,7 @@ In Buddhism, light or color means the function, working. Operating; something op
 
 And Dōgen Zenji mentions the whole world is light of the self. The whole universe is light of the self. So, he comments on this light, he mentions about light. 
 
-He says light is [...] oneness of eyeball and cornea. *[There is some discussion of the term ‘cornea’.]* This expression is exactly right. Light is functioning. I mentioned, functioning. Light is oneness of eyeball and cornea. Do you understand this one? Cornea and eyeballs are nothing but the devices of machine, okay? *[He laughs.]* For the human body. But they are not separate. If they are separated, I don’t think we can have any opportunity to see anything. 
+He says light is [...] “oneness of eyeball and cornea.” *[There is some discussion of the term ‘cornea’.]* This expression is exactly right. Light is functioning. I mentioned, functioning. Light is oneness of eyeball and cornea. Do you understand this one? Cornea and eyeballs are nothing but the devices of machine, okay? *[He laughs.]* For the human body. But they are not separate. If they are separated, I don’t think we can have any opportunity to see anything. 
 
 So *to see* means what? *To see* is due to the existence of the eyeball, due to the existence of the cornea. But only through the cornea we can see? Or only through the eyeball we can see? No. Then how can we see? Well, cornea and eyeball should work together. How do we work together? 
 
