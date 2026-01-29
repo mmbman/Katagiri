@@ -248,7 +248,7 @@ Okay, another?
 
 **Someone:** “*Wanting*”; wanting to be a Buddhist practicioner. 
 
-**Katagiri Roshi:** Well, I think not Buddhist, I think you want to be a *practitioner*. It’s not necessary to put the “Buddhism”. Practitioner in life.
+**Katagiri Roshi:** Well, I think not Buddhist, I think you want to be a *practitioner*. It’s not necessary to put the “Buddhism”; [be a] practitioner in life.
 
 *Practitioner* is to know something deeply, more than the conscious or unconscious understanding of human life. Something; you don't know *what*. So, why you do practice? You don't know, actually. Okay? Is that clear? 
 
