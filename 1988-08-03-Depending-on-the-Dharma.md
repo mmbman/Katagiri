@@ -3,7 +3,7 @@ title: "Depending on the Dharma"
 ---
 ## August 3, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Precepts](precepts)
+#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-08-10-The-Need-and-Way-of-Repentance) | [List](list#1988) | Series: [Precepts](precepts)
 
 ### Transcript
 
@@ -109,9 +109,9 @@ And the third [point]: Buddha never is tossed away by trust or not trust of the 
 
 That is the threefold dwelling in mindfulness. 
 
-And then the last one is compassion. Compassion is kindness, but what I am interested in is why the compassion uses sadness. Compassion consists of two terms, kindness and also sadness. Sadness means moaning. In Sanskrit, *karuna* and *maitri*: *maitri* is friendliness, kindness, and *karuna* is moaning. Moaning is pretty deep pain... not pain, irritation; very deep inconsolate irritation in the bottom of your life. 
+And then the last one is *compassion*. Compassion is *kindness*, but what I am interested in is why the [term] compassion uses sadness. Compassion consists of two terms, kindness and also sadness; sadness means moaning. In Sanskrit, [it’s] *karuna* and *maitri*: *maitri* is friendliness or kindness, and *karuna* is moaning. 
 
-For instance, we want to know what the dharma is by practicing day to day, through the studying and the practicing both. Almost you can have a glimpse of Dharma, what it is like, and then, next moment, dharma has disappeared. 
+Moaning is pretty deep pain... not pain, irritation; very deep inconsolate irritation in the bottom of your life. For instance, we want to know what the dharma is by practicing day to day, through the studying and the practicing both. Almost you can have a glimpse of dharma, what it is like, and then, next moment, dharma has disappeared. 
 
 So if you try to know what the real dharma is, it’s very difficult to get it. But through the practice and the studying and learning Buddhist teaching, you can come very close, very close. So again and again, we have to do it. And then you come to this bottom of the human life. And then the bottom is, between the bottom of human life and eternity is produced by certain partitions and the wall, but when you touch this wall, that wall is not hard, it’s very soft, very soft. If you touch it, you can get into eternity. But you don’t notice. 
 
@@ -121,24 +121,24 @@ So, that’s why, since I became a monk, why did Buddhist compassion have to lea
 
 So, I think you have to know. If you know the very deep moaning of your life, I think that understanding, comprehension of the deep moaning of your life spreads into others’ life. So you can understand it; you can share your life with the people *kindly*. Very kindly, because you know the deep moaning of your life. Which you cannot express, but constantly this is something you want to get, everyone wants to get. So, always, day to day. This is great *karuna*; we say great *karuna*. That *karuna*, moaning, is very deep and great; limitless. At that time it turns into compassion. And then you can share it. 
 
-For instance, I mentioned, when you feel the big pain from an accident, you know, hitting the shin against the corner of the desk, et cetera, you cannot say “Ouch!” and you cannot feel the pain, because something more than pain. So naturally you say just *[noise]*. That’s it. That is moaning expressed. When the deep moaning of your life is expressed, this is a very simple word, original word, before it becomes a usual word. 
+For instance, I mentioned, when you feel the big pain from an accident, you know, hitting the shin against the corner of the desk, et cetera, you cannot say “Ouch!” and you cannot feel the pain, because [it is] something more than pain. So naturally you say just *[noise]*. That’s it. That is moaning expressed. When the deep moaning of your life is expressed, this is a very simple word, original word, before it becomes a usual word. 
 
 *[Tape change.]*
 
-... So, very naturally your life becomes the Buddha. That is Sambhogakaya Buddha. Your physical life can manifest dharma in everyday life. This is called *buddha*, “awakened one”. And then we try to pay homage to this buddha. 
+... So, very naturally your life becomes the Buddha. That is Sambhogakaya Buddha; your physical life can manifest dharma in everyday life. This is called *buddha*, “awakened one”. And then we try to pay homage to this buddha. 
 
 So paying homage to the dharma is exactly paying homage to the buddha. 
 
-So that’s why in the beginning I mentioned what a Buddhist practitioner is. Practitioner must depend on the dharma, that means depend on the self. How can you understand this self? The self is exactly the same as the dharma. And then you become buddha. And when you become an awakened one, very naturally you can really deeply pay homage to Buddha Shakyamuni, who was one of the human beings as a Buddha. We can really respect Shakyamuni Buddha. 
+That’s why in the beginning I mentioned what a Buddhist practitioner is. A practitioner must depend on the dharma; that means depend on the self. How can you understand this self? The self is exactly the same as the dharma. And then you become buddha. And when you become an awakened one, very naturally you can really deeply pay homage to Buddha Shakyamuni, who was one of the human beings as a buddha. We can really respect Shakyamuni Buddha. 
 
-So we say, “I take refuge in the Buddha.” In Pali we say “*namo*.” *Namo* is “to bend”. *Namaste*: Indian people always say “namaste” instead of “Good morning.” Do you understand? People say “Namaste”. This is pretty nice, because *namas* is “to bend, to roll your head.” *Te* is “to you.” So “namaste” when you meet somebody in the morning, afternoon, or evening, or in winter, whenever, I think Indian people say “Namaste.” 
+So we say, “I take refuge in the Buddha.” In Pali we say “*namo*”. *Namo* is “to bend”. “*Namaste*”: Indian people always say “namaste” instead of “good morning.” [...] This is pretty nice, because *namas* is “to bend, to roll your head,” and *te* is “to you.” So when you meet somebody in the morning, afternoon, or evening, or in winter, whenever, I think Indian people say “*Namaste*.”
 
-In Japan, I think an interesting thing is, every season changes very much, very clearly, and every season has a very delicate taste, every season has a very delicate flavor. Day to day winter in Japan manifests itself having a very delicate flavor. So we say “Good morning,” but we say usually “Today is a fine day.” Lots of expressions of the morning when you see. When you see somebody, you can express “Morning today,” “Summer today,” using lots of expressions. And then, they bow. Japanese are always bowing: that is “Namaste.” “Namaste” is not only exchanging greeting, but “Namaste” is to bow, to bend, to roll your head. 
+In Japan, I think an interesting thing is that every season changes very much, very clearly, and every season has a very delicate taste, every season has a very delicate flavor. Day-to-day winter in Japan manifests itself having a very delicate flavor. So we say “Good morning,” but we usually say “Today is a fine day.” [There are] lots of expressions of the morning; when you see somebody, you can express “Morning today,” “Summer today,” using lots of expressions. And then, they bow. Japanese are always bowing: that is “*Namaste*.” “*Namaste*” is not only exchanging greeting, but *namaste* is to bow, to bend, to roll your head. 
 
-And Chinese, I think “*ki-myo*” is “return to life”. This life is a stream of energy, basic energy. So you should return your life, your life returns to this stream of basic energy. That is called “*namo*”. So “I take refuge in the Buddha.” 
+And in Chinese, I think “*ki-myo*” is “return to life”. This life is a stream of energy, basic energy. So you should return your life; your life returns to this stream of basic energy. That is called “*namo*”. So “I take refuge in the Buddha.” 
 
-So this is everyday practice. When you want to be a Buddhist practitioner, and then you practice the dharma, and then the dharma comes into you, and then you become Buddha. Simultaneously you become Buddha, simultaneously you are a person, human being, belonging to *sangha*. This is Buddha, Dharma, Sangha. So first we have to take refuge in the Triple Treasure.
- 
+This is everyday practice. When you want to be a Buddhist practitioner, and then you practice the dharma, and then the dharma comes into you, then you become Buddha. You become Buddha, simultaneously you are a person, human being, belonging to *sangha*. This is Buddha, Dharma, Sangha. So first we have to take refuge in the Triple Treasure.
+
 This is the conclusion of today’s talk. Maybe Saturday I can talk about repentance. 
 
 Do you have a question? 
@@ -161,13 +161,13 @@ Do you have a question?
 
 **Katagiri Roshi:** No; M-O-U-R-N. Is that clear? *[He laughs.]* 
 
-**Someone:** We used to always so “moan” M-O-A-N.
+**Someone:** We used to always say “moan” M-O-A-N.
 
 **Katagiri Roshi:** Oh, is that right? How about M-O-U-R-N? It’s a different word? 
 
-**Someone:** Is it to mourn for someone who died, you mourn for them? “Moan” is like a cry of anguish sort of thing.
+**Someone:** Is it to mourn for someone who died; you mourn for them? “Moan” is like a cry of anguish sort of thing.
 
-**Someone:** [That’s what she wants.]
+**Someone:** [That’s what he wants.]
 
 **Katagiri Roshi:** I’m not clear. M-O-U-R-N is what? 
 
@@ -181,37 +181,35 @@ Do you have a question?
 
 Okay, I correct it: M-O-A-N. Alright? M-O-A-N, moaning. 
 
-**Someone:** [Moaning] has a connotation usually of... a really forward kind of expression of pain, but moan and groan. What’s the word? Complaining. “Moaning” has a connotation of “complaining”. Do you mean it like that?
+**Someone:** [Moaning] has a connotation usually of... a really forward kind of expression of pain, [like] moan and groan. What’s the word? Complaining. “Moaning” has a connotation of “complaining”. Do you mean it like that?
 
 **Someone:** [Not always.]
 
-**Someone:** The deep moan of the world, Roshi talks about.
+**Someone:** Roshi talks about “the deep moan of the world.”
 
 **Someone:** When you talk about Kanzeon, you know, hearing the cry or the moaning of the world. 
 
-**Katagiri Roshi:** That’s why Kanzeon is called sometimes fearlessness; a symbol of fearlessness. Because Kanzeon, Avalokiteshvara, understands human deep cry. Very deep.
+**Katagiri Roshi:** That’s why Kanzeon is called sometimes *fearlessness*; a symbol of fearlessness. Because Kanzeon, Avalokiteshvara, understands the human deep cry. Very deep.
 
-It’s not the usual sadness. It’s kind of original flavor everyone has. Tree, birds... trees and birds express [it] very straightforwardly, but only human being are a little bit complicated. *[He laughs a little.]* Not straightforward like trees, birds. 
+It’s not the usual sadness; it’s kind of the original flavor everyone has. Tree, birds... trees and birds express [it] very straightforwardly, but only human being are a little bit complicated. *[He laughs a little.]* Not straightforward like trees, birds. 
 
-For instance, a tree dies very directly and straightforwardly; nothing to say. But when a human being dies, well, [it’s] not straightforward, not [open]. We know we should, but we don’t want [it]. So this kind of moaning always happens; that’s why moaning is created, constantly. 
+For instance, a tree dies very directly and straightforwardly; nothing to say. But when a human being dies, well, [it’s] not straightforward, not [open]. We know we should [be that way], but we don’t want [it]. So this kind of moaning always happens; that’s why moaning is created, constantly. 
 
-So, that’s [why] Avalokiteshvara can have a great ear to listen to that deep crying. 
-
-And then, only the presence of Avalokiteshvara makes you relieved completely. Like my experience being with my teachers: I felt relief. I don’t know what it is, but when I went back to the temple, I felt anyway relief, peaceful. 
-
-#### 51:10
+So, that’s [that] Avalokiteshvara can have a great ear to listen to that deep crying, and then only the presence of Avalokiteshvara makes you relieved completely. Like my experience being with my teachers: I felt relief. I don’t know what it is, but when I went back to the temple, I felt relief; peaceful. 
 
 **Question:** Hojo-san? Did you feel relief from that deep sadness, from that moaning? 
 
-**Katagiri Roshi:** Uh... yes. If you pay attention constantly, someday it turns into compassion, kindness, which you can share. If you share your deep cry with the people, you cannot share the deep cry with the people. When you try to share it, naturally deep cry turns into compassion. That is natural. That's why you have to understand very deeply how minutely consciousness is vibrated to separate, always separate. That is what we constantly. So very naturally we have a gap between. 
+**Katagiri Roshi:** Uh... yes. If you pay attention constantly, someday it turns into compassion, kindness, which you can share. If you share your deep cry with the people, you cannot share the deep cry with the people: when you try to share it, naturally the deep cry turns into compassion. That is natural. That's why you have to understand very deeply how minutely consciousness is vibrated to separate, always separate. That is what we constantly [do]; so very naturally we have a gap between. 
 
-[Recently] we went to discuss about Christianity and Buddhism. No matter how long we discussed and no matter how long practically we shake hands with each other between Buddhism and Christianity – still there is a wall. And then Christianity and Buddhist are always suffering: “How can I get one? How can I be united?” 
+[Recently] we went to discuss about Christianity and Buddhism [at a conference]. No matter how long we discuss, and no matter how long practically we shake hands with each other between Buddhism and Christianity, still there is a wall. And then Christian and Buddhist are always suffering: “How can I get *one*? How can I be united?” We should suffer. How? Day to day. So day to day, every year we have to meet, and useless discussion should be ongoing. *[Quiet laughter.]* 
 
-We should suffer. How? Day to day. So day to day, every year we have to meet, and useless discussion should be going. *[Someone laughs quietly.]* 
+And then the discussion is a kind of a bridge, okay? You should remember [this]. Discussion, words, and the meeting is a bridge, a practical bridge. 
 
-And then the discussion is a kind of a bridge, okay? You should remember [this]. Discussion, words, and the meeting is a bridge, a practical bridge. But there are many kinds of bridge: short bridge, middle size of bridge, long bridge, very short. *[He laughs.]* I think Buddhist practice is you should make the *shortest* bridge, and then you can share your life. While you are caught by the concept or ideas or your understanding, bridge is longer and longer. Discussion makes the bridge longer and longer and longer, constantly. *[He laughs.]* How do you make it shorter, simple? Meet together; talk. That's it. And practice: meet zazen; sit there. With full concentration, wholeheartedness, and then you become Buddha. 
+But there are many kinds of bridge: short bridge, middle size of bridge, long bridge, very short. *[He laughs.]* I think Buddhist practice is that you should make the *shortest* bridge, and then you can share your life. While you are caught by the concept or ideas or your understanding, bridge [becomes] longer and longer. Discussion makes the bridge longer and longer and longer, constantly. *[He laughs.]* How do you make it shorter, simple? Meet together, talk; that's it. And practice: meet zazen, sit there with full concentration, wholeheartedness. And then you become buddha. 
 
-When you become Buddha, you are Buddha, I am Buddha, and then become one. That's why Tozan Zen Master was asked by a monk, "What is real Buddha beyond the three categories of perspective on Buddha?" Dharmakaya, Nirmanakaya, Sambhogakaya. What is true Buddha? Then [Tozan] said, "Now, here, am I wholehearted." *Whole-hearted* is very serious, but soft, very flexible. But wholehearted, that flexibility and very serious life come together [and are working] together. That is *wholehearted*. And then, that is the best way to make the bridge shortest. Immediately there is communion, spiritual communion, between the Buddha and you, universe and you. 
+When you become buddha, you are buddha, I am buddha, and then become one. That's why Tozan Zen Master was asked by a monk, "What is real Buddha beyond the three categories of perspective on Buddha?" Dharmakaya, Nirmanakaya, Sambhogakaya [are the three]; what is true Buddha? Then [Tozan] said, "Now, here, am I wholehearted." 
+
+*Whole-hearted* is very serious, but soft, very flexible. But [in wholeheartedness] that flexibility and very serious life come together [and are working] together. That is *wholehearted*. And then that is the best way to make the bridge shortest. Immediately there is communion, spiritual communion, between the Buddha and you, universe and you. 
 
 That is the Zen way. 
 
@@ -221,13 +219,13 @@ That is the Zen way.
 
 **Katagiri Roshi:** Devil? 
 
-**Same person:** Like the devil’s lawyer... that’s someone who asks troublesome questions... This is all very simple, but now here I am, whole hearted...
+**Same person:** Like the devil’s lawyer... that’s someone who asks troublesome questions... This is all very simple, but “now here I am, whole hearted”...
 
 **Katagiri Roshi:** Mm-hmm. At that time...
 
 **Same person:** “Here I am” is easy, but “whole hearted” – how does one be whole hearted? 
 
-**Katagiri Roshi:** Okay. Do *gassho*; then just do *gassho* with whole-heartedness. That is now. When? Now, here. 
+**Katagiri Roshi:** Okay. Do *gassho*; then just do *gassho* with wholeheartedness. That is now. When? Now, here. 
 
 This wholeheartedness is a place and time where all the frames or categories and discrimination, different levels of life, are loosened into *this*. Simultaneously. 
 
@@ -235,7 +233,7 @@ This wholeheartedness is a place and time where all the frames or categories and
 
 **Katagiri Roshi:** So, devils? Devils are also there. *[He laughs.]* But loosened. Devils are loosened there. 
 
-But if you fight with a devil, objectively, devil and you become a long, long bridge. And then finally you don't know how to take care of it, because you cannot cross over the bridge because it’s too long, too long to cross over. So finally, you become angry. 
+But if you fight with a devil objectively, devil and you become a long, long bridge. And then finally you don't know how to take care of it, because you cannot cross over the bridge, because it’s too long, too long to cross over. So finally you become angry. 
 
 Okay, another? 
 
@@ -250,11 +248,11 @@ Okay, another?
 
 **Someone:** “*Wanting*”; wanting to be a Buddhist practicioner. 
 
-**Katagiri Roshi:** Well, I think not Buddhist, I think you want to be a *practitioner*. It’s not necessary to put the “Buddhism”. Practitioner in life. Okay? 
+**Katagiri Roshi:** Well, I think not Buddhist, I think you want to be a *practitioner*. It’s not necessary to put the “Buddhism”. Practitioner in life.
 
-*Practitioner* is to know something deeply, more than the conscious or unconscious understanding of human life. Something. You don't know *what*. So, why you do practice, you don't know, actually. Okay? Is that clear? 
+*Practitioner* is to know something deeply, more than the conscious or unconscious understanding of human life. Something; you don't know *what*. So, why you do practice? You don't know, actually. Okay? Is that clear? 
 
-I don't know either. *[They laugh.]* Why I am Buddhist monk, practicing like this. But, I cannot stop it. It's going; it's ongoing. This is human desires; deep human desire really encourages you to exist in this world, seeking for the something deep. That’s why we practice. 
+I don't know either, *[they laugh,]* why I am Buddhist monk, practicing like this. But I cannot stop it. It's going; it's ongoing. This is human desire; deep human desire really encourages you to exist in this world, seeking for something deep. That’s why we practice. 
 
 #### 59:29 end of recording
 
@@ -262,4 +260,4 @@ I don't know either. *[They laugh.]* Why I am Buddhist monk, practicing like thi
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-06-20-Manas) | [Next](1988-10-05-Review-and-Renew) | [List](list#1987) | Series: none
+#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-08-10-The-Need-and-Way-of-Repentance) | [List](list#1988) | Series: [Precepts](precepts)

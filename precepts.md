@@ -60,9 +60,18 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 *Summary not yet available.*
 
+----
+
 ## 1988 Series
+
+##### [Lay Ordination Lecture (2nd Series, 1 of 3): Depending on the Dharma](1988-08-03-Depending-on-the-Dharma)
+
+----
 
 ##### [Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance](1988-08-10-The-Need-and-Way-of-Repentance)
 
+----
+
+##### [Lay Ordination Lecture: (2nd Series, 3 of 3): Restraint and Extermination](1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination)
 
 ---

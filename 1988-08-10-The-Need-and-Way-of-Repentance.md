@@ -3,7 +3,7 @@ title: "The Need and Way of Repentance"
 ---
 ## August 10, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Precepts](precepts)
+#### [Previous](1988-08-03-Depending-on-the-Dharma) | [Next](1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination) | [List](list#1988) | Series: [Precepts](precepts)
 
 ### Transcript
 
@@ -306,4 +306,4 @@ Not a hundred or thousand... millions and millions. *[Laughter.]*
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-06-20-Manas) | [Next](1988-10-05-Review-and-Renew) | [List](list#1987) | Series: none
+#### [Previous](1988-08-03-Depending-on-the-Dharma) | [Next](1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination) | [List](list#1988) | Series: [Precepts](precepts)
