@@ -2,76 +2,22 @@
 title: "Receiving the Precepts"
 ---
 
-Katagiri Roshi gave more than one series of lectures on *jukai*, “receiving the precepts,” otherwise known as lay ordination. 
+Katagiri Roshi gave more than one series of lectures on *Jukai* (受戒), “Receiving the Precepts,” otherwise known as lay ordination. At this time transcripts of the 1986 series and the 1988 series are available.
 
-## 1986 Series 
+### 1986 Series 
 
-##### [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
-###### February 22, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-Katagiri Roshi introduces a series of lectures on receiving the precepts, otherwise known as lay ordination. In this first talk, he explains the goal of lay ordination as three points. The first point is realization of the truth, that all beings are Buddha. Second: the profound and steadfast aspiration to live our lives with all beings in peace and harmony. And third: helping all beings. For the first point, realization of the truth, he explains three kinds of knowing: knowledge in the ordinary sense, knowing something in the world of impermanence, and supreme knowledge. This ties into a discussion of what it means to help all beings. The ceremony of lay ordination is an opportunity to realize these three points. Even if we don’t understand them, we can still take action to enter this world of the Buddha.
-
----
-
-##### [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
-###### March 1, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *formless repentance*. Repentance is not a ritual of trying to get forgiveness from someone; rather, repentance is to be present right in the middle of peace and harmony. He describes three aspects of repentance. The first is that we should realize the world of compassion and heart; this is to realize “the world prior to germination of any subtle ideas,” which is called Buddha. The second aspect is that we should accept Buddha’s compassion with readiness; this is sometimes called *samadhi*, or egolessness. The third aspect is ritual, which is “interacting communion between you and the universe.” To illustrate these points, Katagiri Roshi discusses the role of the *doan* in Zen, the meaning of the word *Shakyamuni* in Chinese, and the poem “How To Make A Portrait Of A Bird” by Jacques Prévert.
-  
----
-
-##### [Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
-###### March 8, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*. Also, there is some clarification of what *ritual* means in Buddhism.
-
----
-
-##### [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
-###### March 15, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue or characteristics*, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge. Also: how Gandhi dealt with events and circumstances.
-
----
-
-##### [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
-###### April 12, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
-###### April 26, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
-###### May 3, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
----
-
-##### [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
-###### June 28, 1986 Dharma Talk by Dainin Katagiri Roshi
-
-*Summary not yet available.*
-
-----
+1. [Significance of Ordination](1986-02-22-Significance-of-Ordination)
+2. [Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
+3. [Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
+4. [Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
+5. [Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
+6. [Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
+7. [Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
+8. [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
 
 ## 1988 Series
 
-##### [Lay Ordination Lecture (2nd Series, 1 of 3): Depending on the Dharma](1988-08-03-Depending-on-the-Dharma)
+1. [Depending on the Dharma](1988-08-03-Depending-on-the-Dharma)
+2. [The Need and Way of Repentance](1988-08-10-The-Need-and-Way-of-Repentance)
+3. [The Way of Precept Practice: Restraint and Extermination](1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination)
 
-----
-
-##### [Lay Ordination Lecture (2nd Series, 2 of 3): The Need and Way of Repentance](1988-08-10-The-Need-and-Way-of-Repentance)
-
-----
-
-##### [Lay Ordination Lecture: (2nd Series, 3 of 3): Restraint and Extermination](1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination)
-
----
