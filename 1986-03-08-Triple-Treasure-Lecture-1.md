@@ -7,7 +7,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 ### Summary
 
-Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is the universe, *dharma* is the teaching from the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations. To do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*. Also, there is some clarification of what *ritual* means in Buddhism.
+Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is awareness or the universe, *dharma* is the teaching of the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations; to do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*. Also, there is some clarification of what *ritual* means in Buddhism.
 
 ### Transcript
 
@@ -17,9 +17,9 @@ Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the f
 
 **Katagiri Roshi:** [Today I would like to] talk about the Triple Treasure. What is the significance of the Triple Treasure: taking refuge in buddha, dharma, sangha? I think the Triple Treasure in Zen Buddhism is the foundation of the Precepts. 
 
-The Precepts in Zen Buddhism are not a kind of moral code which we believe forces us to not do something, not by our initiative will but by something else. In Zen, the Precepts are buddha-nature, the spirit of the universe; this is the Precepts themselves. To receive the Precepts is to realize or to awaken [to] the universe, buddha-nature.
+The Precepts in Zen Buddhism are not a kind of moral code which we believe forces us not to do something, not by our initiative will but by something else. In Zen, the Precepts are buddha-nature, the spirit of the universe; this is the Precepts themselves. To receive the Precepts is to realize or to awaken [to] the universe, buddha-nature.
 
-Bodhidharma said that to receive means to awaken or to realize. I said before, *to realize* is to accept *and* to digest. You have to totally accept the universe as it is, beyond your understanding, because you live there. So realization means to accept, and also something which you have accepted must be digested through and through, until it turns into life energy. 
+Bodhidharma said that *to receive* means to awaken or to realize. I said before, *to realize* is to accept *and* to digest. You have to totally accept the universe as it is, beyond your understanding, because you live there. So realization means to accept, and also something which you have accepted must be digested through and through, until it turns into life energy. 
 
 This is awakening; we say *awakening* or *awareness*, or *realization*. To receive is to awaken to awareness of buddha- nature, awareness of the universe. 
 
@@ -29,17 +29,17 @@ So to receive means to awaken, [and] to awaken means to transmit. What you have 
 
 So what do we learn? That is the depth of existence. Technically we call that *buddha-nature*, or plainly speaking, this is the Universe – physically, mentally, the spirit of the universe. We should awaken to this, because it is constantly going, through all [the] ages. 
 
-We have to awaken, [and] then if you awaken, very naturally you can transmit it to the next generation. So in every age, human beings repeat the same things. When we are born we don’t awaken to the sublimity of human life, the depths of existence, so your ancestors, your teachers, [et cetera,] try to awaken you to it. And then you awaken, and then next, you really want to take the lead in transmitting it to the next generation. 
+We have to awaken, [and] then if we awaken, very naturally we can transmit it to the next generation. So in every age, human beings repeat the same things. When we are born we don’t awaken to the sublimity of human life, the depths of existence, so your ancestors, your teachers, [et cetera,] try to awaken you to it. And then you awaken, and then next, you really want to take the lead in transmitting it to the next generation. 
 
 Very naturally, this is constantly dharma transmission, from generation to generation. In the wide sense, there is constantly transmission of the exquisite image of human life, throughout all generations. That’s why finally we appreciate human life, and we try to help human beings. 
 
 So that is the Precepts in Zen Buddhism. The Precepts are buddha-nature, and then to receive the Precepts is to awaken buddha-nature. What do I mean “to awaken”? That is to transmit. So then, very naturally, you can create human culture, and you can build up the human world in peace and harmony. Under all circumstances, through all the ages, this is the human effort we [make], constantly, repeatedly. 
 
-That is the Precepts. So the Triple Treasure is the very foundation of the Precepts; the first step of entering into the universe.
+That is the Precepts. The Triple Treasure is the very foundation of the Precepts; the first step of entering into the universe.
 
 #### 9:33
 
-In *Zen Master Dōgen*, page 60, Dōgen Zenji talks about this Triple Treasure. He said it here like this: 
+In *Zen Master Dōgen*, page 60, Dōgen Zenji talks about this Triple Treasure. He said it like this: 
 
 >  ... you should deeply venerate the Three Treasures. They deserve our veneration and respect no matter how much our life and body may change.
 
@@ -47,9 +47,9 @@ In *Zen Master Dōgen*, page 60, Dōgen Zenji talks about this Triple Treasure. 
 
 I think *take refuge* [does not mean] to escape from the human world or to escape [from one thing to another]. In Japanese, to take refuge is called *namu kie*. In Sanskrit, *namo* means full devotion or throwing away your body and mind. *Namo* means total devotion, full devotion to. 
 
-*Full devotion* means just like the relation between your thought [...] and your stomach. Your stomach and your thought seem to be different; stomach is kind of different from your thought. But stomach is exactly the same as your thought, because it’s a very close relation: if \[your thought becomes upset, then] you have a stomach ache, stomach upset. So they are two, but they are not two, [they are] exactly working together, without leaving any trace of the stomach [or] of the thought. That is the reality where your stomach and thought work together. So that is called *full devotion*.
+*Full devotion* means just like the relation between your thought [...] and your stomach. Your stomach and your thought seem to be different. Stomach is kind of different from your thought, but stomach is exactly the same as your thought because it’s a very close relation: if [your thought becomes upset, then] you have a stomach ache, stomach upset. So they are two, but they are not two, [they are] exactly working together, without leaving any trace of the stomach [or] of the thought. That is the reality where your stomach and thought work together. 
 
-And that is, in English we say *take refuge in*. Or another expression in English is to *go to Buddha for guidance*. But anyway, *take refuge in* means total, full devotion. 
+So that is called *full devotion*. And that is, in English we say *take refuge in*. Or another expression in English is to *go to Buddha for guidance*. But anyway, *take refuge in* means total, full devotion. 
 
 #### 14:00
 
@@ -61,7 +61,7 @@ Why? What is the reason why we have to do this? Dōgen Zenji says:
 
 > We take refuge in the Buddha because he is our great teacher. 
 
-*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words, we say Buddha. Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, [...] and functioning of the universe. Then Gotama Siddartha [became] Buddha. 
+*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words we say Buddha. Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, [...] and functioning of the universe, then Gotama Siddartha [became] Buddha. 
 
 >  We take refuge in the Law (the Dharma) because it is good medicine. 
 
@@ -77,15 +77,15 @@ One is a good friend in the usual sense. If a friend gives you something of bene
 
 The second sense of a *good friend* is a person who commands respect from others, beyond a sense of give and take. Even though the person cannot give anything of benefit to you materialistically or practically, you can really respect [them] deeply. This is [the second] kind of good friend. 
 
-The third [sense of] *good friend* is completely beyond whether you can respect them or you can give [or get] something, et cetera. Even if you live far from him or her, he or she always influences your life in the wide sense.  If you even think of [them], it really helps. So that is a good friend. Even if you think of the presence of this person just for a moment, at that time he or she really helps your life. 
+The third [sense of] *good friend* is completely beyond whether you can respect them or you can give [or get] something, et cetera. Even if you live far from him or her, he or she always influences your life in the wide sense.  If you even think of [them], it really helps. So that is a good friend: even if you think of the presence of this person just for a moment, at that time he or she really helps your life. 
 
-It’s not merely the [imagination]. Imagination is a part of your life, so imagination is also important for us. The important point is how you can put the imaginable life into practice; you have to give life to the imaginable life. You cannot stay always in imagination; you should take care of imagination, but you have to also think how you can put the imagination into practice. This is also important for us. 
+It’s not merely [imagination]. Imagination is a part of your life, so imagination is also important for us. The important point is how you can put the imaginable life into practice; you have to give life to the imaginable life. You cannot stay always in imagination; you should take care of imagination, but you have to also think how you can put the imagination into practice. This is also important for us. 
 
 So that is the third meaning of the good friend. That is really excellent. That third good friend is always helping you, in many ways.
 
-So that is community, we say *sangha*. This sangha is quite different from the usual sense of community. If people just gather and live together, it’s not *sangha*. Each of you has to be an *excellent friend* to others, because you must be following Buddha’s teaching. You must be following the essence of the universe, and the virtue of the universe, the functioning of the universe. And then you become excellent friends to others. 
+So that is community; we say *sangha*. This sangha is quite different from the usual sense of community. If people just gather and live together, it’s not *sangha*. Each of you has to be an *excellent friend* to others, because you must be following Buddha’s teaching. You must be following the essence of the universe, and the virtue of the universe, the functioning of the universe. And then you become excellent friends to others. 
 
-But usually, you are not. That’s why in the community in the United States, there are lots of problems: because most people think sangha is just the usual community. No, I don’t think so! I understand [why people think that], because the people who practice in the community are not different from others; all of you are just human beings. I agree. You are human beings – but [also] you are not human beings. Don’t forget this point! You are *Buddha*, anyway! If you forget you are Buddha, you become a usual human being. [You ignore this because you don’t understand you are Buddha,] but *Buddha* means beyond whether you understand or not, you are exactly Buddha. 
+But usually, you are not. That’s why in the community in the United States there are lots of problems: because most people think sangha is just the usual community. No, I don’t think so! I understand [why people think that], because the people who practice in the community are not different from others; all of you are just human beings. I agree. You are human beings – but [also] you are not human beings. Don’t forget this point! You are *Buddha*, anyway! If you forget you are Buddha, you become a usual human being. [You ignore this because you don’t understand you are Buddha,] but *Buddha* means beyond whether you understand or not, you are exactly Buddha. 
 
 *Buddha* means total qualification [to live] in this world, under all circumstances. Excellent qualifications of living in this world. No excuses. 
 
@@ -99,11 +99,11 @@ And next Dōgen Zenji says:
 
 > It is only by taking refuge in the Three Treasures that one can become a disciple of the Buddha and become qualified to receive all the other precepts.
 
-So, only by taking refuge in the Triple Treasure can you become a disciple of the Buddha, in other words *a son or daughter of the Buddha*. (*Transcriber’s Note:* Katagiri Roshi says *son*, as from the translated passage from the *Lotus Sutra* which appears later. I have added *or daugther*.) I mentioned this last Friday morning. I mentioned that the meaning of the Buddha is exactly the same as the spirit of the universe, the cosmos. So *a son or daughter of the Buddha* means that you have to completely accept the universe, where all sentient beings exist. There is no excuse to ignore anything in this world. If you accept yourself, you have to accept all sentient beings – not as something separate from your life, but as the *contents* of your life. 
+Only by taking refuge in the Triple Treasure can you become a disciple of the Buddha, in other words *a son or daughter of the Buddha*. (*Transcriber’s Note:* Katagiri Roshi says *son*, as from the translated passage from the *Lotus Sutra* which appears later. I have added *or daugther*.) I mentioned this last Friday morning; I said that the meaning of the Buddha is exactly the same as the spirit of the universe, the cosmos. So *a son or daughter of the Buddha* means that you have to completely accept the universe, where all sentient beings exist. There is no excuse to ignore anything in this world. If you accept yourself, you have to accept all sentient beings – not as something separate from your life, but as the *contents* of your life. 
 
 So in other words, each of your lives is not different from me. If I accept all of your lives [as] something separate from me, that’s the intellectual world. [In the intellectual world,] very naturally I can discriminate between I and you; so [there is] no sense of human warmness created by the human heart or spirit; so very naturally, we cannot communicate with each other.
 
-So *a disciple of the Buddha* is that you have to be a *son or daughter of the Buddha*, that means you are a person who accepts all others’ life, all sentient beings, as the contents of your life. At that time, you are called son or daughter of the Buddha, a disciple of the Buddha. 
+So *a disciple of the Buddha* is that you have to be a *son or daughter of the Buddha*; that means you are a person who accepts all others’ life, all sentient beings, as the contents of your life. At that time you are called son or daughter of the Buddha, a disciple of the Buddha. 
 
 Or, [consider] the universe. The universe is vast. What do I mean? The universe completely accepts you. How? The universe accepts your life exactly as the content of the universe. The universe never separates its own life from your life. So all of your lives – trees’ lives, birds’ lives, and your lives – winter’s life, spring’s life – are exactly accepted as the content or quality of the universe. So that’s why the universe becomes Buddha. You are child of the Buddha. 
 
