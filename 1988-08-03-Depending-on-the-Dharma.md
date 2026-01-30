@@ -33,7 +33,7 @@ So that’s why if you become a Buddhist practitioner, I think [you should] “e
 
 That’s why day to day, we have to learn it and we have to practice it. “Practice” means to *taste* it; to taste with your body and mind, practically. 
 
-[And] “be delighted in the dharma.” Joyfulness, joyful “thrill”, is not the usual “pleasure”; [it] is a human emotion coming from the bottom of your heart. So sometimes you don’t realize it. But if you are with the dharma day to day, being mindful of it, then naturally joyfulness is coming up. That’s why “be delighted in the Dharma.”
+[And] “be delighted in the dharma.” Joyfulness [is not] joyful “thrill”, is not the usual “pleasure”; [it] is a human emotion coming from the bottom of your heart. So sometimes you don’t realize it. But if you are with the dharma day to day, being mindful of it, then naturally joyfulness is coming up. That’s why “be delighted in the Dharma.”
 
 First of all, you have to stand up in the realm of dharma, which means the depth of human existence by which your life is supported completely. So you should take a deep breath there, and then take care of your everyday life.
 
