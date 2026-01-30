@@ -15,7 +15,7 @@ Katagiri Roshi gave more than one series of lectures on *Jukai* (受戒), “Rec
 7. [Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
 8. [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels)
 
-## 1988 Series
+### 1988 Series
 
 1. [Depending on the Dharma](1988-08-03-Depending-on-the-Dharma)
 2. [The Need and Way of Repentance](1988-08-10-The-Need-and-Way-of-Repentance)
