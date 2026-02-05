@@ -98,21 +98,23 @@ Dōgen’s commentary is also interesting. He says:
 
 So first, “When the old plum tree suddenly opens, the world of the blossoming flowers arises.” That means the whole world is occupied, embraced by blooming flowers. So the whole world is flowers; even though the world is covered with snow, it’s completely flowers. And then that is simultaneously spring. So that’s why it says, “At the moment when the world of blossoming flowers arises, spring arrives.” 
 
-Which of the two comes first? Does spring come first? Or do blooming flowers come first? That is human speculation. *Reality*, as it really is, is completely the truth that blooming flowers and spring come together, simultaneously. We don’t know how. But this is true!
+Which of the two comes first? Does spring come first? Or do blooming flowers come first? That is human speculation. *Reality*, as it really is, is completely the truth that blooming flowers and spring come together, simultaneously. We don’t know how... but this is true!
 
 So Dōgen Zenji and many teachers try to present this total picture of *one*, working with the whole universe. So if you see the one plum flower, immediately you can see the whole world working with this one plum flower, through his words.
 
 #### 30:31
 
-Another example is [that Dōgen Zenji] talks about *everydayness*, everyday mind. What is everyday mind? Everyday mind. We know [it] pretty well. But he says (in *Shinjin Gakudō*, “Studying the Way with Body and Mind”) that everyday mind is quite different from our understanding. He says:
+Another example is [that Dōgen Zenji talks] about *everydayness*, everyday mind. What is everyday mind? Everyday mind. We know [it] pretty well. But he says (in *Shinjin Gakudō*, “Studying the Way with Body and Mind”) that everyday mind is quite different from our understanding. He says:
 
-> Everyday mind is everyday mind throughout this world and other worlds. Yesterday lept from that [place]; today comes from that place. When you go, the whole world goes. When you come, the whole earth comes. The gate of this everydayness [is] opening and closing at the moment; the gate[s] of myriad, myriad beings are opening and closing at the moment. 
+> Everyday mind is always everyday mind, throughout this world and other worlds. Yesterday lept from that [place]; today comes from that place. When you go, the whole world goes. When you come, the whole earth comes. The gate of this everydayness [is] opening and closing at the moment; the gate[s] of myriad, myriad beings are opening and closing at the moment. 
 
-Can you [understand this]? If you read this in Japanese it’s more beautiful, but when I translate it into English maybe it’s not beautiful. But behind my English words, please understand what is everydayness. We don’t understand everydayness, but if you listen to [these words] I think [we can hear that] everydayness is something more than we have thought: everydayness is like something exists with all sentient being simultaneously. 
+Can you [understand this]? If you read this in Japanese it’s more beautiful, but when I translate it into English maybe it’s not beautiful. But behind my English words, please understand what everydayness is. We don’t understand what everydayness is, but if you listen to [these words] I think [we can hear that] everydayness is something more than we have thought: everydayness is like something exists with all sentient being simultaneously. 
 
-And then, even though you don’t understand it, you are really captured by this statement. So naturally, you can memorize [it]. If you read a wonderful statement written by whoever, naturally you are captured by words of the beautiful statement, even if you don’t understand it. 
+And then, even though you don’t understand it, you are really captured by this statement. So naturally, you can memorize [it]. If you read a wonderful statement written by whoever, naturally you are captured by the beautiful statement in words, even if you don’t understand it. This is important, because they always represent something as a whole – not the one particular thing.
 
-This is important, because they always represent something as a whole – not the one particular thing. That is so-called *all are Buddha*. Everydayness is not [what] you have believed through your experience, through your education, et cetera; it is nothing but the total picture of the Buddhas with the universe. Everydayness is something cosmic, with all the universe. So we should receive it and use it, and also try to be present there, and constantly focus on it and aim at it, moving toward that, day by day. This is called *the wheel of great greed*. 
+That is so-called *all are Buddha*. Everydayness is not [what] you have believed through your experience, through your education, et cetera: it is nothing but the total picture of the buddhas with the universe. Everydayness is something cosmic, with all the universe. 
+
+So we should receive [everydayness] and use it, and also try to be present there, and constantly focus on it and aim at it, moving toward that, day by day. This is called *the wheel of great greed*. 
 
 So we should totally accept this everydayness. And then naturally you remember this statement; very naturally it gives lots of instructions to you. 
 
@@ -120,17 +122,21 @@ So we should totally accept this everydayness. And then naturally you remember t
 
 #### 34:38
 
-Second, *the wheel of anger*. How can you turn the *poison* of anger into the *wheel* of anger? I think Dōgen Zenji says it (in *Sanjūshichi-bon-bodai-bunpō*, the “Thirty-Seven Elements of Bodhi” fascicle of *Shōbōgenzō*) like this:
+Second, *the wheel of anger*. How can you turn the *poison* of anger into the *wheel* of anger? 
 
-> When a demon becomes Buddha, you should subdue him and let him become the Buddha by dealing with it. When the Buddha becomes the Buddha, you should intend to become the Buddha and let him become Buddha by dealing with the Buddha. When a person becomes the Buddha, you should harmonize him and let him become the Buddha by dealing with him. You should know that there is a passage to freedom the moment when you deal with.
+I think Dōgen Zenji says it (in *Sanjūshichi-bon-bodai-bunpō*, the “Thirty-Seven Elements of Bodhi” fascicle of *Shōbōgenzō*) like this:
 
-“Demons” means demons, devils, whatever. First of all he says, “when a demon becomes Buddha” – because as long as demons exist in this world, they have their own reason why they exist. That reason is completely beyond our speculation. I think within the realm of demons, we have to find the realm of buddhas: peace, harmony. In other words, in the realm of sickness and pain, we have to find the peace and harmony. This is religious practice; this is the spiritual life. You cannot find any peace escaping from pain and samsaric human suffering. So *right in the midst* of samsaric human pain, we have to find the peace and harmony, perfect peace. Even though it is difficult, [or] whatever you think, that is the purpose of spiritual life. 
+> When a demon becomes Buddha, you should subdue him and let him become the Buddha by dealing with it. When the Buddha becomes the Buddha, you should intend to become the Buddha and let him become Buddha by dealing with the Buddha. When a person becomes the Buddha, you should harmonize [with] him and let him become the Buddha by dealing with him. You should know that there is a passage to freedom the moment when you deal with.
+> 
+> (*Transcriber’s Note:* This is probably Katagiri Roshi’s own translation.)
 
-So that’s why when a demon becomes Buddha – yes, becomes Buddha – “you should subdue him and let him become the Buddha by dealing with it.” The important point is that we should deal with the demons not with immediate hatred or anger; don’t react quickly with the usual sense of hatred or anger. That is the cause of human troubles. Right in the realm of the demon’s world, we try to deal with them with calm, peaceful mind, as best as we can. This is our practice. So that is that “we should subdue him.” Naturally, they subdue *themselves* by themselves, if you do it in that way. 
+First of all he says, “When a demon becomes Buddha” – “demons” means demons, devils, whatever. Because as long as demons exist in this world, they have their own reason why they exist. That reason is completely beyond our speculation. So I think within the realm of demons, we have to find the realm of buddhas: peace, harmony. In other words, in the realm of sickness and pain we have to find the peace and harmony. This is religious practice; this is the spiritual life. You cannot find any peace [in] escaping from pain and samsaric human suffering. So *right in the midst* of samsaric human pain, we have to find the peace and harmony, perfect peace. Even though it is difficult, [or] whatever you think, that is the purpose of spiritual life. 
 
-And then, this is *a passage to freedom*. The moment when you deal with demons, immediately, right here right now, at that time that is *a passage to freedom*. The passage is not a philosophical idea, not a metaphysical idea; it is a very concrete way you have to *work*, [right] now. So that is *a passage to freedom*: *the moment when you deal with*. [It] is a passage, but that passage is really opening itself only when you deal with [something]. In the act of dealing with something, the passage opens to you. 
+So that’s why “when a demon becomes Buddha” – yes, becomes Buddha – “you should subdue him and let him become the Buddha by dealing with it.” The important point is that we should deal with the demons not with immediate hatred or anger. Don’t react quickly with the usual sense of hatred or anger; that is the cause of human troubles. So right in the realm of the demon’s world, we try to deal with them with calm, peaceful mind, as best as we can. This is our practice. That is that “we should subdue him”. Naturally they subdue *themselves* by themselves, if you do it in that way. 
 
-So, at that time it is called *the wheel of anger*, instead of *the poison of anger*. 
+And then, this is “a passage to freedom”. The moment when you deal with demons immediately, right here and right now, at that time that is *a passage to freedom*. The passage is not a philosophical or metaphysical idea; it is a very concrete way you have to *work* [right] now. So that is *a passage to freedom*: *the moment when you deal with*. [It] is a passage, but that passage is really opening itself only when you deal with [something]. In the act of dealing with something, the passage opens to you. 
+
+At that time it is called *the wheel of anger*, instead of *the poison of anger*. 
 
 #### 39:58
 
@@ -138,15 +144,15 @@ Next, *the wheel of ignorance*. How can you turn the poison of ignorance into th
 
 I think in *Song of the Jewel Mirror*, in the last sentence it says, “practicing secretly, working within.” So in order to turn the poison of ignorance into the wheel of ignorance, I think we should achieve continuity of “practicing secretly, working within.” 
 
-“Practice in secret” means, as Dōgen Zenji teaches, practice in a monastery must be carried out *quietly*, calmly – not something showy. Because *passage to freedom* goes to you only when you *deal with*, right now, right here. That’s why practice is what? When you yourself want to be peace and harmony, right in the [midst] of sitting, from moment to moment – where is the passage to freedom, to peace and harmony? Right now, right here, you should receive your body and use your body and mind in peace and harmony; be present in peace and harmony. That means bring the peace and harmony to your body and mind, right now, right here. This is nothing but practice in action. 
+“Practice in secret” means, as Dōgen Zenji teaches, practice in a monastery must be carried out *quietly*, calmly – not something showy. Because *passage to freedom* [opens] to you only when you *deal with*, right now, right here. That’s why practice is what? When you yourself want to be peace and harmony, right in the [midst] of sitting, from moment to moment – where is the passage to freedom, to peace and harmony? Right now, right here, you should receive your body [and mind] and use your body and mind in peace and harmony; be present in peace and harmony. That means bring the peace and harmony to your body and mind right now, right here. This is nothing but practice in action. So what is this? This is [that] this practice must be going very calmly, not showy. 
 
-So what is this? This practice must be going very calmly, not showy. That is called the *wheel of ignorance*, instead of the *poison of ignorance*.
+That is called the *wheel of ignorance*, instead of the *poison of ignorance*.
 
 #### 42:29
 
-So that is [what] “the threefold wheel is pure and clean” [means]. Naturally that practice is pure and clean. 
+So [these together are] “the threefold wheel is pure and clean”. Naturally that practice is pure and clean. 
 
-[At first], it’s very difficult to believe or receive this representation by buddhas, ancestors, and Dōgen, presenting something with the whole universe. It’s very difficult to receive, because human speculation doesn’t catch it! Always human consciousness gets [just] one corner of the universe, so it’s very difficult to get, to hold, to have the *whole* universe through the one thing. That’s why we have to receive it and use it, as best as we can; this is the purpose of spiritual life. Otherwise, no matter how long you try to understand the universe intellectually and metaphysically, you never get the spirit of spiritual life, based on peace and harmony. 
+[At first], it’s very difficult to believe or receive this representation by buddhas, ancestors, and Dōgen, presenting something with the whole universe. It’s very difficult to receive, because human speculation doesn’t catch it! Always human consciousness gets [just] one corner of the universe, so it’s very difficult to get, to hold, to have the *whole* universe through the one thing. That’s why we have to receive it and use it as best as we can; this is the purpose of spiritual life. Otherwise, no matter how long you try to understand the universe intellectually and metaphysically, you never get the spirit of spiritual life [...] based on peace and harmony. 
 
 #### 44:06 end of recording
 
