@@ -11,10 +11,7 @@ The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in li
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/triple-treasure-lecture-2)
 
 #### 0:00
 
@@ -24,7 +21,7 @@ The ritual of lay ordination is based on the idea of repentance, which means per
 
 Anyway, briefly speaking, first we do repentance, which means perfect openness of your heart, which allows you to be ready to listen to the voiceless voice of the whole universe. That is repentance. 
 
-And then, the Triple Treasure is that if you open your heart, next, you have to behave in the realm of the universe. Not outside of the universe, and not inside of the universe – because your whole body and mind is completely embraced by the whole universe, so you have to behave in the realm of the universe. You have to manifest your life in the realm of the universe. There is no other way to go. How should we manifest ourselves in the realm of the universe? That is the Triple Treasure, the Three Refuges. 
+And then, the Triple Treasure is that if you open your heart, next, you have to behave in the realm of the universe. Not outside of the universe, and not inside of the universe – because your whole body and mind is completely embraced by the whole universe, so you have to behave in the realm of the universe, you have to manifest your life in the realm of the universe. There is no other way to go. How should we manifest ourselves in the realm of the universe? That is the Triple Treasure, the Three Refuges. 
 
 The Three Refuges are the three goals in life. When you realize your existence in the realm of the universe, then naturally you can see the goal in life – in other words, how you manifest your life in the realm of the universe, with all sentient beings. 
 
@@ -50,11 +47,11 @@ Today, I would like to talk a little more about the Three Treasures. I use a dif
 
 I already said that the Three Refuges refer to the three goals in life. But what is the goal in life toward which one's effort is directed if one becomes a Buddhist? *Buddhist* means a universal being. Without being caught by the idea of sectarianism, what is the goal in life toward which one’s effort is directed? If you become a universal being, what is the goal?
 
-*Goal* means the lofty ideal image of human beings, from which repose and bliss originate, or peace and harmony. Everyone [consciously or] unconsciously is seeking for something trustworthy, something dependable, beyond worldly affairs, by which we can feel relieved. More or less everyone is constantly seeking, or groping, for this. That’s why we suffer. This is called *the inception of suffering*. This is suffering. Even if you feel happy, there is suffering – because you want to keep it. Why do you want to keep it? Constantly, whatever your lifestyle may be, happy or unhappy, there is always suffering. Suffering means *unsatisfaction*, there is an unsatisfactory feeling there. [That’s because] you want to perfectly grasp or get something trustworthy or completely dependable. This is that which we are always seeking for. 
+*Goal* means the lofty, ideal image of human beings, from which repose and bliss originate, or peace and harmony. Everyone [consciously or] unconsciously is seeking for something trustworthy, something dependable, beyond worldly affairs, by which we can feel relieved. More or less everyone is constantly seeking or groping for this; that’s why we suffer. This is called *the inception of suffering*. This is suffering. Even if you feel happy, there is suffering – because you want to keep it. Why do you want to keep it? Constantly, whatever your lifestyle may be, happy or unhappy, there is always suffering. Suffering means *unsatisfaction*, there is an unsatisfactory feeling there. [That’s because] you want to perfectly grasp or get something trustworthy or completely dependable. This is that which we are always seeking for. 
 
 So we say that is the goal in life. That goal is not something you can get in the realm of the conscious world, and not in the realm of the unconscious world – it is something more than the conscious world and the unconscious world. You don’t know what it is, but you are seeking for it everyday. That’s why we say it is suffering, or unsatisfaction, because whatever you get in the realm of worldly affairs, happiness or unhappiness, justice or injustice, you aren’t satisfied. Why aren’t you satisfied? Because you are still seeking for something more than you have gotten. This [goal] is pretty deep. I don’t know what it is. No one knows what it is; but we are seeking [for it].
 
-That goal is the very lofty, sublime, ideal image of human beings. Everyone has it. I say *lofty*; lofty is *sublime*. Sublime means “of high spiritual, moral, and intellectual worth.” So you have to appreciate your life, because your life is sublime; lofty. That means your life, physically and mentally, has spiritual, moral, and intellectual worth. That’s why everyone respects others. 
+That goal is the very lofty, sublime, ideal image of human beings. Everyone has it. I say *lofty*; lofty is *sublime*. Sublime means “of high spiritual, moral, and intellectual worth”. So you have to appreciate your life, because your life is sublime; lofty. That means your life, physically and mentally, has spiritual, moral, and intellectual worth. That’s why everyone respects others. 
 
 The Three Refuges means we take refuge in the Three Treasures: buddha, dharma, sangha. So very naturally, how do we take refuge in buddha, dharma, sangha? Not only in terms of sensation or emotion. Not only in terms of intellectual worth. And not only in terms of the moral sense. No. You have to accept the Three Treasures in terms of spiritual, moral, intellectual, and emotional worth. And then, this is called *faith*. If you do it, very naturally faith comes up from the bottom of your life. 
 
