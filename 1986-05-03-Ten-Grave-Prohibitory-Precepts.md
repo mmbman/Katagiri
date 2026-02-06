@@ -27,7 +27,9 @@ title: "Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts"
 
 #### 2:10
 
-**Katagiri Roshi:** Today, I would like to explain, one by one, the Ten Prohibitory Precepts. (*Transcriber’s Note:* The first Prohibitory Precept is discussed in this talk. The second was discussed in a talk that followed this one, which is lost. The third is discussed in [Turning the Three Poisons into Wheels](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
+**Katagiri Roshi:** Today, I would like to explain, one by one, the Ten Prohibitory Precepts. 
+
+(*Transcriber’s Note:* The first prohibitory precept is discussed in this talk. The second was discussed in a talk that followed this one, which is lost. The third is discussed in [“Turning the Three Poisons into Wheels”](1986-06-28-Turning-the-Three-Poisons-into-Wheels).)
 
 I think the Ten Great Prohibitory Precepts mean to actualize the embodiment of living in vow which corresponds to the Three Collective Precepts: the precepts of “all Buddha’s laws and rules,” “collective wholesome dharma,” and “collective inconceivable activity for all beings.” 
 

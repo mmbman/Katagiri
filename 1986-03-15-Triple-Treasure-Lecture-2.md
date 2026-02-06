@@ -7,7 +7,7 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 
 ### Summary
 
-The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue or characteristics*, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge. Also: how Gandhi dealt with events and circumstances.
+The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi explains the Three Treasures in terms of *philosophical worth*, *virtue or characteristics*, and *functioning*. The teaching of “the three thousand worlds in a moment/thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge.
 
 ### Transcript
 
@@ -57,13 +57,13 @@ The Three Refuges means we take refuge in the Three Treasures: buddha, dharma, s
 
 That’s why I say “the lofty, sublime, ideal image of human beings” – how we should live in this world in peace and harmony. As long as you are born in this world as a human being, there is a goal in life, there is a goal in human society. Everyone’s effort should be directed toward that goal. Because you exist in a certain society: so-called America, so-called Minnesota. Minnesota has the goal in its society, according to a [difference in] the weather, and according to the Midwest, et cetera. So very naturally, everyone’s effort should be directed toward the goal in Minnesota society, if you live there. If you live in the United States, you have to go toward the goal in American society. And then, everyone can live in peace and harmony. 
 
-So let’s [look at] the Three Treasures in terms of the spiritual, moral, emotional, and ethical, and intellectual. Otherwise, if you ignore intellectual worth, your effort is directed toward the Three Treasures very emotionally, or, if you are really depending on the intellectual worth, you ignore the emotional aspect of human life; so [either way], it is not the proper [or] right way of faith. You have to accept faith or the Three Treasures in terms of the *whole* situation of your life: emotion (or moral, ethical), intellect, and spiritual. 
+So let’s [look at] the Three Treasures in terms of the spiritual, moral, emotional, and ethical, and intellectual. Otherwise, if you ignore intellectual worth, your effort is directed toward the Three Treasures very emotionally, or, if you are really depending on the intellectual worth, you ignore the emotional aspect of human life; so [either way], it is not the proper [or] right way of faith. You have to accept faith or the Three Treasures in terms of the *whole* situation of your life: emotion, intellect, and spiritual. 
 
 #### 19:46
 
-(*Transcriber’s Note:* In reading the following sections, the question arises: how do the categories of *philosophical worth*, *virtue or characteristics*, and *functioning* map to the “spiritual, moral, emotional, and ethical, and intellectual”? The answer is not directly stated in the talk itself. In the book *Returning to Silence* in the section “The Triple Treasure”, an interpretation is offered where *philosophical worth* corresponds to “intellect”, *virtue or characteristics* corresponds to “moral and ethical”, and *function* corresponds to “spirit”. It is unclear which category “emotion” corresponds to, but it seems implied that it is part of *philosophical worth* alongside “intellect”. However, I feel there is a strong argument to be made that *virtue and characteristics* actually corresponds to “spirit”, and *functioning* corresponds to “morals and ethics”.)
+(*Transcriber’s Note:* In reading the following sections, the question arises, how do the terms “spiritual, moral, emotional, ethical, and intellectual” map to the categories of *philosophical worth*, *virtue or characteristics*, and *functioning*? The answer is not directly stated in the talk itself. In the book *Returning to Silence* in the section “The Triple Treasure”, an interpretation is offered that *philosophical worth* corresponds to “intellectual”, *virtue or characteristics* corresponds to “ethical”, and *function* corresponds to “spiritual”; it is unclear which category “emotion” corresponds to, but it seems implied that it is part of *philosophical worth* alongside “intellect”. However, I feel there is an argument to be made that the latter two categories are reversed; that is, *virtue and characteristics* actually corresponds to “spirit”, and *functioning* corresponds to “morals and ethics”.)
 
-First, let’s see the Three Treasures in terms of *philosophical worth*. 
+First, let’s [look at] the Three Treasures in terms of *philosophical worth*. 
 
 At that time, *Buddha* refers to the truth itself; Buddha means exactly the truth itself, the whole universe itself. The essence of the universe, the essence of being itself, we call the truth. We call [this] universal life, common to all sentient beings: trees, birds, human beings, pebbles, rivers, mountains. 
 
@@ -81,7 +81,7 @@ That is the philosophical worth of the Three Treasures.
 
 #### 26:20
 
-[Second,] let’s see the Three Treasures in terms of *virtue* – that means the characteristics of the Three Treasures. 
+[Second,] let’s [look at] the Three Treasures in terms of *virtue* – that means the characteristics of the Three Treasures. 
 
 At that time, *Buddha* means actualized realization of the supreme way. Buddha means constantly existence is nothing but the total manifestation of the truth; that’s it. Temporarily we call this *existence*, if you use [a philosophical] term. But existence is not a philosophical term; this is something more than a philosophical concept, so-called “existence”. How can I say it? I don’t know. If you use [the word] *existence*, immediately existence can be seen in terms of philosophical concept. But it’s not. So very naturally, you have to see something more than the philosophical sense of existence – so we say *not-existence*. That’s why we have to negate the usual concept of existence: because in order to see something more than the philosophical concept of existence, we should forget that term, and then open ourself, and practically, let’s see what it is. So intellectually we have to negate that term, the usual concept called *existence*. [Because] if you want to know real Buddha in terms of the virtue of the Three Treasures, you have to see existence *as a whole*. 
 

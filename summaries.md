@@ -470,13 +470,13 @@ Katagiri Roshi explains *repentance* in Buddhism, which is sometimes called *for
 
 ##### [Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
 
-Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is awareness or the universe, *dharma* is the teaching of the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations; to do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary Bodhisattvas is also discussed, with reference to the *Lotus Sutra*. Also, there is some clarification of what *ritual* means in Buddhism.
+Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is awareness or the universe, *dharma* is the teaching of the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations; to do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary bodhisattvas is also discussed, and there is some clarification of what *ritual* means in Buddhism.
 
 <br/>
 
 ##### [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
 
-The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi looks at the Three Treasures in terms of *philosophical worth*, *virtue or characteristics*, and *functioning*. The teaching of “The Three Thousand Worlds in a Moment / Thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge. Also: how Gandhi dealt with events and circumstances.
+The Triple Treasure – buddha, dharma, and sangha – is the sublime goal in life. We must take refuge in the Three Treasures in terms of the whole situation of our lives: intellectual, emotional, and spiritual. To this end, Katagiri Roshi explains the Three Treasures in terms of *philosophical worth*, *virtue or characteristics*, and *functioning*. The teaching of “the three thousand worlds in a moment/thought” from the *Lotus Sutra* means that there are buddhas and bodhisattvas even in hell, so there are ample opportunities to take refuge.
 
 <br/>
 
