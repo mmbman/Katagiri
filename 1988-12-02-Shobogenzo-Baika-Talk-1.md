@@ -1,0 +1,226 @@
+---
+title: "Shōbōgenzō Baika: Plum Blossoms – Talk 1"
+---
+## December 2, 1988 Dharma Talk by Dainin Katagiri Roshi
+
+#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | [List](list#1988) | Series: [*Baika*](baika)
+
+### Transcript
+
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/plum-blossoms-1-of-6)
+
+#### 0:00
+
+***This talk is in rough draft state***
+
+**Katagiri Roshi:** Good morning. We are going to read the chapter of the *Shobogenzo* “Plum Blossoms.” Page 114. “Plum blossom” is called *Baika* in Japanese. 
+
+This chapter is connected with *Kuge*, “Flowers in the Sky,” but anyway I don’t want to talk about flowers in the sky. In this chapter, plum blossoms are not the usual plum blossoms, but a symbol of dharma-nature. [They are] talking about the dharma-nature connected with *dharma transmission*, person to person, which has been handed down from generation to generation. I think plum blossoms are exactly the symbol of truth, the symbol of buddha-nature, the symbol of dharma-nature, which we have to transmit to a person, to the next generation. And also this dharma-nature has been transmitted from century after century, without changing, without distortion. 
+
+When you become a priest, finally you have to have [the] dharma transmission ceremony, which is [a] most important point if you become [a leader] as a Buddhist monk. “Leadership” means not the usual [meaning of] *teacher*; [a leader] is a person who becomes a master of the triple world, past, present, future. This person has to know not only his or her life, but all sentient beings’ life. So [a leader] of Buddhism must be a great person who manages [the] huge company, universal cosmic company; who is aware of [...] myriad, myriad beings working to produce, to help, to produce new things year after year, day by day. This is the leadership of Buddhism. 
+
+(*Transcriber’s Note*: Katagiri Roshi says “leadership” above instead of “a leader”; I have substituted “a leader” to make the sentences grammatical, at the risk of losing some shade of meaning.)
+
+So when you become a monk, I think the monk should have great mission of managing this huge cosmic company, and taking care of all sentient beings in order to create a peaceful world, peaceful life, under all circumstances, year after year, lifetime after lifetime, century after century. This is the mission of the priest, if you become a monk. In order to be great leadership for this great cosmic company, I think you have to know the whole situation, and you have to know the spirit and heart of all sentient beings which they work in that company. 
+
+So we have this dharma transmission. 
+
+In this dharma transmission ceremony, there is a document of heritage, lineage. [There are] three kinds of things: one is lineage, the usual lineage – what is your ancestor, Buddhist family lineage; this is one. (*Transcriber’s Note*: This is the *kechimyaku* or “blood-vein lineage”.) The second is called *daiji*, which is a diagram which is an explanation of the philosophical background for the dharma transmission, why is it necessary, and then that philosophical background is drawn in a certain diagram. Is that clear? That is a *daiji* – a “great matter”, literally. And the third one is a *shisho*, which means a document of lineage. In this document of lineage, your name is added to the lineage of buddhas and ancestors who are all Buddha. So that is a *shisho*. Document of lineage is proof of the truth that you are Buddha, and you joined the buddhas and ancestors. That is *shisho*. 
+
+This paper, the *shisho*’s paper we use, has a design of plum blossoms. So we have some reason why we have this design of some plum blossoms on this paper we use when you have a dharma transmission. 
+
+Actually in Japan we have two kinds of plum blossoms, white and scarlet. They bloom in the winter, from the end of December to January. In my temple I think I had scarlet plum blossoms blooming in January; toward the end of year and in the beginning of January it blooms. And scarlet flowers bloom in January, the snow is all over; it’s completely white, and the scarlet flowers bloom. It’s very beautiful, and a very strong image there. Because white snow all over, the ground is covered with snow, and nothing there – completely white. So when you see nothing covered with snow, only white, at that time I think it’s not something [that is] nothing. Of course it is nothing, because white, but there is something, but that something is a pure sense of life itself. It’s life itself. And then in that situation scarlet flowers bloom. That is very strong, because that scarlet plum flowers blooming is just like a huge shock given to you, as a pure sense of life energy there. Because completely white is nothing, but there is new life is always going which you can’t see. 
+
+Just like here: we don’t have snow yet, but if you have snow here, and the lake completely freezes, covered with snow, [it’s] completely white. It’s not white, it’s kind of bluish, but it is white, but I don’t know how can I say. You can feel a very pure sense of energy, life energy there, always moving. And then right in the snow, right in the middle of the ground covered with snow, scarlet flowers bloom. It’s a really big shock, kind of a shock given to you. 
+
+That’s why the plum blossom is kind of a symbol of life energies. 
+
+So in Japan in the new year, we offer the flowers, three kinds of flowers: bamboo, and pine tree, and also plum tree, plum flowers. Because the plum flower is kind of pure sense of life energy, blooming in the cold weather. Very strong, but very rooted on earth, always working with the whole universe; that is the plum flower. And bamboo is patience, kind of patience; never be broken by snow. [It may be] very bent by snow, but it’s not broken. And also there is *differentiation* there; there is segmentation. So every tree is one tree, but there is a segmentation, differentiation. So differentiation is found in equality; that is bamboo. So bamboo is a symbol of the differentiation in equality, equality in differentiation. And also that’s why we have to respect the differentiation with patience; that is bamboo [as a] a symbol. And also the pine tree is green all year round, never changing. So those three kinds of trees are offered to buddha’s shrines, and in front of the gate of the house. 
+
+So actually the plum flower tree is very unusual [compared to] other flowers, because [it is] blooming in the winter. 
+
+And also Dōgen Zenji mentions in “Document of Heritage” (“*Shisho*”), which is a chapter *Shobogenzo*: He went to China to study the Buddhism when he was 24, and he visited several Zen temples of those days, and tried to see [an] authentic document of heritage, so-called *shisho* in China, so here is a story here he mentions:
+
+> When I visited Mount Tiantai and Mount [Yedang] later in Baoqing area, 1225-1227, I went to the monastery of Ping-tian on Mount Tiantai. The abbot there was a priest Yuanzi of Fa Zhang (Fuzhou), who had succeeded former abbot Zong Zhen (Zongjian) after his retirement, and of whom the monastery had prospered. Upon my first greeting him, abbot Yuanzi talked about the teaching of the buddha ancestors. When he mentioned Yangshan’s heritage from great Guishan, he said, “You haven’t seen the document of heritage here in my quarters, have you?” 
+
+I think the Yangshan’s heritage he mentioned – this abbot mentioned Yangshan’s heritage from the great Guishan. Guishan and Yangshan were in the relationship of teacher and disciple. Guishan made one of the five Zen schools, named [Ijo]-shu. 
+
+So they were talking about the stories when Yangshan had the Dharma transmission from his teacher Guishan, Dai Yi in Japanese. 
+
+His teacher asked him, “What do you think about the Dharma transmission lately?” And Yangshan said, “There is a great man who has been researching the dharma transmission seriously.” 
+
+And then the teacher said, “How about you?” 
+
+“How about you” means not other’s stories; I’m not asking [what other people think about] dharma transmission, but [what] do *you* think? I want to know how *you* think. 
+
+Then Yangshan said, “I forgot lately about the dharma transmission. I don’t know what it is. All I can do is to sleep when I feel sleepy and eat dinner when I feel hungry. So I have nothing to say about dharma transmission.” 
+
+So the teacher said, “It’s pretty hard to reach that spiritual stage.” Because his answer, “I don’t know; I [forget completely about] dharma transmission,” means he knows pretty well about dharma transmission but he didn’t *attach* to the dharma transmission, the meaning of the Dharma transmission logically. 
+
+*Dharma transmission* means person to person. You have to get something from the teacher. “Teacher” means [from] *dharma*, from the universe. Anyway, you have to get it. At that time the dharma transmission is established, dharma transmission comes into beings. But [it is] not logical explanations of dharma transmission. So that’s why he said, “I forgot completely.” 
+
+So that’s why he said next, “When I feel sleepy, I just sleep.” That means the buddhas or dharmas or God, or whatever you say, all are working, alive in his life, exactly. So nothing to say about something “special,” so-called “my body is Buddha” or “my body is dharma.” He doesn’t say [that], because this body is exactly [arriving] as dharma or buddha. So [it’s] not necessary to say something about [it]. 
+
+That is the typical characteristic of Zen Buddhism, which is a little different from Christianity. Christianity is always talking about God, you know? You have to say “God”. God must be there, always. But Zen Buddhism is [to] go beyond this. Then, he doesn’t say anything. So his body, his life is just there. 
+
+So that’s why he says so. That’s why teacher says, “It’s pretty hard to reach that spiritual stage, isn’t it?” He said that to his disciple. 
+
+So [Yangshan] said [...], “In terms of my opinion, I have nothing to say anymore.” And that’s it. 
+
+So that is the story of dharma transmission between Yangshan and Guishan. 
+
+> When he mentioned Yangshan’s heritage from great Guishan, he said, “You haven’t seen the document of heritage here in my quarters, have you?” 
+> 
+> I replied, “No, unfortunately I haven’t.” 
+> 
+> Abbot Yuanzi got up, took out the document of heritage and holding it up said, “Following the dharma admonition of Buddha ancestors, I haven’t shown this even to a close disciple or an old attendant monk.” 
+
+In ancient times this was a kind of rule or law: you shouldn’t show it to anybody. It means it is very important, *very* important in your whole life. That’s why he said, “Following the dharma admonition of Buddha ancestors, I haven’t shown this even to a close disciple or an old attendant monk.” So this abbot didn’t ask his attendant to show his document of heritage to Dōgen, he himself directly showed it to Dōgen. That’s what it says here.
+
+So “I haven’t shown this even to a close disciple or an old attendant monk...”
+
+> “But when I went to the city to see the governor and stayed there, as I do occasionally...” 
+
+I don’t know why he went to the city to see the governor. *[He laughs.]* Anyway, Buddhist monks in those days in Japan or in China more or less connected with governors, et cetera, because priest positions were very important, who were qualified to educate the people and to have lots of knowledge to see the total picture of China or Japan, or the whole universe. They were assumed to know many things, so they were qualified to teach many things. That’s why their life was connected with politics, the governors, et cetera. Maybe that’s why he went. 
+
+> “When I went to the city to see the governor and stayed there, as I do occasionally, I had a dream. In this dream a distinguished priest who seemed to be Zen Master Fachang of Mount Damei appeared holding up a branch of plum blossoms. He said, “If a true man comes who has disembarked from a boat, do not withhold these flowers.” And he gave me the plum blossoms. 
+> 
+> Still in the dream, I exclaimed, “Why shouldn’t I give you thirty blows before you leave the boat?”
+
+It means, in the dream he screamed, you know? The moment right after he got the plum blossoms from this great Zen master, so-called Daibai, Great Plum Blossom, [it] means great plum tree. He got the plum blossoms from him in the dream and he screamed, “I want to give great 30 blows to him!” “Why do I have to give them, the plum blossoms, to this strange guy?” *[He laughs.]* So before he got into the boat to return, I want to give 30 blows to him, anyway. And then he screamed in the dream and then he woke up, I think. That’s what is [said] here. 
+
+So, “Why shouldn’t I give him 30 blows before he leaves the boat?”
+
+> Then, before five days had passed, you came to meet me, Elder. 
+
+That [“you”] was Dōgen. 
+
+> Of course you have disembarked from the boat. And this document of heritage is written on a brocade that has a design of plum blossoms. 
+
+So he saw the design of a plum blossom in the paper of a document of heritage. 
+
+> Since you must be the one Damei was referring to, in accordance with the dream, I have taken this document out. Do you wish to inherit dharma from me? I wouldn’t withhold it if so. 
+
+Finally he didn’t have a Dharma transmission from him. But he was very moved because this abbot was very kind, and [...] he was ready to give a dharma transmission to Dōgen. So that’s why next he says, “I couldn’t help being moved.” He was very moved. 
+
+> Although I should have requested to receive a document of heritage from him, I only offered incense, bowed, and paid homage to him with deep respect. 
+> 
+> At that time there was present an incense attendant named Faning. He said that it was the first time he had ever seen the document of heritage. 
+
+And also he says here, 
+
+> ... On my way back to Tiantong from Mount Tai...
+
+He was at that time at Mount Tendo, and practiced there.
+
+> ... I stayed at the entry hall of Husheng Monastery on Mount Damei. At that time I had an auspicious dream that ancient Damei came up to me and gave me a branch of plum blossom in full bloom. 
+
+Dōgen also had the same dream of Daibai Hōjō Zen Master. *Daibai* means the “great plum”, *hōjō* means “the permanent dharma” – the literal meaning. 
+
+> [Daibai Hōjō Zen Master] came up to me and gave me the branch of plum blossom in full bloom. This image of the ancestor was worthy of great respect. 
+
+He saw that the master was great. 
+
+> The branch was one *shaku* tall...
+
+One *shaku* means a foot. 
+
+> ... a foot tall and one foot wide. And these plum blossoms as rare as an *udumbara* blossom. 
+
+Udumbara blossom is a flower, it is said that it blooms once in three thousand years. That is the udumbara flower that Shakyamuni Buddha lifted, raised that flower in front of the assembly. Among the assembly, Mahakasyapa was there and smiled when he saw this udumbara flower. Then Shakyamuni Buddha said, “You are one of my disciples who is qualified to have dharma transmission from me.” That is the origin of Zen Buddhism, in the history. 
+
+So anyway, 
+
+> This dream was just as real as being awake. I have never before told this story to anyone in China or Japan. 
+
+So I think both the abbot of this temple had the same dream of dying by Daibai Hōjō Zen Master. And also Dōgen had the same dream as the abbot did. And both of them were very moved by this dream. 
+
+But Dōgen said, “I have never before told this story to anyone in China or even in Japan.” Usually if you experience a mysterious dream or wonderful dream, very naturally you want to talk to somebody. And if you have inspiration from that dream and attain a certain spiritual state, very naturally you become very proud of yourself, so [you talk] about these mysterious experiences. But he didn’t say [anything] to anybody; very quietly, he kept it in his heart. This is a very gentle, kind way of life. 
+
+So that’s why Dōgen mentions “plum blossoms” in this particular chapter. 
+
+#### 37:53
+
+At this time I went back to Japan. And one day I read the newspaper and I saw the data of what kind of color Japanese people like. And then the first line of the color is white. It’s very strange. And black and red and other colors. Black is a little bit black there. You know the first line. But more than half, anyway, the first line is white. Second and the blue, etc. You know. So very strange. And actually if you go to Japan you can see the cars, but those cars are white. Very strange. 
+
+One of my friends said Japanese people don’t have a particular self-emphasis. In other words, no particular characters. If you like another color, red and greens and scarlet, that means you have great character of becoming artist and etc. But Japanese, if you like white, no particular character. *[He laughs.]* Very strange. 
+
+I like also white. I like it very much. 
+
+**Someone:** But you have a red car.
+
+**Katagiri Roshi:** Yeah, that is my son’s choice, you know? *[Laughter.]* 
+
+I tried to buy the color white, but my son liked very much red, so that’s why I followed his idea. 
+
+So it’s very strange, and white is very strange. You know, I said before. 
+
+So I think he says here, it’s very interesting. 
+
+> Even if there is a difference of views between the human and heavenly beings, and the minds of ordinary and sacred are separate from one another...
+
+In other words, in terms of your speculation, you don’t understand exactly oneness and truth, et cetera. And Buddha and ordinary people, very naturally there is discrimination between. So you don’t understand it. That’s why he says, 
+
+> Even if there is a difference of views between the human and heavenly beings and the mind of ordinary and sacred are separate from one another, snow all over is earth, earth is snow all over. Without snow all over, there is no earth in the entire world. The outside, inside of this snow all over is old Gotama’s eyeball. 
+
+*[He chuckles.]* It means, you know, our life is completely embraced by Buddha. 
+
+Buddha means which is pure sense of energy, life energies, before you poke your head into it. That’s it. That is “white snow all over”. So anything is coming up from there. That is “white”. 
+
+If you put anything on a white wall, it’s alive, you know? Red, black; it’s alive. But white is nothing. But it’s not nothing exactly; it has a certain great energy to make something alive. 
+
+So that’s why without snow all over, there is no sense of earth, ground, universe. 
+
+So who makes the universe? 
+
+It’s very interesting, that’s why this time I realized in Japan why the Japanese like white. I don’t know why, but actually they choose white cars. But in the United States, there are many colors of cars, it’s a great variety, but in Japan it’s white. It’s very strange. They don’t know that there is this kind of meaning, you know, but they choose a white car. So that’s why Japanese don’t have a particular character. Very strange life. So do I. I don’t know why. I’m not talking about whether Japanese character is good or bad, right or wrong – but anyway, it’s very strange. 
+
+They don’t know Buddhism. If don’t believe me, you should go to Japan and ask people what Buddhism is. They don’t know, they don’t care – it’s Buddhism. They don’t care about Zen Buddhism. They understand the Buddhism which is exactly taking care of a funeral service; just a business. 
+
+So that’s why lately Japanese people are trying to be Christian.
+
+*[Tape change.]* 
+
+... They don’t like Buddhism because Buddhism is just a business. Taking care of a funeral service, and memorial service... *[He laughs.]* But their life is really based on this kind of spirit of [Buddhism]. It’s very strange. 
+
+That’s why you don’t know, you don’t understand the Japanese. It’s very strange. I don’t either. I don’t understand these kind of human beings. Very strange. 
+
+That is a Plum Blossom, okay? *[He chuckles.]* Do you have some questions? 
+
+From tomorrow I would like to go [through] this chapter, little by little. 
+
+#### 45:50
+
+**Question:** You mentioned bamboo is a symbol for marking difference in unity and unity in difference. 
+
+**Katagiri Roshi:** Mm-hmm. 
+
+**Same person:** How does that come out of that symbol? What character of bamboo is it? 
+
+**Katagiri Roshi:** Bamboo is one...
+
+**Same person:** Oh, one stem? 
+
+**Katagiri Roshi:** Yeah one stem, one tree, but lots of segments there. 
+
+**Same person:** I see, yeah.
+
+**Katagiri Roshi:** And also, in order to take care of [it], you should accept this total oneness with discrimination, with the different world. Segments mean different worlds; different peoples, different creatures. Within the one world, you should receive it and take care of them. In order to do this, you must practice patience. That’s why bamboo is never broken by snow; always bending, but coming back. That’s [the symbol]. 
+
+#### 47:08
+
+**Question:** Hojo-san? I’m not sure I understand: Dōgen did *not* take transmission from the teacher? 
+
+**Katagiri Roshi:** From that Abbot of this temple. 
+
+**Same person:** *Why?* Why did he not take it then? 
+
+**Katagiri Roshi:** I don’t know why; because his practice was not exactly mature, et cetera. Anyway, [there’s] some reason there. So finally, he had dharma transmission from [Rujing].
+
+#### end of recording
+
+---
+
+#### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
+
+#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
