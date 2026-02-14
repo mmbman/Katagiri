@@ -9,14 +9,11 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/receiving-the-precepts" target="_blank">Listen to this talk</a>
-</p>
-
-**This transcript is in rough draft stage.**
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/receiving-the-precepts)
 
 #### 0:00
+
+**This transcript is in draft stage.**
 
 *[Opening chant in Japanese]*
 
@@ -27,21 +24,23 @@ title: "Lay Ordination Lecture 5 of 7: Receiving the Precepts"
 
 #### 2:40
 
-**Katagiri Roshi:** In the commentary [on the] Zen Precepts, it says, 
+**Katagiri Roshi:** In the commentary [on the] Zen Precepts, it says:
 
-> *Precepts* refers to restraint and extermination. Shakyamuni Buddha, who started sitting in zazen under a bodhi tree, ended in attainment of enlightenment and establishment of the precepts; this is named restraint. It means to put on a brake, to stop in the realm of the truth that I and all beings on the great earth both simultaneously attain enlightenment together. That is why it is called Buddha’s precepts.
+> *Precepts* refers to restraint and extermination. Shakyamuni Buddha, who started sitting in zazen under a bodhi tree, ended in attainment of enlightenment and establishment of the Precepts; this is named restraint. It means to put on a brake, to stop in the realm of the truth that I and all beings on the great earth both simultaneously attain enlightenment together. That is why it is called Buddha’s Precepts.
 >
 > (This is from *The Essence of Zen Precepts* (*Zenkaisho*), compiled by the eighteenth-century monk and scholar Banjin Dotan. This appears to be Katagiri Roshi’s own translation, as discussed later in this talk.)
 
-From this, [the Precepts] in Buddhism must be understood carefully, because it has very profound meaning. (*Transcriber’s Note:* Katagiri Roshi sometimes here refers to *precept* in the singular, but it seems clear that he is referring to all of the Precepts.)
+From this, [the Precepts] in Buddhism must be understood carefully, because it has very profound meaning. (*Transcriber’s Note:* Katagiri Roshi sometimes refers to “precept” in the singular here, but it seems clear that he is referring to the Precepts as a whole.)
 
-The other day, maybe I mentioned that the Precepts are Buddha Nature. Generally speaking, the Precepts are Buddha Nature, or Buddhahood. Or if you use plain words, the Precepts are the Truth, or suchness, or the universe. And *Jukai* [means] Receiving the Precepts. So receiving the Precepts is receiving Buddhahood, receiving the truth, receiving the universe. You bow, you prostrate [yourself] on the floor, and raise your hands. That is receiving the universe in your hands. Without any discussion, receive: this is [to] touch your forehead to the floor and raise your hands.
+The other day, maybe I mentioned that the Precepts are buddha- nature. Generally speaking, the Precepts are buddha-nature, or buddhahood. Or if you use plain words, the Precepts are the Truth, or suchness, or the universe. And *Jukai* [means] Receiving the Precepts. So receiving the Precepts is receiving buddhahood, receiving the truth, receiving the universe. You bow, you prostrate [yourself] on the floor, and raise your hands. That is receiving the universe in your hands. Without any discussion, receive: this is [to] touch your forehead to the floor and raise your hands.
 
-So receiving the Precepts is to receive the universe, the Truth, or as-it-is-ness of existence, or Buddha Nature. And *to receive* means to awaken. So to receive the precepts is to awaken the universe, awaken the truth, awaken the suchness or as-it-is-ness of existence. 
+So receiving the Precepts is to receive the universe, the Truth, or as-it-is-ness of existence, or buddha-nature. And *to receive* means to awaken. So to receive the Precepts is to awaken the universe, awaken the truth, awaken the suchness or as-it-is-ness of existence. 
 
-So *to awaken* means you have to receive something with your body and mind and digest [it]. In other words, ingest the Precepts and digest with your body and mind; this is called awakening. And then you understand human life. And if you understand your life, you understand others’ lives, because you understand your life in the universal perspective, so your life is exactly others’ lives. So you can understand others. And then, if you understand [humans], it means to understand the world. So if you want to understand the world, you have to understand humans, individual beings. You have to understand through and through. And then, that is simultaneously connected directly [with] the world. That’s why to receive is to awaken. 
+*To awaken* means you have to receive something with your body and mind and digest [it]. In other words, ingest the Precepts and digest [them] with your body and mind; this is called awakening. And then you understand human life. And if you understand your life, you understand others’ lives, because you understand your life in the universal perspective, so your life is exactly others’ lives. So you can understand others, and then if you understand [humans], it means to understand the world. 
 
-And also, if you understand [humans] and [their] world, then you can really appreciate your existence and others’ existence, the existence of the world. Then, you really want to express it, manifest it, or transmit it to somebody. That’s why Bodhidharma says, “To awaken is to transmit.”
+So if you want to understand the world, you have to understand humans, individual beings. You have to understand through and through. And then, that is simultaneously connected directly [with] the world. That’s why to receive is to awaken. 
+
+And also, if you understand [humans] and [their] world, then you can really appreciate your existence and others’ existence, the existence of the world. Then you really want to express it, manifest it, or transmit it to somebody. That’s why Bodhidharma says, “To awaken is to transmit.”
 
 So receiving the precepts is not just to have a moral code, [as you] usually think. No, it’s not.
 
