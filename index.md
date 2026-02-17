@@ -13,20 +13,21 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 (As with the whole site, this section is under construction.)
 
+- [Introduction to Dōgen Studies](dogen-intro)
 - [*Bendōwa*: A Talk on Pursuing the Way](bendowa)
 - [*Fukanzazengi*: Universal Recommendation for Zazen](fukanzazengi)
 - [Annotated *Fukanzazengi*](annotated-fukanzazengi)
 - [*Gakudō-yōjinshū*: Principles of Practice](principles-of-practice)
 - [*Genjokoan*](genjokoan)
 - [*Kokyo*: The Ancient Mirror](kokyo)
-- [Mindfulness](mindfulness) – from *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”
+- [Mindfulness](mindfulness): from *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Factors of Bodhi (Awareness)”
+- [Other Dōgen Fascicles](dogen-other)
 
 **Other Topics:**
 
 - [*Awakening of Faith*](awakening-of-faith)
 - [*Blue Cliff Record*](blue-cliff-record)
 - [*Diamond Sutra*](diamond-sutra)
-- [Fundamentals of Zen](fundamentals)
 - [Karma](karma)
 - [*Platform Sutra*](platform-sutra)
 - [Receiving the Precepts](precepts)
