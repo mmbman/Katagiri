@@ -596,31 +596,31 @@ Katagiri Roshi introduces a series of talks on the question-and-answer section o
 
 <br/>
 
-##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
+##### [*Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
+##### [*Bendōwa*: Dōgen's Questions & Answers – Talk 2](1987-03-12-Bendowa-Talk-2)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
+##### [*Bendōwa*: Dōgen's Questions & Answers – Talk 3](1987-03-13-Bendowa-Talk-3)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
+##### [*Bendōwa*: Dōgen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
+##### [*Bendōwa*: Dōgen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
 
 Summary not yet available.
 

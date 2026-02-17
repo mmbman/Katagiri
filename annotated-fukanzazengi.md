@@ -34,8 +34,8 @@ This document is a work in progress. I will update this page as I transcribe tal
 > SZ: How could it be contingent on practice and realization? 
 
 - “Practice and realization” is a translation of *shushō* (修證). This important term appears several times in *Fukanzazengi*; here it is also translated as “practice-realization” and “practicing and realizing.” Elsewhere it is sometimes translated as “practice-enlightenment.”
-- The meaning of *shō* (證), often translated as “realization,” should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō*, and its distinction from *kaku* and *satori*, which are sometimes translated as “awakening” and “enlightenment”: see [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). This is also discussed in [“*Diamond Sutra*, Talk 9: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness), in  [“*Genjokoan*: Talk 2 (Consciousness)” at 1:08:08](1987-06-06-Shobogenzo-Genjokoan-Talk-2#10808), and probably in other talks yet to be transcribed.
-- The oneness of practice and realization is often presented as a key point of Dōgen’s teaching, if not his key point, period. A well-known statement from *Bendōwa* is, “To think practice and realization are not one is a heretical view. In the buddha-dharma, practice and realization are identical.” Also, Katagiri Roshi states that “... this is not [just] Dōgen Zenji’s idea, this is the essential point of Buddha’s teaching.” About this, see [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4). 
+- The meaning of *shō* (證), often translated as “realization,” should not be taken for granted. Katagiri Roshi gave an entire talk on the meaning of *shō*, and its distinction from *kaku* and *satori*, which are sometimes translated as “awakening” and “enlightenment”: see [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). This is also discussed in [“*Diamond Sutra*, Talk 9: Emptiness”](1979-08-01-Diamond-Sutra-Emptiness), in  [“*Genjokoan*: Talk 2 (Consciousness)” at 1:08:08](1987-06-06-Shobogenzo-Genjokoan-Talk-2#10808), and probably in other talks yet to be transcribed.
+- The oneness of practice and realization is often presented as a key point of Dōgen’s teaching, if not his key point, period. A well-known statement from *Bendōwa* is, “To think practice and realization are not one is a heretical view. In the buddha-dharma, practice and realization are identical.” Also, Katagiri Roshi states that “... this is not [just] Dōgen Zenji’s idea, this is the essential point of Buddha’s teaching.” About this, see [“*Bendōwa*: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4). 
 - See also the commentary on these lines in *Each Moment Is the Universe*, Chapter 6, “The Root of the Buddha Way.” This chapter is derived from more than one talk, which may or may not be available in the archive.
 
 > 宗乘自在、何費功夫。  
@@ -76,7 +76,7 @@ This document is a work in progress. I will update this page as I transcribe tal
 >
 > KR: Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.
 
-- This is extensively discussed in [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
+- This is extensively discussed in [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
 > 矧彼祇園之爲生知兮、端坐六年之蹤跡可見。少林之傳心印兮、面壁九歳之聲名尚聞。古聖既然、今人盍辦。  
 >  
@@ -192,7 +192,7 @@ This document is a work in progress. I will update this page as I transcribe tal
 >  
 > SZ: The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. 
 
-- The “dharma gate of repose and joy” or “dharma gate of repose and bliss” is discussed in [“Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 3”](1987-03-13-Bendowa-Talk-3) at [55:17](1987-03-13-Bendowa-Talk-3#5517) and [1:11:57](1987-03-13-Bendowa-Talk-3#11157).
+- The “dharma gate of repose and joy” or “dharma gate of repose and bliss” is discussed in [“Bendōwa: Dōgen's Questions & Answers – Talk 3”](1987-03-13-Bendowa-Talk-3) at [55:17](1987-03-13-Bendowa-Talk-3#5517) and [1:11:57](1987-03-13-Bendowa-Talk-3#11157).
 
 > 公案現成、籮籠未到。若得此意、如龍得水、似虎靠山。  
 >  
@@ -213,7 +213,7 @@ This document is a work in progress. I will update this page as I transcribe tal
 >  
 > SZ: When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. 
 
-- A practical example of moving calmly and deliberately appears in [“*Shōbōgenzō Bendōwa*: Dōgen's Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2) at [55:32](1987-03-12-Bendowa-Talk-2#5532)
+- A practical example of moving calmly and deliberately appears in [“*Bendōwa*: Dōgen's Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2) at [55:32](1987-03-12-Bendowa-Talk-2#5532)
 
 > 嘗觀、 超凡越聖、坐脱立亡、一任此力矣。  
 >  
@@ -277,4 +277,4 @@ This document is a work in progress. I will update this page as I transcribe tal
 >  
 > SZ: Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely.
 
-- “If you follow this practice, your treasure chest will open of itself and you can use it at will” is discussed in Q&A in [“Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4) at [1:16:15](1987-03-14-Bendowa-Talk-4#11615).
+- “If you follow this practice, your treasure chest will open of itself and you can use it at will” is discussed in Q&A in [“Bendōwa: Dōgen's Questions & Answers – Talk 4”](1987-03-14-Bendowa-Talk-4) at [1:16:15](1987-03-14-Bendowa-Talk-4#11615).

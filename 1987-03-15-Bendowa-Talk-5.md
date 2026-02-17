@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Bendōwa: Dōgen's Questions & Answers – Talk 5"
+title: "Bendōwa: Dōgen's Questions & Answers – Talk 5"
 ---
 ## March 15, 1987 Dharma Talk by Dainin Katagiri Roshi
 
