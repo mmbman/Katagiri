@@ -2,9 +2,9 @@
 title: "Bendōwa: A Talk on Pursuing the Way"
 ---
 
-Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A Talk on Pursuing the Way”. This series is from 1987, and focuses on the first part of the “Questions and Answers” section, although it necessarily includes some commentary on the whole work.
+## 1987 Series
 
-This series of transcripts is in draft stage. 
+Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A Talk on Pursuing the Way”. This series is from 1987, and focuses on the first part of the “Questions and Answers” section, although it necessarily includes some commentary on the whole work.
 
 - [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 - [*Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
