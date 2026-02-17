@@ -5,8 +5,6 @@ description: Zen Dharma Talks by Dainin Katagiri Roshi
 
 This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Sōtō Zen Buddhism. These transcripts are a continuing work in progress: talks are added regularly, and corrections and improvements are made on an ongoing basis. Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
 
-### Basics 
-
 - [Introduction](introduction)
 - [Katagiri Roshi’s Zazen Instruction](zazen-instruction)
 - [Talk List](list)
