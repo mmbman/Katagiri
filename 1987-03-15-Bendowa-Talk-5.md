@@ -33,7 +33,7 @@ Buddhist terminology uses very often *nyoze* or *jissō*. *Nyoze* means “thusn
 
 In *nyoze*, *nyo* is “like” or “thus” – “look like.” But in Zen Buddhism, *nyo* means “look like” but on the other hand *nyo* is direct manifestation of something ultimate. That is called *nyo*. 
 
-So Dōgen Zenji says in *Genjokoan*, “birds fly like a bird, fish swim like fish.” That means exactly fish become one with the water, and birds’ activities are completely identical with the function of the air and sky, all sentient beings. At that time, we can say birds are not birds, birds are sky. So that is called, Dōgen Zenji says, “Birds fly like a bird.” Because it’s pretty hard to say it is *bird*, because it is sky, it is air – without this situation, a bird cannot fly in the sky. So *bird can fly* means to be supported by air and sky and clouds and all sentient beings, and then the life of birds is supported. That is called *to be able to fly*, for a bird. So that we can live is [because our life is supported] by many beings. At that time, Katagiri lives like Katagiri. Not *exactly* Katagiri – at that time, Katagiri becomes exactly *jijiyu samadhi*. [Or] *buddha*. 
+So Dōgen Zenji says in *Genjokoan*, “birds fly like a bird, fish swim like fish.” That means exactly fish become one with the water, and birds’ activities are completely identical with the function of the air and sky, all sentient beings. At that time, we can say birds are not birds, birds are sky. So that is called, Dōgen Zenji says, “Birds fly like a bird.” Because it’s pretty hard to say it is *bird*, because it is sky, it is air – without this situation, a bird cannot fly in the sky. So *bird can fly* means to be supported by air and sky and clouds and all sentient beings, and then the life of birds is supported. That is called *to be able to fly*, for a bird. So that we can live is [because our life is supported] by many beings. At that time, Katagiri lives like Katagiri. Not *exactly* Katagiri – at that time, Katagiri becomes exactly *jijuyu samadhi*. [Or] *buddha*. 
 
 So that is, [Dōgen Zenji] said, *nyo*. The Chinese character is called *nyo*, of *nyo ze*. *Nyo* is “thus” or “look like,” but it means pointing out exactly *consummation of being*. That is *nyo*. 
 
@@ -81,9 +81,9 @@ So we say “dirty clothes; I don’t want them”; we want to be free from it. 
 
 #### 24:10
 
-And then, in *Bendōwa*, Dōgen Zenji mentions that zazen is *jijiyu samadhi*. *Jijiyu samadhi* is exactly the same meaning as *shō*: verification, or actualizing the ultimate nature of existence. That is *jijiyu samadhi*. 
+And then, in *Bendōwa*, Dōgen Zenji mentions that zazen is *jijuyu samadhi*. *Jijuyu samadhi* is exactly the same meaning as *shō*: verification, or actualizing the ultimate nature of existence. That is *jijuyu samadhi*. 
 
-That is, in terms of practice, *shō* is explained as *jijiyu samadhi*: self becomes self, and is self-ing, and settles in the self, exactly. That is a unique way to manifest the ultimate nature of existence called *shō*. Very deep, deep experience of enlightenment. Very deep, profound – *before* you put the name on it. This is called *shō*. 
+That is, in terms of practice, *shō* is explained as *jijuyu samadhi*: self becomes self, and is self-ing, and settles in the self, exactly. That is a unique way to manifest the ultimate nature of existence called *shō*. Very deep, deep experience of enlightenment. Very deep, profound – *before* you put the name on it. This is called *shō*. 
 
 That is perfect freedom. Perfect freedom. Perfect freedom which is free from the concept of freedom. 
 

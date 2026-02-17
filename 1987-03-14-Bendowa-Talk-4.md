@@ -105,11 +105,11 @@ So if you really make every possible effort using your whole body and mind, spin
 
 So when you practice, all you can do is still practice must be practice. Because in the truth, all stillness has to do is to be still. Perfectly still. And then, that stillness itself creates movement. Noise. But if we say [something] about that, very naturally we fall into the dualistic realms – so, stillness and activity, noise. But in the truth, how can the stillness create movement? Because there is nothing. So all the stillness has to do is *to be still*. That’s it. And then, stillness creates movement. 
 
-That’s why yesterday I [said] “zazen is *jijiyu samadhi*” means self becomes self, and is selfing. You become you, you are you-ing, and you settle yourself in the self, exactly. And then you are not you – you are Buddha. That means creative life [is] coming up. Something which you have never thought before. 
+That’s why yesterday I [said] “zazen is *jijuyu samadhi*” means self becomes self, and is selfing. You become you, you are you-ing, and you settle yourself in the self, exactly. And then you are not you – you are Buddha. That means creative life [is] coming up. Something which you have never thought before. 
 
-So that is [why] Dōgen Zenji says zazen is *jijiyu samadhi*. In the beginning of *Bendowa*, he [speaks] about zazen very clearly:
+So that is [why] Dōgen Zenji says zazen is *jijuyu samadhi*. In the beginning of *Bendowa*, he [speaks] about zazen very clearly:
 
-> That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi*, which is its touchstone.
+> That it is only transmitted without deviation from Buddha to Buddha is due to the *jijuyu samadhi*, which is its touchstone.
 
 This is zazen, okay? 
 

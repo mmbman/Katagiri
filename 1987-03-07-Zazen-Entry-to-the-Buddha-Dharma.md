@@ -123,7 +123,7 @@ This is called *right*, [this is] the meaning of the *right*. And also that is a
 
 So that is called *dropping off body and mind*. When you do zazen, immediately you say “Ah!” That’s it. But you don’t say “ah,” because zazen has no particular object, so-called *bathtub*, you know? So that’s why you don’t know. You are always using your mind and body, and that’s it. That is subjectivity and also object. And then the whole world comes into you. 
 
-And then, when you say “Wow!” this is called *samadhi*, we say. *Concentration*. Total concentration, total devotion. And also this is called *jijiyu samadhi*, “self-joyousness.” *Self-joyous samadhi*, we call it. 
+And then, when you say “Wow!” this is called *samadhi*, we say. *Concentration*. Total concentration, total devotion. And also this is called *jijuyu samadhi*, “self-joyousness.” *Self-joyous samadhi*, we call it. 
 
 In other words, this is called, “Ah!” That’s it. But in zazen, you cannot say “ah,” because everyone [is] quiet. *[There are some chuckles.]* So, you have to enjoy the self-joyous samadhi concentration right in the middle of zazen.
 

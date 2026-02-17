@@ -192,7 +192,7 @@ So, five [consciousnesses]: *Sparśa*, contact. *Vedanā*, feeling. *Saṃjñā*
 
 Those five are always working, whatever you do. Particularly *perception* remains, even after reaching the goal. That is interesting. This is just like karma. 
 
-According to Buddhist tradition, you have to continue to practice in order to reach what is called *formless samadhi*. That is completely no form, nothing. That is what is called *jijiyu samadhi* in Japanese, or sometimes that is called “to disport oneself in samadhi.” It’s really [like] you can be one with judo and kendo; your body is very flexible, round, just like a bow. You can experience that; this is the final goal which is called formless samadhi. 
+According to Buddhist tradition, you have to continue to practice in order to reach what is called *formless samadhi*. That is completely no form, nothing. That is what is called *jijuyu samadhi* in Japanese, or sometimes that is called “to disport oneself in samadhi.” It’s really [like] you can be one with judo and kendo; your body is very flexible, round, just like a bow. You can experience that; this is the final goal which is called formless samadhi. 
 
 And then at that time, you can go beyond perception. But, still there is something there: that is the human body and mind, which exist right now, right here. This is the final thing left. 
 

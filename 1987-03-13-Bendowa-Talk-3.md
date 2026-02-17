@@ -102,21 +102,21 @@ It is not a matter of discussion intellectually, but [rather] it is matter of pr
 
 So very naturally, Dōgen Zenji [states] in the beginning of *Bendōwa* [...] the key point of the zazen we are practicing. In the first paragraph, Dōgen Zenji says:
 
-> Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijiyu samadhi*, which is its touchstone.
+> Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijuyu samadhi*, which is its touchstone.
 
-So the zazen we do is based on *jijiyu samadhi*. I think [there is an] explanation here [in the note]:
+So the zazen we do is based on *jijuyu samadhi*. I think [there is an] explanation here [in the note]:
 
-> *Jijiyu* means that the awakened one “receives” (*ju*) and “uses” (*yu*) the joy of awakening “in himself” (*ji*). *Jijiyu samadhi* (自受用三昧) thus refers to the samadhi in which this is realized and sustained. It is said Shakyamuni was immersed in the joy of enlightenment following his attainment. 
+> *Jijuyu* means that the awakened one “receives” (*ju*) and “uses” (*yu*) the joy of awakening “in himself” (*ji*). *Jijuyu samadhi* (自受用三昧) thus refers to the samadhi in which this is realized and sustained. It is said Shakyamuni was immersed in the joy of enlightenment following his attainment. 
 
-[In] *jijiyu samadhi*, literally *ji* is the self. *Ju* is “to receive,” and *yu* of *jijiyu* is “to use.” And *samadhi* is *samadhi*. 
+[In] *jijuyu samadhi*, literally *ji* is the self. *Ju* is “to receive,” and *yu* of *jijuyu* is “to use.” And *samadhi* is *samadhi*. 
 
-So from this point, I think the *jijiyu samadhi* means ... the self receives the self, and gives life to it, and ... settles in the self. That is *samadhi* – *samadhi* is “settles the self in the self.” *Samadhi* is to dwell in dharma, to dwell in the truth, to dwell in the universe – this is *samadhi*. We say “concentration,” but *samadhi* is to dwell in the dharma, dwell in the truth, dwell in the true state of existence. So *jijiyu samadhi* is “the self becomes the self, gives life to it, and settles in the self.” That is *jijiyu samadhi*. 
+So from this point, I think the *jijuyu samadhi* means ... the self receives the self, and gives life to it, and ... settles in the self. That is *samadhi* – *samadhi* is “settles the self in the self.” *Samadhi* is to dwell in dharma, to dwell in the truth, to dwell in the universe – this is *samadhi*. We say “concentration,” but *samadhi* is to dwell in the dharma, dwell in the truth, dwell in the true state of existence. So *jijuyu samadhi* is “the self becomes the self, gives life to it, and settles in the self.” That is *jijuyu samadhi*. 
 
 One of the most famous Zen teachers in Japan, Sawaki Roshi, [uses] a very simple [phrase]: he says zazen is that “the self becomes [the] self [and] is self-ing.” [...] “Is selfing”means giving life to the self. That self is not something dead; it’s always alive. That is called “to use.” So the self becomes the self and is selfing, and settles in the self. That is zazen, he [says].
 
 So when you do zazen, you become you, and you are you-ing, and settle in you, exactly. That *you* is not the idea of the you who feels or who experiences something – [it is] before your feeling, before your experience. Okay? Which means exactly oneness between the zazen and you. And then after oneness, you can say “I feel” or “I experience.” But before this [is] the very first moment of jumping into zazen. And then you say, “Ah, zazen” – that is already feeling or experience, but that is not the *real* self. That self is very shaky, because it’s very easily distracted by feeling and experience. 
 
-So that is the *jijiyu samadhi*. 
+So that is the *jijuyu samadhi*. 
 
 Obaku Zen master asked Nansen, “If *dhyana* and wisdom are equated, you can see into the buddha-nature. How is it? Can you tell me about this teaching?” And then Nansen said, “I have nothing to depend on for twenty-four hours.” It means *dhyana* and wisdom – well, including *sila*, okay? – if *dhyana* and wisdom are equated, [that is,] used equally by the practicer, then we can see into the buddha-nature. How about this principle, this teaching? And then [Nansen] says, “I have nothing to depend on for twenty-four hours.” 
 
@@ -124,7 +124,7 @@ But this is still a little bit the dualistic world, because there is a person wh
 
 *[Tape change.]*
 
-... to see the buddha-nature is to maintain equally *dhyana* and wisdom. So to see Buddha, to see into the buddha-nature [...] means that your life must be alive as a whole, vividly. According to Dōgen’s term it is called *jijiyu samadhi*. *Jijiyu samadhi* is that the self becomes the self and gives life to it and settles in the self. That means the self must be really alive, vividly, in zazen – before any separation between. 
+... to see the buddha-nature is to maintain equally *dhyana* and wisdom. So to see Buddha, to see into the buddha-nature [...] means that your life must be alive as a whole, vividly. According to Dōgen’s term it is called *jijuyu samadhi*. *Jijuyu samadhi* is that the self becomes the self and gives life to it and settles in the self. That means the self must be really alive, vividly, in zazen – before any separation between. 
 
 That means zazen is exactly something like a leaping fish, always working. So self is also working together vividly. So to see into buddha-nature means you have to deal with your zazen, you have to deal with your mind and body, which are both working, alive, vividly. 
 
@@ -138,15 +138,15 @@ So the original nature of the constant change is completely transparent. So, not
 
 So how do we take care of consciousness, which seems to be easily distracted by events which are changing constantly? A koan mentions that is just like a baby’s mind, [or] like throwing a ball into the stream of a swift river. So as soon as possible you have to deal with zazen, and breathing, and the mind. And then, you have to go. But when you see the mind and the breathing which are distracted by constant change, immediately you try to judge or be critical toward it, or stay with it, so very naturally, mind always stays in the stream. But actually you cannot. So that’s why finally we are very confused.
 
-So *jijiyu samadhi* is exactly that you have to live vividly from moment to moment. Zazen is very simple circumstances, and you can really see closely and deeply what happens in the mind and your body. So all you can do is deal with them as simply as you can, because circumstances, your body, your mind, are present under very good situations. So that’s why zazen is the most important thing. 
+So *jijuyu samadhi* is exactly that you have to live vividly from moment to moment. Zazen is very simple circumstances, and you can really see closely and deeply what happens in the mind and your body. So all you can do is deal with them as simply as you can, because circumstances, your body, your mind, are present under very good situations. So that’s why zazen is the most important thing. 
 
 So zazen is not the same as the *dhyana* of the three learnings, et cetera, because you have to deal with your life as a whole. And if you do zazen, you can see the integrated spirit of the Buddha’s teaching, or integrated spirit of your life, interconnected, interpenetrated with all the universe. This is the reality you live in.
 
 So, very naturally you need *wisdom* in zazen, because wisdom is... not knowledge... wisdom is *resolution*, or *steadfast determination*, coming from the depth of your heart, [saying,] “I will do.” Okay? This is wisdom. Wisdom cuts off entanglement around some event [you are faced with]. Lots of entanglements there, and then wisdom cuts off those entanglements, and then immediately: “I will do.” That is wisdom. But understanding, knowledge, is always analyzing, trying to understand what the entanglements are, and how can we cut off that stuff, using techniques. That is knowledge. But wisdom is *exactly* cut off, right now: “Yes, sir. I will do it.” That is wisdom. Okay? So very naturally, in zazen you need wisdom.
 
-And also we need the precepts or disciplines. When you do zazen, very naturally there are lots of procedures you have to go through: postures, breathing, and also your mind, and circumstances, and meals, sleep... There are lots of complicated procedures you have to go through. And then, nevertheless, your body, your mind, shouldn’t be distracted. How? You can maintain your mind and maintain your breath, in peace and harmony, by your wisdom, and *dhyana*, and *sila*, beyond your speculation. This is called *jijiyu samadhi*. Dōgen Zenji says zazen *is* jijiyu samadhi. 
+And also we need the precepts or disciplines. When you do zazen, very naturally there are lots of procedures you have to go through: postures, breathing, and also your mind, and circumstances, and meals, sleep... There are lots of complicated procedures you have to go through. And then, nevertheless, your body, your mind, shouldn’t be distracted. How? You can maintain your mind and maintain your breath, in peace and harmony, by your wisdom, and *dhyana*, and *sila*, beyond your speculation. This is called *jijuyu samadhi*. Dōgen Zenji says zazen *is* jijuyu samadhi. 
 
-And then we chant *Jijiyu Zanmai* in the noon service. That is the contents or quality of *jijiyu samadhi*: what happens in *jijiyu samadhi*’s world. So Dōgen Zenji talks about *jijiyu samadhi*, what’s going on in the world of *jijiyu samadhi*. It’s really amazing. You don’t believe it, but it is just like an orchestra. If you [recite] that *Jijiyu Zanmai* at the noon service, I think you’re always creating a big orchestra, music. Many beings are there creating a wonderful musical world. So that is contents or quality of *jijiyu samadhi*, if you do zazen. That’s why if you do zazen even for a moment with sincere heart, with wholeheartedness, there are [rewards] exactly, there is progress there.
+And then we chant *Jijuyu Zanmai* in the noon service. That is the contents or quality of *jijuyu samadhi*: what happens in *jijuyu samadhi*’s world. So Dōgen Zenji talks about *jijuyu samadhi*, what’s going on in the world of *jijuyu samadhi*. It’s really amazing. You don’t believe it, but it is just like an orchestra. If you [recite] that *Jijuyu Zanmai* at the noon service, I think you’re always creating a big orchestra, music. Many beings are there creating a wonderful musical world. So that is contents or quality of *jijuyu samadhi*, if you do zazen. That’s why if you do zazen even for a moment with sincere heart, with wholeheartedness, there are [rewards] exactly, there is progress there.
 
 #### 55:17
 
@@ -156,7 +156,7 @@ So number six, almost the same question:
 >
 > Answer 6: It wouldn’t be possible to investigate thoroughly the way in which Buddhas one after another from long in the past have practiced and entered realization. If you seek a reason for their having done this, you should know it is simply because it is the way employed by Buddhists. Reasons shouldn’t be sought elsewhere. Yet patriarchs have extolled it, saying that zazen in itself is the dharma gate of repose and joy. In truth, is this not because among the four attitudes, sitting is joyful bliss? Indeed, this is not the way of practice of one or two buddhas, it is the way of all buddhas and all patriarchs. 
 
-Anyway, from generation to generation, all buddhas, all ancestors, have practiced this zazen, *jijiyu zanmai samadhi*, and transmitted it from generation to generation. There is no space to poke our head [into] why they did it, because it is a fact, it is reality. Because zazen is to experience straightforwardly repose and bliss, right in the middle of zazen. “Repose and bliss” means you have to become you as you are exactly, and you are you-ing. Okay? *You are you-ing* is that there is nothing to deal with, or you are not carried away by anything, or you don’t carry away anything. So *you are you-ing* means you *do*, exactly. You become what you are, and you are you-ing, and that means you settle yourself in the self, including the whole universe. At that time, you can really settle in the self. That is called repose and bliss. 
+Anyway, from generation to generation, all buddhas, all ancestors, have practiced this zazen, *jijuyu zanmai samadhi*, and transmitted it from generation to generation. There is no space to poke our head [into] why they did it, because it is a fact, it is reality. Because zazen is to experience straightforwardly repose and bliss, right in the middle of zazen. “Repose and bliss” means you have to become you as you are exactly, and you are you-ing. Okay? *You are you-ing* is that there is nothing to deal with, or you are not carried away by anything, or you don’t carry away anything. So *you are you-ing* means you *do*, exactly. You become what you are, and you are you-ing, and that means you settle yourself in the self, including the whole universe. At that time, you can really settle in the self. That is called repose and bliss. 
 
 That is completely beyond, before you think, before you feel, before you experience. But we are always hanging around the experience or feeling. Always we [say], “How do you feel? Do you like it?” or “How are you feeling? You don’t like it?” We are always talking about what kind of experience you [had]. That is important, but the most important point is that you have to see deeply into that buddha-nature. Buddha-nature means before you feel or you experience, put yourself in buddha-nature’s world. And then, many worlds are coming up. That is nothing but activity in dynamism, from moment to moment. Just like throwing away a ball into the stream of swift waters, constantly. What is that? It’s not an idea, it’s not a matter of discussion. You have to do it. It’s really total activities. It’s peace, which is peace and also dynamism. 
 
@@ -172,7 +172,7 @@ Do you have questions about this?
 
 **Katagiri Roshi:** *Hai*.
 
-**Questioner:** Why is *jijiyu samadhi* referred to as “self-enjoyment samadhi”? 
+**Questioner:** Why is *jijuyu samadhi* referred to as “self-enjoyment samadhi”? 
 
 **Katagiri Roshi:** I don’t know how to say it, it’s pretty difficult to translate it, but *joy* itself, joyfulness means exactly in whatever situation you may be, whatever time you may be, in whatever events may occur, anyway you must [be] host of yourself, you must you must be master of yourself. 
 
@@ -202,23 +202,23 @@ But if you think “it’s overwhelming,” immediately you are bogged down with
 
 #### 1:09:03
 
-**Question:** Is *jijiyu samadhi* a different state than, for example, *shikantaza*?
+**Question:** Is *jijuyu samadhi* a different state than, for example, *shikantaza*?
 
 **Katagiri Roshi:** Same.
 
 **Questioner:** Same?
 
-**Katagiri Roshi:** Same. But *jijiyu samadhi* is [the] *contents* of shikantaza. If you do shikantaza, very naturally shikantaza is presented as presented as *jijiyu samadhi*. That is the quality of shikantaza. 
+**Katagiri Roshi:** Same. But *jijuyu samadhi* is [the] *contents* of shikantaza. If you do shikantaza, very naturally shikantaza is presented as presented as *jijuyu samadhi*. That is the quality of shikantaza. 
 
-**Questioner:** And then *jijiyu samadhi*, is it different than Ocean Seal Samadhi? 
+**Questioner:** And then *jijuyu samadhi*, is it different than Ocean Seal Samadhi? 
 
 **Katagiri Roshi:** That is a different term. Ocean Seal Samadhi is a little bit more philosophical: according to the *Avatamsaka Sutra*, explaining how the world is existent, and how the world is structured, reflecting and interpenetrated, interconnected. That is the Ocean Seal Samadhi. So everything becomes already in the Ocean Seal Samadhi, we can say. Ocean Seal Samadhi means all sentient beings – trees, birds, winter, clouds and skies – all are interpenetrated, under the illumination of Vairochana Buddha. 
 
 So from this point, already the trees are what they ought to be, and the winter is what it ought to be. So, there is no space to discuss “I like” or “I don’t like.” Winter is winter. And the trees are trees. Snow is snow. Like this. That [is the meaning of] Ocean Seal Samadhi.
 
-**Questioner:** So you can experience that and be experiencing *jijiyu samadhi* at the same time? 
+**Questioner:** So you can experience that and be experiencing *jijuyu samadhi* at the same time? 
 
-**Katagiri Roshi:** Mm-hmm. Well, actually, we have to experience [it]. “We have to experience” means we have to taste that Ocean Seal Samadhi in zazen. Okay? And then it is called *jijiyu samadhi*. 
+**Katagiri Roshi:** Mm-hmm. Well, actually, we have to experience [it]. “We have to experience” means we have to taste that Ocean Seal Samadhi in zazen. Okay? And then it is called *jijuyu samadhi*. 
 
 #### 1:11:57
 
@@ -302,7 +302,7 @@ Is that okay?
 
 **Question:** Roshi? So, it seems like in your presentation, the discussion seems to be talking about integrated activity versus conceptualization. We won’t talk about *dhyana* separated, but you describe the activity of zazen [...] But I don’t hear you saying anything that makes the activity of zazen different than the activity of bowing, different than the activity of walking, or chanting. I don’t hear you explain why we only do zazen.
 
-**Katagiri Roshi:** And that’s why zazen is a *form* of zazen. If you see the zazen in terms of form, [...] there are many other forms opposed to zazen forms. But the *jijiyu samadhi* is the *contents* of that form of zazen, or quality of zazen. That is called *activity*, very undefiled activities. That is a point Dōgen Zenji talks about. 
+**Katagiri Roshi:** And that’s why zazen is a *form* of zazen. If you see the zazen in terms of form, [...] there are many other forms opposed to zazen forms. But the *jijuyu samadhi* is the *contents* of that form of zazen, or quality of zazen. That is called *activity*, very undefiled activities. That is a point Dōgen Zenji talks about. 
 
 And then, if you do zazen like this, very naturally you can touch the quality of zazen regarded as a form. That quality is universal. Even though you walk, and you sit, and you stand, I think there is [that quality], that is very universal. And then from that universal state, I think according to the conditional situation, it appears as a certain form – sometimes standing, sometimes walking, something like that. There are many forms, but I think they must be supported by something more than form. That is called *undefiled activity*, or *practice*. So-called *emptiness*, we say – “Form is emptiness, emptiness is form,” in *Prajñāpāramitā* [*Sutra*]. 
 
@@ -310,7 +310,7 @@ So if you see the world in terms of the form, there are many different [things],
 
 *[Tape change.]*
 
-... how do you give a quality to the form of standing when you do it? That is most important. So that is, you have to give a quality to the form of standing, so-called *jijiyu samadhi*. That’s it. And then, at that time, standing is exactly the spirit of zazen. 
+... how do you give a quality to the form of standing when you do it? That is most important. So that is, you have to give a quality to the form of standing, so-called *jijuyu samadhi*. That’s it. And then, at that time, standing is exactly the spirit of zazen. 
 
 So from this point, zazen, standing – same thing. But according to the form, they are different, so you cannot mix them up. You have to deal with standing as standing.
 
@@ -328,9 +328,9 @@ So from this point, zazen, standing – same thing. But according to the form, t
 
 **Questioner:** What you just said, you could say the same thing for bowing, or chanting. That form has its own special characteristic, which makes it unique, even though the activity is common.
 
-**Katagiri Roshi:** I think through the zazen form you have to taste that *jijiyu samadhi* exactly, and then you can make the standing form or the walking form really alive; you appreciate it. So that’s why we do it.
+**Katagiri Roshi:** I think through the zazen form you have to taste that *jijuyu samadhi* exactly, and then you can make the standing form or the walking form really alive; you appreciate it. So that’s why we do it.
 
-It’s penetrated into all other forms. For instance, if you experience *samadhi* from the form of skiing: of course [...] you can experience the same *samadhi*, but it’s pretty hard to extend it into every other form. We understand it, but everyday life is very complicated. So I think that’s why the *jijiyu samadhi* which you can experience through sitting meditation is very valuable and [respected], handed down from generation to generation.
+It’s penetrated into all other forms. For instance, if you experience *samadhi* from the form of skiing: of course [...] you can experience the same *samadhi*, but it’s pretty hard to extend it into every other form. We understand it, but everyday life is very complicated. So I think that’s why the *jijuyu samadhi* which you can experience through sitting meditation is very valuable and [respected], handed down from generation to generation.
 
 **Questioner:** I don’t question the value, I just question why is it overemphasized, that form. 
 
