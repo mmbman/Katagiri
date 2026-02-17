@@ -3,7 +3,9 @@ title: Katagiri Transcripts
 description: Zen Dharma Talks by Dainin Katagiri Roshi
 ---
 
-This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Sōtō Zen Buddhism.
+This website transcribes the dharma talks of Dainin Katagiri Roshi as a reference for the study of Sōtō Zen Buddhism. These transcripts are a continuing work in progress: talks are added regularly, and corrections and improvements are made on an ongoing basis. Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
+
+### Basics 
 
 - [Introduction](introduction)
 - [Katagiri Roshi’s Zazen Instruction](zazen-instruction)
@@ -45,6 +47,3 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - October 20, 2025: Posted draft of [“*The Awakening of Faith* – Talk 10: Time and Ignorance”](1984-05-16-Awakening-of-Faith-Talk-10).
 - October 2, 2025: Posted [“*Shōbōgenzō Kokyo*: Form and Mirror – Talk 2”](1986-10-19-Shobogenzo-Kokyo-Talk-2).
 
-Please note that these transcripts are a continuing work in progress. Corrections and improvements are made on an ongoing basis. Talks are added regularly. 
-
-Katagiri Roshi’s talks are used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).
