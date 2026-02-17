@@ -2,7 +2,7 @@
 title: "Principles of Practice"
 ---
 
-In this series of talks Katagiri Roshi comments on *Gakudō-yōjinshū*, “Points To Watch in Buddhist Practice” – one of Zen Master Dōgen’s most foundational works, alongside [*Fukanzazengi*](fukanzazengi) and [*Bendōwa*](bendowa), although seemingly lesser-known in the West.
+In this series of talks Katagiri Roshi comments on *Gakudō-yōjinshū*: “Points To Watch in Buddhist Practice” or “Principles of Practice.” This is one of Zen Master Dōgen’s most foundational works, alongside [*Fukanzazengi*](fukanzazengi) and [*Bendōwa*](bendowa), although it is seemingly lesser-known in the West.
 
 This series of transcripts is in draft stage. 
 
