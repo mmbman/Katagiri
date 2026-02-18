@@ -11,8 +11,6 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 ### Dōgen Studies
 
-(As with the whole site, this section is under construction.)
-
 - [Introduction to Dōgen Studies](dogen-intro)
 - [*Bendōwa*: A Talk on Pursuing the Way](bendowa)
 	- [Notes on *Bendōwa*](bendowa-notes)
