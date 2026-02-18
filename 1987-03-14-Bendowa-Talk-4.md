@@ -16,6 +16,8 @@ title: "Bendōwa: Dōgen's Questions & Answers – Talk 4"
 #### 0:00
 
 > [Question 7:] Those who haven’t yet realized the buddha-dharma in themselves can attain that realization through negotiating the way in zazen. But for those who have already realized the Buddha’s right dharma, what will be the use of zazen?
+>
+> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 I think the point is that if they don’t realize the buddha-dharma yet, anybody can use zazen to attain enlightenment. But [...] if you have accomplished Buddha’s Way, how do you use zazen? Is it not necessary to use zazen, or should we continue to use zazen? That is the question. 
 

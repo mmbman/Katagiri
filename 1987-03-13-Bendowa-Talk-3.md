@@ -20,6 +20,8 @@ title: "Bendōwa: Dōgen's Questions & Answers – Talk 3"
 > Answer 5: Your question is evoked because the appellation “Zen sect” has been given to the right dharma eye, the incomparable and great Dharma that is the Tathagata’s one great mother. Bear this well in mind: the appellation “Zen sect” is met with in China eastward, it is not known in India. When the great teacher Bodhidharma was at the Shaolin Monastery of Songshan (Mount Song) doing zazen facing a wall for nine years, the priests and laymen there, not knowing yet of the Buddha’s right dharma, initially said he was an Indian monk who placed special emphasis on zazen. Afterward, for generation after generation, each of the patriarchs devoted himself to zazen exclusively. Seeing this and not knowing the true circumstances, unthinking laymen spoke loosely of a “Zazen sect.” At present, the word *za* has been dropped and we speak of the Zen sect. Its essence is made clear in the recorded sayings of the patriarchs. Zazen should not be equated with the *dhyana* or *samadhi* of the six *paramitas* or three learnings. 
 > 
 > It is altogether clear this is the legitimate idea of the buddha-dharma that has been directly transmitted. Many years ago, during the ceremony on Vulture Peak, the Tathagata entrusted the right dharma eye, wondrous mind of nirvana, to Mahakashyapa alone. Some among the deva multitude now present in the heavens actually witnessed the ceremony. Therefore, there is no reason for any doubt. The buddha-dharma as a matter of course is forever protected and maintained by the deva multitude. Their efforts never succumb. You may know without doubt that this zazen is the absolute way of the buddha-dharma. It is incomparable. 
+>
+> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 [...] There is a very fundamental [teaching] of Buddhism, according to the ancient Buddhism. That is the “three learnings”: *precepts*, *wisdom*, and *dhyana* or *samadhi*. Here it says in the note:
 
@@ -103,6 +105,8 @@ It is not a matter of discussion intellectually, but [rather] it is matter of pr
 So very naturally, Dōgen Zenji [states] in the beginning of *Bendōwa* [...] the key point of the zazen we are practicing. In the first paragraph, Dōgen Zenji says:
 
 > Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijuyu samadhi*, which is its touchstone.
+>
+> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 So the zazen we do is based on *jijuyu samadhi*. I think [there is an] explanation here [in the note]:
 
