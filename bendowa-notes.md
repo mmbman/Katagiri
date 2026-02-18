@@ -24,7 +24,7 @@ This document is under construction.
 
 - For more on the term “Way” see [“Notes on Fukanzazengi”](fukanzazengi-notes)
 
---- 
+##### 1
 
 > 諸佛如來、ともに妙法を單傅して、阿耨菩提を證するに、最上無爲の妙術あり。 
 > 
@@ -47,7 +47,7 @@ without alteration and realizing supreme and complete awakening.
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - connection to the Three Collective Pure Precepts.
 	- [“Diamond Sutra, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
 
---- 
+##### 2
 
 > これ、ただほとけ、佛にさづけてよこしまなることなきは、すなはち自受用三昧、その標準なり。
 > 
@@ -71,7 +71,7 @@ without alteration and realizing supreme and complete awakening.
     - [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854) – on the connection with or equivalence to *ki* or “momentum of time and energy”.
     - [“*Baika*: Plum Blossoms – Talk 5”](1988-12-06-Baika-Talk-5) - TBD.
 
----
+##### 3
 
 > この三昧に遊化するに、端坐参禪を正門とせり。
 > 
@@ -91,11 +91,9 @@ without alteration and realizing supreme and complete awakening.
    - [“Zazen: Entry to the Buddha Dharma” at 18:32](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma#1832) 
    - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
-   - See also [“Notes on Fukanzazengi”](fukanzazengi-notes)
+   - See also [“Notes on Fukanzazengi”](fukanzazengi-notes).
 
 - The term *shōmon* (正門) – translated as “main gateway”, “authentic gate”, or “right entrance” – appears later in Questions 1 and 2, and so – happily – the term is covered extensively by Katagiri Roshi, who uses the term *right entrance*, and clarifies what the term *right* means in Buddhism (as in *right speech*, etc.). 
     - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) In his extensive commentary, Katagiri Roshi says, “*Right* means that you have to learn (or do) something straightforward[ly], without artifice or design, without intention or purposes.”
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1”](1987-03-11-Bendowa-Talk-1)
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2)
-
----
