@@ -35,7 +35,7 @@ without alteration and realizing supreme and complete awakening.
 >
 > MD: All buddha tathagatas, who directly transmit inconceivable dharma and actualize supreme, perfect enlightenment, have a wondrous way, unsurpassed and unconditioned. 
 
-- Katagiri Roshi reviews the first two lines in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
+- Katagiri Roshi reviews this sentence and the next sentence in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
 
 -  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese, apparantly the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
 
