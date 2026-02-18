@@ -32,7 +32,7 @@ I think “the great matter of one’s whole life” is not only [in Dōgen’s 
 
 *Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the Way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 
-*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way. That is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
+*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way; that is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 
 So *gakudō* is to study the universal life beyond the conscious and unconscious worlds. This is *gakudō*. 
 
