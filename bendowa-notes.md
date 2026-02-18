@@ -16,9 +16,9 @@ This document is under construction.
 
 > 辦道話
 > 
-> SZ: Talk on Pursuing the Way
-> EB: Discourse on Negotiating the Way
-> MD: On the Endeavor of the Way
+> SZ: Talk on Pursuing the Way  
+> EB: Discourse on Negotiating the Way  
+> MD: On the Endeavor of the Way  
 
 - “The Way” is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
