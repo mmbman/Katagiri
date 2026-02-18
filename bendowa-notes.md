@@ -66,9 +66,9 @@ without alteration and realizing supreme and complete awakening.
     - [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005) - the connection with karma is noted.
     - [“*The Awakening of Faith* – Talk 37” at 22:20](1986-04-18-Awakening-of-Faith-Talk-37#2220) - with regard to ceremonies, particularly funeral services.
     - [“Turning the Three Poisons into Wheels” at 15:46](1986-06-28-Turning-the-Three-Poisons-into-Wheels#1546) - with regard to the precepts and the three poisons.
-    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) – as “wow!” or “ahhh.” 
+    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) – as “wow!” or “ahhh”. 
     - [“Platform Sutra – Talk 7”](1987-04-24-Platform-Sutra-Talk-7) – on not understanding it.
-    - [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854) – on the connecting with (or equivalence to) *ki* or “momentum of time and energy.”
+    - [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854) – on the connection with or equivalence to *ki* or “momentum of time and energy”.
     - [“*Baika*: Plum Blossoms – Talk 5”](1988-12-06-Baika-Talk-5) - TBD.
 
 ---
