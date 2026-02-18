@@ -105,7 +105,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 >
-> KR: Suppose one gains pride of understanding and influences one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial partial excursions about the frontiers, but is still somewhat deficient in the vital way of total emancipation.
+> KR: Suppose one gains pride of understanding and [inflate’s] one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation.
 
 - This is extensively discussed in [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
@@ -127,7 +127,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: ... and learn to take the backward step that turns the light and shines it inward. 
 >
-> KR: ... and learn the backward step that turns your light inwardly to illuminate yourself
+> EB: ... and learn the backward step that turns your light inwardly to illuminate your self
 
 - “Turn the light and shine it inward” is *ekō henshō* (回光返照). This key phrase seems to be translated and understood in slightly different ways. 
 
@@ -211,7 +211,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: Put aside all involvements and suspend all affairs. 
 >
-> KR: Cast aside all involvements; cease all affairs.
+> EB: Cast aside all involvements and cease all affairs.
 
 - This is discussed as “arrangement of circumstances” in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1” (34:20)](1979-06-09-Fukanzazengi-Talk-1#3420) and in the rest of the series.
 
@@ -289,7 +289,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside.
 >
-> KR: For you must know that just there, in zazen, the right dharma is manifesting itself, and that from the first, dullness and distraction are struck aside.
+> EB: For you must know that just there [in zazen] the right dharma is manifesting itself and that from the first dullness and distraction are struck aside.
 
 - This line is extensively discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 1”](1979-06-09-Fukanzazengi-Talk-1) as “a sort of conclusion of the main subject in *Fukanzazengi*,” and as “[the real] meaning of *shikantaza*.”
 
@@ -313,7 +313,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen.
 >
-> KR: In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength of zazen.
+> EB: In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength [of zazen].
 
 - This is extensively discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4)
 
@@ -323,7 +323,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; ...
 > 
-> KR: In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.
+> EB: In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking.
 
 - This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) at [21:38](1979-06-14-Fukanzazengi-Talk-6#2138).
 
@@ -337,7 +337,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views?
 >
-> KR: It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions?
+> EB: It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions?
 
 - This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6”](1979-06-14-Fukanzazengi-Talk-6) after [39:44](1979-06-14-Fukanzazengi-Talk-6#3944).
 
