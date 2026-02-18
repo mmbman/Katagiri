@@ -1,12 +1,12 @@
 ---
-title: “Notes on Bendōwa"
+title: "Notes on Bendōwa"
 ---
 
 This document is under construction. 
 
-“SZ:” indicates text from the Sotoshu translation of *Shobogenzo*.  
-“EB:” indicates text from “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was Katagiri Roshi’s main source.  
-“MD:” indicates text from *Moon in a Dewdrop*.
+“SZ” indicates text from the Sotoshu translation of *Shobogenzo*.  
+“EB” indicates text from “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was Katagiri Roshi’s main English-language source.  
+“MD” indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
 
 ----
 
