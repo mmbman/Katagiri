@@ -18,7 +18,9 @@ This document is under construction.
 
 - “The Way” is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
-- The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series.
+- The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series. Basically: 
+
+    “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.” - from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
 
 - For more on the term “Way” see [“Notes on Fukanzazengi”](fukanzazengi-notes)
 
@@ -37,7 +39,7 @@ without alteration and realizing supreme and complete awakening.
 
 -  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese, apparantly the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
 
-- *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). For more references to *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes).
+- *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). It is part of the term *shushō* (修證), “practice-realization”, which is central to understanding Dōgen. For more on *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes). 
 
 - *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically at: 
 	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as “the purpose of spiritual life,” in relation to *prajñāpāramitā*.
@@ -79,7 +81,7 @@ without alteration and realizing supreme and complete awakening.
 > 
 > MD: Sitting upright, practicing Zen, is the authentic gate to the unconfined realm of this samadhi.
 
--  *Yuge* (遊戯) is from Sanskrit *vikrīḍita* (विक्रीडित) – “play” or “sport”. Apparantly this appears as *yuke* (遊化) in a version of Bendōwa (EB, p. 129).
+-  *Yuge* (遊戯) is from Sanskrit *vikrīḍita* (विक्रीडित) – “play” or “sport”. Apparantly this appears as *yuke* (遊化) in this version of Bendōwa (EB, p. 129).
 
 - *Upright sitting* (端坐): for the character *za* 坐, “sitting”, see [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
 
@@ -91,7 +93,7 @@ without alteration and realizing supreme and complete awakening.
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
    - See also [“Notes on Fukanzazengi”](fukanzazengi-notes)
 
-- The term *shōmon* 正門 – translated as “main gateway”, “authentic gate”, or “right entrance” – appears later in Questions 1 and 2, and so – happily – the term is covered extensively by Katagiri Roshi, who uses the term *right entrance*: 
+- The term *shōmon* 正門 – translated as “main gateway”, “authentic gate”, or “right entrance” – appears later in Questions 1 and 2, and so – happily – the term is covered extensively by Katagiri Roshi, who uses the term *right entrance*, and clarifies what the term *right* means in Buddhism (as in *right speech*, etc.). 
     - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) In his extensive commentary, Katagiri Roshi says, “*Right* means that you have to learn (or do) something straightforward[ly], without artifice or design, without intention or purposes.”
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1”](1987-03-11-Bendowa-Talk-1)
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2)
