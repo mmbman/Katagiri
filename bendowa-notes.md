@@ -29,11 +29,11 @@ without alteration and realizing supreme and complete awakening.
 >
 > MD: All buddha tathagatas, who directly transmit inconceivable dharma and actualize supreme, perfect enlightenment, have a wondrous way, unsurpassed and unconditioned. 
 
-- Katagiri Roshi reviews these lines in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
+- Katagiri Roshi reviews the first two lines in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
 
--  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese, apparantly the term is *mui*; it translates the Sanskrit term *asamskrita*. (*Moon in a Dewdrop*, glossary, p. 346.)
+-  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese, apparantly the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
 
-- *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked; Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). For more references to *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes).
+- *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). For more references to *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes).
 
 - *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically at: 
 	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as the “purpose of spiritual life,” in relation to *prajñāpāramitā*.
@@ -41,6 +41,7 @@ without alteration and realizing supreme and complete awakening.
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - connection to the Three Collective Pure Precepts.
 	- [“Diamond Sutra, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
 
+--- 
 
 > これ、ただほとけ、佛にさづけてよこしまなることなきは、すなはち自受用三昧、その標準なり。
 > 
@@ -66,5 +67,29 @@ without alteration and realizing supreme and complete awakening.
 
 ---
 
-> この三昧に遊化するに、端坐参禪を正門と
-せり。
+> この三昧に遊化するに、端坐参禪を正門とせり。
+> 
+> SZ: To disport oneself in this samadhi, studying Zen in upright sitting, is considered the main gateway.
+> 
+> EB: To disport oneself freely in this samadhi, the right entrance is proper sitting in zazen.
+> 
+> MD: Sitting upright, practicing Zen, is the authentic gate to the unconfined realm of this samadhi.
+
+-  *Yuge* (遊戯) is from Sanskrit *vikrīḍita* (विक्रीडित) – “play” or “sport”. Apparantly this appears as *yuke* (遊化) in a version of Bendōwa (EB, p. 129).
+
+- *Upright sitting* (端坐): for the character *za* 坐, “sitting”, see [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
+
+- “Practicing zen” or “studying zen” is *sanzen* (參禪), another key term. Katagiri Roshi often leaves the term *sanzen* untranslated, because the word *practice* in English “doesn’t hit the mark” of what *sanzen* means. He comments on the actual meaning of *sanzen* extensively; see:
+   - [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) - *sanzen* as “surrender to tranquility or simplicity (zen) in life.” 
+       - The question, then, is what we mean by “tranquility.” One talk where *tranquility* is discussed in greater detail (pun more or less intended) is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), where the Japanese term *jakujō* is discussed.
+   - [“Zazen: Entry to the Buddha Dharma” at 18:32](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma#1832) 
+   - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
+   - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
+   - See also [“Notes on Fukanzazengi”](fukanzazengi-notes)
+
+- The term *shōmon* 正門 – translated as “main gateway”, “authentic gate”, or “right entrance” – appears later in Questions 1 and 2, and so – happily – the term is covered extensively by Katagiri Roshi, who uses the term *right entrance*: 
+    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) In his extensive commentary, Katagiri Roshi says, “*Right* means that you have to learn (or do) something straightforward[ly], without artifice or design, without intention or purposes.”
+    - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1”](1987-03-11-Bendowa-Talk-1)
+    - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2)
+
+    
