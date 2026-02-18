@@ -5,7 +5,9 @@ title: "Notes on Bendōwa"
 This document is under construction. 
 
 “SZ” indicates text from the Sotoshu translation of *Shobogenzo*.  
+
 “EB” indicates text from “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was Katagiri Roshi’s main English-language source.  
+
 “MD” indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
 
 ----
@@ -15,7 +17,9 @@ This document is under construction.
 > SZ: Talk on Pursuing the Way
 
 - “The Way” is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
+
 - The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series.
+
 - For more on the term “Way” see [“Notes on Fukanzazengi”](fukanzazengi-notes)
 
 --- 
@@ -36,7 +40,7 @@ without alteration and realizing supreme and complete awakening.
 - *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). For more references to *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes).
 
 - *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically at: 
-	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as the “purpose of spiritual life,” in relation to *prajñāpāramitā*.
+	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as “the purpose of spiritual life,” in relation to *prajñāpāramitā*.
 	- [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2) - as *bodhicitta* or bodhi-mind, or “one-mind of the Buddha.”
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - connection to the Three Collective Pure Precepts.
 	- [“Diamond Sutra, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
@@ -91,5 +95,3 @@ without alteration and realizing supreme and complete awakening.
     - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) In his extensive commentary, Katagiri Roshi says, “*Right* means that you have to learn (or do) something straightforward[ly], without artifice or design, without intention or purposes.”
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1”](1987-03-11-Bendowa-Talk-1)
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2)
-
-    
