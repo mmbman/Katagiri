@@ -16,7 +16,7 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [Introduction to Dōgen Studies](dogen-intro)
 - [*Bendōwa*: A Talk on Pursuing the Way](bendowa)
 - [*Fukanzazengi*: Universal Recommendation for Zazen](fukanzazengi)
-    - [Annotated *Fukanzazengi*](annotated-fukanzazengi)
+    - [Notes on *Fukanzazengi*](fukanzazengi-notes)
 - [*Gakudō-yōjinshū*: Principles of Practice](principles-of-practice)
 - [*Genjokoan*](genjokoan)
 - [*Kokyo*: The Ancient Mirror](kokyo)

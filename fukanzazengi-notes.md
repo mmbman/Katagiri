@@ -1,18 +1,16 @@
 ---
-title: "Annotated Fukanzazengi"
+title: "Notes on Fukanzazengi"
 ---
 
-#### Annotations by Kikan Michael Howard
+#### by Kikan Michael Howard
 
-#### Updated January 14, 2026
+#### Updated February 18, 2026
 
-Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. 
+Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This document is a work in progress. I will update this page as I transcribe talks and find additional references.
 
 For the translations, “SZ” indicates the [Sōtōshū translation of *Fukanzazengi* (external link)](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html), which is used by many English-speaking Zen centers. “KR” indicates alternative translations by Katagiri Roshi, where they are available. 
 
 English translations of *Fukanzazengi* vary widely, and no single translation should be taken as authoritative. For a comparison of six English translations of *Fukanzazengi*, see [“Fukanzazengi: 6 translations” (external link)](https://zendogen.es/textos-zen-pdf/Fukanzazengi-6-translations.pdf). If six isn’t enough, see the [twenty translations organized by Fábio Rodrigues](https://artecontemplativa.com/wp-content/uploads/2021/05/Fukan-Zazengi-Eihei-Dogen-20-translations-Fabio-Rodrigues.pdf). Beyond that, compare [the translation at Confluence Zen Center](https://www.confluencezen.org/fukanzazengi/).
-
-This document is a work in progress. I will update this page as I transcribe talks and find additional references.
 
 ---
 
