@@ -93,7 +93,9 @@ without alteration and realizing supreme and complete awakening.
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
    - See also [“Notes on Fukanzazengi”](fukanzazengi-notes)
 
-- The term *shōmon* 正門 – translated as “main gateway”, “authentic gate”, or “right entrance” – appears later in Questions 1 and 2, and so – happily – the term is covered extensively by Katagiri Roshi, who uses the term *right entrance*, and clarifies what the term *right* means in Buddhism (as in *right speech*, etc.). 
+- The term *shōmon* (正門) – translated as “main gateway”, “authentic gate”, or “right entrance” – appears later in Questions 1 and 2, and so – happily – the term is covered extensively by Katagiri Roshi, who uses the term *right entrance*, and clarifies what the term *right* means in Buddhism (as in *right speech*, etc.). 
     - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) In his extensive commentary, Katagiri Roshi says, “*Right* means that you have to learn (or do) something straightforward[ly], without artifice or design, without intention or purposes.”
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1”](1987-03-11-Bendowa-Talk-1)
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2)
+
+---
