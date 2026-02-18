@@ -41,7 +41,7 @@ without alteration and realizing supreme and complete awakening.
 
 - *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). It is part of the term *shushō* (修證), “practice-realization”, which is central to understanding Dōgen. For more on *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes). 
 
-- *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically at: 
+- *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically in: 
 	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as “the purpose of spiritual life,” in relation to *prajñāpāramitā*.
 	- [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2) - as *bodhicitta* or bodhi-mind, or “one-mind of the Buddha.”
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - connection to the Three Collective Pure Precepts.
@@ -57,7 +57,7 @@ without alteration and realizing supreme and complete awakening.
 >
 > MD: Only buddhas transmit it to buddhas without veering off; self-fulfilling samadhi is its standard. 
 
-- *Jijuyu zanmai* (自受用三昧) – *jijuyu* samadhi, “the *samādhi* of receiving and using the self” or “self-fulfilling samadhi” – is discussed particularly at:
+- *Jijuyu zanmai* (自受用三昧) – *jijuyu* samadhi, “the *samādhi* of receiving and using the self” or “self-fulfilling samadhi” – is discussed particularly in:
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1” at 48:44](1987-03-11-Bendowa-Talk-1#4844) - as “wow” or “self-joyfulness.” 
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316) - referring specifically to these first lines.
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 1:01:51](1987-03-13-Bendowa-Talk-3#10151) - specific question on why it’s referred to as “self-enjoyment samadhi,” noting that the translation is difficult and it’s not exactly “joy.”
