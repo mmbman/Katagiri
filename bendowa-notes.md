@@ -95,7 +95,7 @@ without alteration and realizing supreme and complete awakening.
 
 - “Practicing zen” or “studying zen” is *sanzen* (參禪), another key term. Katagiri Roshi often leaves the term *sanzen* untranslated because the word *practice* in English “doesn’t hit the mark” of what *sanzen* means. He comments on the actual meaning of *sanzen* extensively; see:
    - [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) - *sanzen* as “surrender to tranquility or simplicity (zen) in life.” 
-       - The question, then, is what we mean by “tranquility”. One talk where *tranquility* is discussed in greater detail (pun more or less intended) is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), where the Japanese term *jakujō* is discussed.
+       - The question, then, is what we mean by *tranquility*. One talk where Katagiri Roshi discussed *tranquility* in greater detail (pun more or less intended) is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), where the Japanese term *jakujō* is discussed.
    - [“Zazen: Entry to the Buddha Dharma” at 18:32](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma#1832) 
    - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
