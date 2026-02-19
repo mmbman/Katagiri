@@ -57,6 +57,9 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: The true vehicle is self-sufficient. What need is there for special effort? 
 > 
+> EB: The Dharma-vehicle is free and untrammelled.
+What need is there for one’s concentrated effort? 
+> 
 > KR: The dharma vehicle is free and unrestricted, why should we expend sustained effort?
 
 - See [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1”](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1), especially to clarify the meaning of *dharma vehicle*.
@@ -66,6 +69,9 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 > 況乎全體逈出塵埃兮、孰信拂拭之手段。  
 >  
 > SZ: Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
+> 
+> EB: Indeed, the Whole Body is far beyond the world’s dust. Who could believe in a means to brush it
+clean? 
 
 - “Dust,” “brush it clean,” etc. is a reference to [*The Platform Sutra*](platform-sutra) and the well-known story of the “poetry contest,” which is considered a foundational story in Chinese Buddhism. In the story, the top student Shen Hsiu (Japanese: Jinshū) writes a verse comparing Buddhist practice to brushing dust from a mirror to keep it clean, and the student Hui Neng (Japanese: Daikan Enō), who becomes the Sixth Ancestor, composes a responding verse. For the story and its interpretation, see [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1). 
 
@@ -105,7 +111,7 @@ English translations of *Fukanzazengi* vary widely, and no single translation sh
 >  
 > SZ: Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 >
-> KR: Suppose one gains pride of understanding and [inflate’s] one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation.
+> EB: Suppose one gains pride of understanding and [inflate’s] one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the Way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation.
 
 - This is extensively discussed in [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 
