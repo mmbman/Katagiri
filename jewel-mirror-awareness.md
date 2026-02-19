@@ -1348,7 +1348,7 @@ So very naturally you cannot hold onto the absolute. But the absolute is always 
 
 #### * * *
 
-In the *Bendowa* Dogen Zenji wrote: “The practice of the way makes myriad dharmas exist in realization.” In the huge world, Buddhist world, the practice of the way makes myriad forms exist: tables, our bodies, everything.
+In the *Bendōwa* Dogen Zenji wrote: “The practice of the way makes myriad dharmas exist in realization.” In the huge world, Buddhist world, the practice of the way makes myriad forms exist: tables, our bodies, everything.
 
 Exist where?
 
@@ -3181,7 +3181,7 @@ This is the sense in which “use” should be understood, in distinction not �
 
 ###### Notes on the Commentary:
 
-“…Bendowa” “Discourse on the Practice of the Way.” A chapter of the *Shobogenzo*, written in 1231. A translation by Norman Waddell and Abe Masao appears in the *Eastern Buddhist*, Vol. 6, No. 1, (1976) pg. 128.
+“…Bendōwa” “Discourse on the Practice of the Way.” A chapter of the *Shobogenzo*, written in 1231. A translation by Norman Waddell and Abe Masao appears in the *Eastern Buddhist*, Vol. 6, No. 1, (1976) pg. 128.
 
 “...Mudras” Gestures, generally with the hands, used to assist in achieving particular states of mind.
 

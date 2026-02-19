@@ -31,7 +31,7 @@ Today, I think half of Answer 3 is left, so I will read it. [...] Question 3 is:
 
 > It may be that zazen as the right entrance derives from the right transmission of the Tathagata’s wonderful means or from following in the path of the patriarchs – it is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes affecting *satori*. But to sit idly, doing nothing, how can that be of help in gaining *satori*? 
 >
-> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
+> (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 I think this question implies that we usually think there are differences between ordinary people and genuine persons, or saints. 
 

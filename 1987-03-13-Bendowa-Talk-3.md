@@ -21,7 +21,7 @@ title: "Bendōwa: Dōgen's Questions & Answers – Talk 3"
 > 
 > It is altogether clear this is the legitimate idea of the buddha-dharma that has been directly transmitted. Many years ago, during the ceremony on Vulture Peak, the Tathagata entrusted the right dharma eye, wondrous mind of nirvana, to Mahakashyapa alone. Some among the deva multitude now present in the heavens actually witnessed the ceremony. Therefore, there is no reason for any doubt. The buddha-dharma as a matter of course is forever protected and maintained by the deva multitude. Their efforts never succumb. You may know without doubt that this zazen is the absolute way of the buddha-dharma. It is incomparable. 
 >
-> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
+> (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 [...] There is a very fundamental [teaching] of Buddhism, according to the ancient Buddhism. That is the “three learnings”: *precepts*, *wisdom*, and *dhyana* or *samadhi*. Here it says in the note:
 
@@ -106,7 +106,7 @@ So very naturally, Dōgen Zenji [states] in the beginning of *Bendōwa* [...] th
 
 > Buddha Tathagatas all have a wondrous means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another without alteration, and realizing supreme and complete awakening. That it is only transmitted without deviation from Buddha to Buddha is due to the *jijuyu samadhi*, which is its touchstone.
 >
-> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
+> (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 So the zazen we do is based on *jijuyu samadhi*. I think [there is an] explanation here [in the note]:
 

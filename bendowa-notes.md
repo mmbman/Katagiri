@@ -10,7 +10,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 “SZ” indicates text from the Sotoshu translation of *Shobogenzo*.  
 
-“EB” indicates text from “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  
+“EB” indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  
 
 “MD” indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
 
@@ -18,8 +18,8 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 ##### Title
 
-> 辦道話
-> *Bendōwa*
+> 辦道話  
+> *Bendōwa*  
 > 
 > SZ: Talk on Pursuing the Way  
 > EB: Discourse on Negotiating the Way  

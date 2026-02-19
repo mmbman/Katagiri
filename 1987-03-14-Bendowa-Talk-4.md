@@ -17,7 +17,7 @@ title: "Bendōwa: Dōgen's Questions & Answers – Talk 4"
 
 > [Question 7:] Those who haven’t yet realized the buddha-dharma in themselves can attain that realization through negotiating the way in zazen. But for those who have already realized the Buddha’s right dharma, what will be the use of zazen?
 >
-> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
+> (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 I think the point is that if they don’t realize the buddha-dharma yet, anybody can use zazen to attain enlightenment. But [...] if you have accomplished Buddha’s Way, how do you use zazen? Is it not necessary to use zazen, or should we continue to use zazen? That is the question. 
 
@@ -109,7 +109,7 @@ So when you practice, all you can do is still practice must be practice. Because
 
 That’s why yesterday I [said] “zazen is *jijuyu samadhi*” means self becomes self, and is selfing. You become you, you are you-ing, and you settle yourself in the self, exactly. And then you are not you – you are Buddha. That means creative life [is] coming up. Something which you have never thought before. 
 
-So that is [why] Dōgen Zenji says zazen is *jijuyu samadhi*. In the beginning of *Bendowa*, he [speaks] about zazen very clearly:
+So that is [why] Dōgen Zenji says zazen is *jijuyu samadhi*. In the beginning of *Bendōwa*, he [speaks] about zazen very clearly:
 
 > That it is only transmitted without deviation from Buddha to Buddha is due to the *jijuyu samadhi*, which is its touchstone.
 

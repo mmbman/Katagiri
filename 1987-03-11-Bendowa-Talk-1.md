@@ -37,7 +37,7 @@ This answer is very long, so I think I’ll read [just a little bit]...
 >
 > The spiritual realm of Buddhas is totally incomprehensible. It is not to be reached by the workings of the mind. Still less can it be known by a man of disbelief or inferior intelligence. Only a person of great capacity based on right faith is able to enter here. Even were a person of disbelief given teachings of it, he would find it difficult to receive them. Even on Vulture Peak, there were some the Buddha allowed to leave. If right faith arises in your mind, you should practice religious discipline and study under a master. If it doesn’t arise, you should cease for a while and regret the fact of not receiving benefits of the dharma from the past. 
 >
-> (From “Dōgen’s Bendowa,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
+> (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
 Those three questions are all connected, talking about *right entrance*. Zazen is exactly right entrance to get into the Buddha’s world. So what is *right entrance*? Why does Dōgen Zenji emphasize that zazen is right entrance? 
 
