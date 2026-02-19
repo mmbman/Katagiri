@@ -6,7 +6,7 @@ title: "Notes on Bendōwa"
 
 #### Updated February 18, 2026
 
-On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Bendōwa*: “A Talk on Pursuing the Way”, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
+On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Bendōwa*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
 “SZ” indicates text from the Sotoshu translation of *Shobogenzo*.  
 
@@ -19,6 +19,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 ##### Title
 
 > 辦道話
+> *Bendōwa*
 > 
 > SZ: Talk on Pursuing the Way  
 > EB: Discourse on Negotiating the Way  
