@@ -28,9 +28,8 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series. Basically: 
 
-    “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.” - from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
-
-- For more on the term “Way” see [“Notes on Fukanzazengi”](fukanzazengi-notes)
+    “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”  
+    - from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
 
 ##### 1
 
@@ -45,17 +44,19 @@ without alteration and realizing supreme and complete awakening.
 
 - Katagiri Roshi reviews this sentence and the next sentence in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
 
--  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese, apparantly the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
+-  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
 
 - *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). It is part of the term *shushō* (修證), “practice-realization”, which is central to understanding Dōgen. For more on *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes). 
 
 - *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically in: 
 	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as “the purpose of spiritual life,” in relation to *prajñāpāramitā*.
 	- [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2) - as *bodhicitta* or bodhi-mind, or “one-mind of the Buddha.”
-	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - connection to the Three Collective Pure Precepts.
+	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - in connection to the Three Collective Pure Precepts.
 	- [“Diamond Sutra, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
 
 ##### 2
+
+唯佛與佛
 
 > これ、ただほとけ、佛にさづけてよこしまなることなきは、すなはち自受用三昧、その標準なり。
 > 
@@ -95,7 +96,7 @@ without alteration and realizing supreme and complete awakening.
 
 - “Practicing zen” or “studying zen” is *sanzen* (參禪), another key term. Katagiri Roshi often leaves the term *sanzen* untranslated because the word *practice* in English “doesn’t hit the mark” of what *sanzen* means. He comments on the actual meaning of *sanzen* extensively; see:
    - [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind) - *sanzen* as “surrender to tranquility or simplicity (zen) in life.” 
-       - The question, then, is what we mean by *tranquility*. One talk where Katagiri Roshi discussed *tranquility* in greater detail (pun more or less intended) is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), where the Japanese term *jakujō* is discussed.
+       - The question, then, is what we mean by *tranquility*. One talk where Katagiri Roshi discussed *tranquility* in greater detail (so to speak) is [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1), where the Japanese term *jakujō* is discussed.
    - [“Zazen: Entry to the Buddha Dharma” at 18:32](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma#1832) 
    - [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
    - [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2)
@@ -105,3 +106,47 @@ without alteration and realizing supreme and complete awakening.
     - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) In his extensive commentary, Katagiri Roshi says, “*Right* means that you have to learn (or do) something straightforward[ly], without artifice or design, without intention or purposes.”
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 1”](1987-03-11-Bendowa-Talk-1)
     - [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 2”](1987-03-12-Bendowa-Talk-2)
+
+##### 4
+
+> この法は、人人の分上にゆたかにそなはれりといへども、いまだ修せざるにはあらはれず、證せざるにはうることなし。
+> 
+> SZ: Although this dharma is abundantly allotted to each person, when we have not practiced it, it does not appear, and when we do not verify it, it is not attained.
+> 
+> EB: This Dharma is amply present in every person, but unless one practices, it is not manifested, unless there is realization, it is not attained. 
+> 
+> MD: Although this inconceivable dharma is abundant in each person, it is not actualized without practice, and it is not experienced without realization.
+
+##### 5
+
+> はなてば、てにみてり、一多のきはならむや。
+>
+> SZ: Let it go, and it fills the hand — how could it be bounded by one or many? 
+> 
+> EB: It is not a question of one or many; let loose of it and it fills your hands.
+> 
+> MD: When you release it, it fills your hand – how could it be limited to one or many? 
+
+##### 6
+
+> かたれば、くちにみつ、縦横、きはまりなし。
+> 
+> SZ: Speak of it, and it fills the mouth — vertically and horizontally without limit. 
+> 
+> EB: It is not bounded vertically or horizontally; speak it and it fills your mouth. 
+> 
+> MD: When you speak it, it fills your mouth – it is not bounded by length or width.
+
+
+##### 7
+
+> 諸佛の、つねにこのなかに住持たる、各各の方面に知覺をのこさず。群生の、とこしな～にこのなかに使用する、各各の知覺に方面あらはれず。
+>
+> SZ: The buddhas are always within it, dwelling in
+and maintaining it, without leaving perception of it in any of its quarters; living beings are continuously within it, making use of it, without its quarters appearing in any of their perceptions.
+>
+> EB: Herein buddhas are always dwelling as masters, leaving no perceptions in any sphere or direction; herein all living beings are functioning everlastingly, with no sphere or direction appearing in any of their perceptions.
+>
+> MD: All buddhas continuously abide in it, but do not leave traces of consciousness in their illumination. Sentient beings continuously move about in it, but illumination is not manifest in their consciousness.
+
+
