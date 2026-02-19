@@ -57,8 +57,6 @@ without alteration and realizing supreme and complete awakening.
 
 ##### 2
 
-唯佛與佛
-
 > これ、ただほとけ、佛にさづけてよこしまなることなきは、すなはち自受用三昧、その標準なり。
 > 
 > SZ: The reason this [method] is transmitted only from buddha to buddha, without deviation, is that the *samādhi* of receiving and using the self is its standard. 
