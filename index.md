@@ -19,7 +19,7 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [*Gakudō-yōjinshū*: Principles of Practice](principles-of-practice)
 - [*Genjokoan*](genjokoan)
 - [*Kokyo*: The Ancient Mirror](kokyo)
-- [Mindfulness](mindfulness): from *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Factors of Bodhi (Awareness)”
+- [Mindfulness](mindfulness): from *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Factors of Bodhi”
 - [*Kuge*: Flowers in the Sky](kuge)
 - [*Baika*: Plum Blossoms](baika)
 - [Other Dōgen Fascicles](dogen-other)
