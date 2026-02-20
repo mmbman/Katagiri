@@ -31,7 +31,7 @@ Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A
 
 - [“*Kuge*: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3):  on “The negotiation of the way with concentrated effort I now teach makes myriad dharmas exist in realization.”
 
-- [“*Baika*: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013) on “makes myriad beings exist in realization.”
+- [“*Baika*: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013): on “makes myriad beings exist in realization.”
 
 
 See also [“Notes on Bendōwa”](bendowa-notes).
