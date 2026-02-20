@@ -27,7 +27,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - *Ben* (辦) is translated as “pursuit”, “negotation”, etc.
 
-- *Do* (道) is “Way”, in Chinese *tao* or *dao*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
+- *Dō* (道) is “Way”, in Chinese *tao* or *dao*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
 - The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series. Basically: 
 
