@@ -3,7 +3,7 @@ title: "The Way of Precept Practice: Restraint and Extermination"
 ---
 ## August 13, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1988-08-10-The-Need-and-Way-of-Repentance) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Precepts](precepts)
+#### [Previous](1988-08-10-The-Need-and-Way-of-Repentance) | [Next](1988-08-17-Kuge-Talk-1) | [List](list#1988) | Series: [Precepts](precepts)
 
 ### Transcript
 
@@ -281,4 +281,4 @@ That’s why [mountain] is there; that’s why I can climb the [mountain]. That 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1988-08-10-The-Need-and-Way-of-Repentance) | [Next](1988-10-05-Review-and-Renew) | [List](list#1988) | Series: [Precepts](precepts)
+#### [Previous](1988-08-10-The-Need-and-Way-of-Repentance) | [Next](1988-08-17-Kuge-Talk-1) | [List](list#1988) | Series: [Precepts](precepts)

@@ -20,6 +20,7 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [*Genjokoan*](genjokoan)
 - [*Kokyo*: The Ancient Mirror](kokyo)
 - [Mindfulness](mindfulness): from *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Factors of Bodhi (Awareness)”
+- [*Kuge*: Flowers in the Sky](Kuge)
 - [Other Dōgen Fascicles](dogen-other)
 
 ### Other Topics
