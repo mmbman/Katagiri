@@ -15,7 +15,7 @@ Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A
 
 ## Other Commentary on *Bendōwa*
 
-- [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 7” at 9:14](1979-06-15-Fukanzazengi-Talk-7#914): Discussion of the line, “Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.”
+- [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 7” at 9:14](1979-06-15-Fukanzazengi-Talk-7#914): discussion of the line “Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.”
 
 - [“Blue Cliff Record Case 44: Ho Shan’s Knowing How to Beat the Drum, Talk 2""](1983-04-27-Blue-Cliff-Record-Case-44-Talk-2): on chanting “just like a frog croaking in the rice field.” 
 
