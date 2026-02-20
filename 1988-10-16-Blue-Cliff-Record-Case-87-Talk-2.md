@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 87: Medicine and Disease Subdue Each Other – Ta
 ---
 ## October 16, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1988-12-02-Baika-Talk-1) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -238,4 +238,4 @@ So very naturally, right acceptance, right trust – well, has lot of contents.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1988-12-24-Devotion-Walking-Alone-with-Open-Heart) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1) | [Next](1988-12-02-Baika-Talk-1) | [List](list#1988) | Series: [*Blue Cliff Record*](blue-cliff-record)
