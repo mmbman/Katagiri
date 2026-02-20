@@ -32,7 +32,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 - The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series. Basically: 
 
     “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”  
-    - from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
+    \- from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
 
 - *Wa* (話) is “talk”.
 
@@ -159,7 +159,7 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 
 - “Makes myriad beings exist in realization” is also mentioned in [“Baika: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013).
 
-- “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but it refers to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)) *Kufū* is discussed in [“Baika: Plum Blossoms – Talk 3”](1988-12-04-Baika-Talk-3).
+- “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but it refers to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)).) *Kufū* is discussed in [“Baika: Plum Blossoms – Talk 3”](1988-12-04-Baika-Talk-3).
 
 ##### 8 
 
