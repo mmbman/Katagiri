@@ -30,7 +30,7 @@ Between 1973 and 1975, Katagiri Roshi gave talks on most of the cases in *Shōy�
 
 ##### Case 99: Yunmen’s “Bowl and Bucket”
 
-- [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#58:54)
+- [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854)
 - See also [*Blue Cliff Record*](blue-cliff-record) Case 50: Yun Men’s Every Atom Samadhi.
 
 
