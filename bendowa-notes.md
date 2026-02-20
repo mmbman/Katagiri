@@ -149,7 +149,7 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 
 > いまをしふる功夫辦道は、證上に萬法をあらしめ、出路に一如を行ずるなり。
 > 
-> SZ: The concentrated effort in pursuit of the way that I teach here brings the myriad dharmas into existence based on verification and practices their oneness on the path leading out.” 
+> SZ: The concentrated effort in pursuit of the way that I teach here brings the myriad dharmas into existence based on verification and practices their oneness on the path leading out.
 > 
 > EB: The negotiation of the Way with concentrated effort I now teach makes myriad dharmas exist in realization, and, by transcending realization, practices a total Reality. 
 > 
@@ -157,7 +157,7 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 
 - This line is discussed in [“Kuge: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3).
 
-- “Makes myriad beings exist in realization” is also mentioned in [“Baika: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013)
+- “Makes myriad beings exist in realization” is also mentioned in [“Baika: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013).
 
 - “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but it refers to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)) *Kufū* is discussed in [“Baika: Plum Blossoms – Talk 3”](1988-12-04-Baika-Talk-3).
 
