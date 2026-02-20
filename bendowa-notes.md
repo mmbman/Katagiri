@@ -49,15 +49,15 @@ without alteration and realizing supreme and complete awakening.
 
 - Katagiri Roshi reviews this sentence and the next sentence in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
 
-- *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). It is part of the term *shushō* (修證), “practice-realization”, which is central to understanding Dōgen. For more on *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes). 
+- *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). It is part of the term *shushō* (修證), “practice-realization”, which is central to understanding Dōgen. For more on *shō* see [“Notes on *Fukanzazengi*”](fukanzazengi-notes). 
 
 - *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically in: 
 	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as “the purpose of spiritual life,” in relation to *prajñāpāramitā*.
 	- [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2) - as *bodhicitta* or bodhi-mind, or “one-mind of the Buddha.”
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - in connection to the Three Collective Pure Precepts.
-	- [“Diamond Sutra, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
+	- [“*Diamond Sutra*, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
 
--  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
+-  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing” (souce: [Wikipedia: “Wu wei”](https://en.wikipedia.org/wiki/Wu_wei)). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
 
 ##### 2
 
@@ -79,7 +79,7 @@ without alteration and realizing supreme and complete awakening.
     - [“*The Awakening of Faith* – Talk 37” at 22:20](1986-04-18-Awakening-of-Faith-Talk-37#2220) - with regard to ceremonies, particularly funeral services.
     - [“Turning the Three Poisons into Wheels” at 15:46](1986-06-28-Turning-the-Three-Poisons-into-Wheels#1546) - with regard to the precepts and the three poisons.
     - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) – as “wow!” or “ahhh”. 
-    - [“Platform Sutra – Talk 7”](1987-04-24-Platform-Sutra-Talk-7) – on not understanding it.
+    - [“*Platform Sutra* – Talk 7”](1987-04-24-Platform-Sutra-Talk-7) – on not understanding it.
     - [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854) – on the connection with or equivalence to *ki* or “momentum of time and energy”.
     - [“*Baika*: Plum Blossoms – Talk 5”](1988-12-06-Baika-Talk-5) - TBD.
 
@@ -122,7 +122,7 @@ without alteration and realizing supreme and complete awakening.
 
 - This line is referenced in:
     - [“Mindfulness – Talk 4” at Part 3](1984-03-24-Mindfulness-Talk-4#Part3)
-    - [“The Awakening of Faith – Talk 5” at 1:07:54](1984-04-20-Awakening-of-Faith-Talk-5#10754)
+    - [“*The Awakening of Faith* – Talk 5” at 1:07:54](1984-04-20-Awakening-of-Faith-Talk-5#10754)
 
 ##### 5
 
@@ -155,9 +155,9 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 > 
 > MD: The concentrated endeavor of the way I am speaking of allows all things to come forth in enlightenment and practice, all-inclusivenesss with detachment. 
 
-- This line is discussed in [“Kuge: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3).
+- This line is discussed in [“*Kuge*: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3).
 
-- “Makes myriad beings exist in realization” is also mentioned in [“Baika: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013).
+- “Makes myriad beings exist in realization” is also mentioned in [“*Baika*: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013).
 
 - “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but it refers to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)).) *Kufū* is discussed in [“Baika: Plum Blossoms – Talk 3”](1988-12-04-Baika-Talk-3).
 
