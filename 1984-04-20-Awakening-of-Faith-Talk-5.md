@@ -407,7 +407,7 @@ So that's why we have to understand that all things [...] operate to get with th
 
 **Katagiri Roshi:** Yeah. There is still a difference. 
 
-So that's what Dōgen Zenji also says, buddha-nature is dharma, buddha-dharma is amply present in everyone, but without practice, it doesn't work. Without entering into, it doesn't make sense. In *Bendōwa*, he [said something] like that. 
+So that's what Dōgen Zenji also says, buddha-nature is dharma, buddha-dharma is amply present in everyone, but without practice it doesn't work. Without entering into, it doesn't make sense. In *Bendōwa*, he [said something] like that. 
 
 So, we're just like a diamond, anyway. We can be a very rough diamond. Apparently it is just a usual rock. But it is a diamond! For this, we have to polish and make a diamond. That is conformed practice for us. Is that what you mean?
  
