@@ -1,5 +1,5 @@
 ---
-title: "Shōbōgenzō Kokyo"
+title: "Kokyo: The Ancient Mirror"
 ---
 
 This is a two part series on the chapter *Kokyo*, “The Ancient Mirror”, in Zen Master Dogen’s *Shōbōgenzō*.
