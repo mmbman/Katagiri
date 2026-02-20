@@ -75,13 +75,13 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 20 Talk 2
 1. *Blue Cliff Record* Case 22
 
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 1
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 2
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 3
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 4
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 5
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 6
-1. *Shōbōgenzō Gyobutsu Igi*: Majestic Activity – Talk 7
+1. *Gyobutsu Igi*: Majestic Activity – Talk 1
+1. *Gyobutsu Igi*: Majestic Activity – Talk 2
+1. *Gyobutsu Igi*: Majestic Activity – Talk 3
+1. *Gyobutsu Igi*: Majestic Activity – Talk 4
+1. *Gyobutsu Igi*: Majestic Activity – Talk 5
+1. *Gyobutsu Igi*: Majestic Activity – Talk 6
+1. *Gyobutsu Igi*: Majestic Activity – Talk 7
 
 1. *Blue Cliff Record* Case 23 Talk 1
 1. *Blue Cliff Record* Case 23 Talk 3
@@ -184,15 +184,15 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*The Awakening of Faith* – Talk 12: Tathagatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
 1. [*The Awakening of Faith* – Talk 13: Tathagatagarbha and Alayavijinana](1984-05-24-Awakening-of-Faith-Talk-13)
 
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 1
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 2
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 3
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 4
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 5
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 7
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 8
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 10
-1. *Shōbōgenzō Juundo Shiki*: Rules for the Monks Annex – Talk 11
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 1
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 2
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 3
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 4
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 5
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 7
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 8
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 10
+1. *Juundo Shiki*: Rules for the Monks Annex – Talk 11
 
 1. *Blue Cliff Record* Case 58 Talk 1
 1. *Blue Cliff Record* Case 58 Talk 2
@@ -329,27 +329,27 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. Taking Refuge in the Buddha
 1. Verse of Offering Incense
 
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 5
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 6
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 7
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 8
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 9
+1. *Hossho*: Dharma Nature – Talk 5
+1. *Hossho*: Dharma Nature – Talk 6
+1. *Hossho*: Dharma Nature – Talk 7
+1. *Hossho*: Dharma Nature – Talk 8
+1. *Hossho*: Dharma Nature – Talk 9
 
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 1
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 2
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 3
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 4
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 5
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 6
-1. *Shōbōgenzō Tsuki*: The Moon – Talk 7
+1. *Tsuki*: The Moon – Talk 1
+1. *Tsuki*: The Moon – Talk 2
+1. *Tsuki*: The Moon – Talk 3
+1. *Tsuki*: The Moon – Talk 4
+1. *Tsuki*: The Moon – Talk 5
+1. *Tsuki*: The Moon – Talk 6
+1. *Tsuki*: The Moon – Talk 7
 
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 10
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 11
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 12
-1. *Shōbōgenzō Hossho*: Dharma Nature – Talk 13
+1. *Hossho*: Dharma Nature – Talk 10
+1. *Hossho*: Dharma Nature – Talk 11
+1. *Hossho*: Dharma Nature – Talk 12
+1. *Hossho*: Dharma Nature – Talk 13
 
-1. [*Shōbōgenzō Kokyo*: Form and Mirror – Talk 1](1986-10-18-Shobogenzo-Kokyo-Talk-1)
-1. [*Shōbōgenzō Kokyo*: Form and Mirror – Talk 2](1986-10-19-Shobogenzo-Kokyo-Talk-2)
+1. [*Kokyo*: Form and Mirror – Talk 1](1986-10-18-Shobogenzo-Kokyo-Talk-1)
+1. [*Kokyo*: Form and Mirror – Talk 2](1986-10-19-Shobogenzo-Kokyo-Talk-2)
 
 1. [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 
@@ -364,13 +364,13 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Bowing
 
-1. *Shōbōgenzō Gabyo*: Painting of a Rice Cake – Talk 1
-1. *Shōbōgenzō Gabyo*: Painting of a Rice Cake – Talk 3
-1. *Shōbōgenzō Gabyo*: Painting of a Rice Cake – Talk 4
-1. *Shōbōgenzō Gabyo*: Painting of a Rice Cake – Talk 5
-1. *Shōbōgenzō Gabyo*: Painting of a Rice Cake – Talk 6
-1. *Shōbōgenzō Gabyo*: Painting of a Rice Cake – Talk 7
-1. Commentary on *Shōbōgenzō Gabyo* (Painted Rice Cake)
+1. *Gabyo*: Painting of a Rice Cake – Talk 1
+1. *Gabyo*: Painting of a Rice Cake – Talk 3
+1. *Gabyo*: Painting of a Rice Cake – Talk 4
+1. *Gabyo*: Painting of a Rice Cake – Talk 5
+1. *Gabyo*: Painting of a Rice Cake – Talk 6
+1. *Gabyo*: Painting of a Rice Cake – Talk 7
+1. Commentary on *Gabyo* (Painted Rice Cake)
 
 1. Obedience
 
@@ -428,7 +428,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Blue Cliff Record* Case 84 Talk 3: Impermanence and the Meaning of Silence
 1. *Blue Cliff Record* Case 84 Talk 4: Three Aspects of Buddha's Silence
 
-1. *Shōbōgenzō Sansuikyo*: Eastern Mountains Traveling on the Water
+1. *Sansuikyo*: Eastern Mountains Traveling on the Water
 1. On a Poem by the Boatman: Fishing with a Straight Hook
 1. What is Right Human Effort – Part 1
 1. What is Right Human Effort – Part 2
@@ -449,31 +449,31 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [Lay Ordination Lecture: (2nd Series, 3 of 3): Restraint and Extermination](1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination)
 
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 1
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 2
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 3
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 4
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 5
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 6
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 7
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 8
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 9
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 10
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 11
+1. [*Kuge*: Flowers in the Sky – Talk 1](1988-08-17-Kuge-Talk-1)
+1. [*Kuge*: Flowers in the Sky – Talk 2](1988-08-25-Kuge-Talk-2)
+1. [*Kuge*: Flowers in the Sky – Talk 3](1988-08-27-Kuge-Talk-3)
+1. *Kuge*: Flowers in the Sky – Talk 4
+1. *Kuge*: Flowers in the Sky – Talk 5
+1. *Kuge*: Flowers in the Sky – Talk 6
+1. *Kuge*: Flowers in the Sky – Talk 7
+1. *Kuge*: Flowers in the Sky – Talk 8
+1. *Kuge*: Flowers in the Sky – Talk 9
+1. *Kuge*: Flowers in the Sky – Talk 10
+1. *Kuge*: Flowers in the Sky – Talk 11
 
 1. [Review and Renew: Buddhism for the Twenty-First Century](1988-10-05-Review-and-Renew)
 
-1. *Shōbōgenzō Kuge*: Flowers in the Sky – Talk 12
+1. *Kuge*: Flowers in the Sky – Talk 12
 
 1. [*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 1](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1)
 1. [*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 2](1988-10-16-Blue-Cliff-Record-Case-87-Talk-2)
 
-1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 1
-1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 2
-1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 3
-1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 4
-1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 5
-1. *Shōbōgenzō Baika*: Plum Blossoms – Talk 6
+1. [*Baika*: Plum Blossoms – Talk 1](1988-12-02-Baika-Talk-1)
+1. [*Baika*: Plum Blossoms – Talk 2](1988-12-03-Baika-Talk-2)
+1. [*Baika*: Plum Blossoms – Talk 3](1988-12-04-Baika-Talk-3)
+1. *Baika*: Plum Blossoms – Talk 4
+1. *Baika*: Plum Blossoms – Talk 5
+1. *Baika*: Plum Blossoms – Talk 6
 
 1. [Devotion: Walking Alone with Open Heart](1988-12-24-Devotion-Walking-Alone-with-Open-Heart)
 
