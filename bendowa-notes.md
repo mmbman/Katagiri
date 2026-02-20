@@ -25,12 +25,16 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 > EB: Discourse on Negotiating the Way  
 > MD: On the Endeavor of the Way  
 
-- “The Way” is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
+- *Ben* (辦) is translated as “pursuit”, “negotation”, etc.
+
+- *Do* (道) is “Way”, in Chinese *tao* or *dao*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
 - The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series. Basically: 
 
     “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”  
     - from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
+
+- *Wa* (話) is “talk”.
 
 ##### 1
 
@@ -116,28 +120,21 @@ without alteration and realizing supreme and complete awakening.
 > 
 > MD: Although this inconceivable dharma is abundant in each person, it is not actualized without practice, and it is not experienced without realization.
 
+- This line is referenced in:
+    - [“Mindfulness – Talk 4” at Part 3](1984-03-24-Mindfulness-Talk-4#Part3)
+    - [“The Awakening of Faith – Talk 5” at 1:07:54](1984-04-20-Awakening-of-Faith-Talk-5#10754)
+
 ##### 5
 
-> はなてば、てにみてり、一多のきはならむや。
+> はなてば、てにみてり、一多のきはならむや。かたれば、くちにみつ、縦横、きはまりなし。
 >
-> SZ: Let it go, and it fills the hand — how could it be bounded by one or many? 
+> SZ: Let it go, and it fills the hand — how could it be bounded by one or many? Speak of it, and it fills the mouth — vertically and horizontally without limit. 
 > 
-> EB: It is not a question of one or many; let loose of it and it fills your hands.
+> EB: It is not a question of one or many; let loose of it and it fills your hands. It is not bounded vertically or horizontally; speak it and it fills your mouth.
 > 
-> MD: When you release it, it fills your hand – how could it be limited to one or many? 
+> MD: When you release it, it fills your hand – how could it be limited to one or many? When you speak it, it fills your mouth – it is not bounded by length or width.
 
 ##### 6
-
-> かたれば、くちにみつ、縦横、きはまりなし。
-> 
-> SZ: Speak of it, and it fills the mouth — vertically and horizontally without limit. 
-> 
-> EB: It is not bounded vertically or horizontally; speak it and it fills your mouth. 
-> 
-> MD: When you speak it, it fills your mouth – it is not bounded by length or width.
-
-
-##### 7
 
 > 諸佛の、つねにこのなかに住持たる、各各の方面に知覺をのこさず。群生の、とこしな～にこのなかに使用する、各各の知覺に方面あらはれず。
 >
@@ -148,4 +145,30 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 >
 > MD: All buddhas continuously abide in it, but do not leave traces of consciousness in their illumination. Sentient beings continuously move about in it, but illumination is not manifest in their consciousness.
 
+##### 7
+
+> いまをしふる功夫辦道は、證上に萬法をあらしめ、出路に一如を行ずるなり。
+> 
+> SZ: The concentrated effort in pursuit of the way that I teach here brings the myriad dharmas into existence based on verification and practices their oneness on the path leading out.” 
+> 
+> EB: The negotiation of the Way with concentrated effort I now teach makes myriad dharmas exist in realization, and, by transcending realization, practices a total Reality. 
+> 
+> MD: The concentrated endeavor of the way I am speaking of allows all things to come forth in enlightenment and practice, all-inclusivenesss with detachment. 
+
+- This line is discussed in [“Kuge: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3).
+
+- “Makes myriad beings exist in realization” is also mentioned in [“Baika: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013)
+
+- “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but it refers to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)) *Kufū* is discussed in [“Baika: Plum Blossoms – Talk 3”](1988-12-04-Baika-Talk-3).
+
+##### 8 
+
+> その超關脱落のとき、この節目にかかはらむや。
+> 
+> SZ: When we pass beyond those barriers and slough them off, how could we be concerned with these particulars?
+> 
+> EB: When you go over the barrier, casting off all bondages, you are not affected by such segmented distinctions.
+> 
+> MD: Passing through the barrier and dropping off limitations, how
+could you be hindered by nodes in bamboo or knots in wood?
 
