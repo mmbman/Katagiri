@@ -4,7 +4,7 @@ title: "Bendōwa: A Talk on Pursuing the Way"
 
 ## 1987 Series
 
-Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A Talk on Pursuing the Way”. This series is from 1987, and focuses on the first part of the “Questions and Answers” section, although it necessarily includes some commentary on the whole work.
+Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A Talk on Pursuing the Way”. This series is from 1987, and focuses on the first part of the “Questions and Answers” section, Questions 1 through 9, although it includes some commentary on the introduction.
 
 - [Zazen: Entry to the Buddha Dharma](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma)
 - [*Bendōwa*: Dōgen's Questions & Answers – Talk 1](1987-03-11-Bendowa-Talk-1)
@@ -32,3 +32,6 @@ Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A
 - [“Kuge: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3):  on “The negotiation of the way with concentrated effort I now teach makes myriad dharmas exist in realization.”
 
 - [“Baika: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013) on “makes myriad beings exist in realization.”
+
+
+See also [“Notes on Bendōwa”](bendowa-notes).
