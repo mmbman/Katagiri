@@ -49,8 +49,6 @@ without alteration and realizing supreme and complete awakening.
 
 - Katagiri Roshi reviews this sentence and the next sentence in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
 
--  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
-
 - *Shō* (證), translated here as “verifying” or “realizing”, is a key term that should not be overlooked. Katagiri Roshi spends an entire talk discussing it in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 5”](1987-03-15-Bendowa-Talk-5). It is part of the term *shushō* (修證), “practice-realization”, which is central to understanding Dōgen. For more on *shō* see [“Notes on Fukanzazengi”](fukanzazengi-notes). 
 
 - *Anuttara-bodhi* (阿耨菩提) is short for the Sanskrit *anuttara-samyak-sambodhi*: “complete, perfect, supreme enlightenment.” Katagiri Roshi discusses this term specifically in: 
@@ -58,6 +56,8 @@ without alteration and realizing supreme and complete awakening.
 	- [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2) - as *bodhicitta* or bodhi-mind, or “one-mind of the Buddha.”
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - in connection to the Three Collective Pure Precepts.
 	- [“Diamond Sutra, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
+
+-  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing,” according to [Wikipedia](https://en.wikipedia.org/wiki/Wu_wei). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
 
 ##### 2
 
