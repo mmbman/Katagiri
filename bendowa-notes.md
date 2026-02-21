@@ -93,7 +93,7 @@ without alteration and realizing supreme and complete awakening.
 > 
 > MD: Sitting upright, practicing Zen, is the authentic gate to the unconfined realm of this samadhi.
 
--  *Yuge* (遊戯) is from Sanskrit *vikrīḍita* (विक्रीडित) – “play” or “sport”. Apparantly this appears as *yuke* (遊化) in this version of Bendōwa (EB, p. 129).
+-  “To disport” is *yuge* (遊戯), from Sanskrit *vikrīḍita* (विक्रीडित). Apparantly this appears as *yuke* (遊化) in this version of Bendōwa (EB, p. 129). *Yu* is “to play.” *Ge* means “to transform.” Katagiri Roshi comments on *yuge* in “[Disporting with the Buddhas: Transformation through Play](1987-12-19-Transformation-through-Play)”. 
 
 - *Upright sitting* (端坐): for the character *za* 坐, “sitting”, see [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
 

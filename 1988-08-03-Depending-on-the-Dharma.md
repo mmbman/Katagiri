@@ -3,7 +3,7 @@ title: "Depending on the Dharma"
 ---
 ## August 3, 1988 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-08-10-The-Need-and-Way-of-Repentance) | [List](list#1988) | Series: [Precepts](precepts)
+#### [Previous](1987-12-19-Transformation-through-Play) | [Next](1988-08-10-The-Need-and-Way-of-Repentance) | [List](list#1988) | Series: [Precepts](precepts)
 
 ### Transcript
 
@@ -260,4 +260,4 @@ I don't know either, *[they laugh,]* why I am Buddhist monk, practicing like thi
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-06-27-A-B-and-C-Worlds) | [Next](1988-08-10-The-Need-and-Way-of-Repentance) | [List](list#1988) | Series: [Precepts](precepts)
+#### [Previous](1987-12-19-Transformation-through-Play) | [Next](1988-08-10-The-Need-and-Way-of-Repentance) | [List](list#1988) | Series: [Precepts](precepts)

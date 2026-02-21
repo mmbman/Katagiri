@@ -438,7 +438,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Wisdom of Living
 1. Chanting Practice
-1. Disporting with the Buddhas: Transformation through Play
+1. [Disporting with the Buddhas: Transformation through Play](1987-12-19-Transformation-through-Play)
 
 ### 1988
 
