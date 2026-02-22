@@ -13,7 +13,7 @@ Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A
 - [*Bendōwa*: Dōgen's Questions & Answers – Talk 4](1987-03-14-Bendowa-Talk-4)
 - [*Bendōwa*: Dōgen's Questions & Answers – Talk 5](1987-03-15-Bendowa-Talk-5)
 
-## Other Commentary on *Bendōwa*
+## Other References to *Bendōwa*
 
 - [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 7” at 9:14](1979-06-15-Fukanzazengi-Talk-7#914): discussion of the line “Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.”
 
@@ -32,6 +32,5 @@ Katagiri Roshi gave several series of talks on Dōgen Zenji’s *Bendōwa*, “A
 - [“*Kuge*: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3):  on “The negotiation of the way with concentrated effort I now teach makes myriad dharmas exist in realization.”
 
 - [“*Baika*: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013): on “makes myriad beings exist in realization.”
-
 
 See also [“Notes on Bendōwa”](bendowa-notes).

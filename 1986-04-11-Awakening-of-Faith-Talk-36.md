@@ -73,8 +73,7 @@ So that means, the constantly, the truth, the real truth, appealing to you, help
 
 Then next on page 60, there is a question: If the truth is constantly appealing to us and helping us, at that time why are there lots of differences of people? Some experience the faith and the wisdom or the truth very quickly, some are going very slowly, et cetera. So the question is, 
 
-> If this is so, then all sentient beings are endowed with Suchness and are equally permeated by it. Why is it that there are infinite varieties of believers and nonbelievers, and that there are some who believe sooner and some later? All of them should, knowing that they are endowed with the principle
-of Suchness, at once make an effort utilizing expedient means and should all equally attain nirvana. 
+> If this is so, then all sentient beings are endowed with Suchness and are equally permeated by it. Why is it that there are infinite varieties of believers and nonbelievers, and that there are some who believe sooner and some later? All of them should, knowing that they are endowed with the principle of Suchness, at once make an effort utilizing expedient means and should all equally attain nirvana. 
 
 But practically, there are lots of different people's lifestyles. So this is the question. 
 
