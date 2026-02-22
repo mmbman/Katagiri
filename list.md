@@ -364,13 +364,13 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Bowing
 
-1. *Gabyo*: Painting of a Rice Cake – Talk 1
-1. *Gabyo*: Painting of a Rice Cake – Talk 3
-1. *Gabyo*: Painting of a Rice Cake – Talk 4
-1. *Gabyo*: Painting of a Rice Cake – Talk 5
-1. *Gabyo*: Painting of a Rice Cake – Talk 6
-1. *Gabyo*: Painting of a Rice Cake – Talk 7
-1. Commentary on *Gabyo* (Painted Rice Cake)
+1. *Gabyō*: Painting of a Rice Cake – Talk 1
+1. *Gabyō*: Painting of a Rice Cake – Talk 3
+1. *Gabyō*: Painting of a Rice Cake – Talk 4
+1. *Gabyō*: Painting of a Rice Cake – Talk 5
+1. *Gabyō*: Painting of a Rice Cake – Talk 6
+1. *Gabyō*: Painting of a Rice Cake – Talk 7
+1. Commentary on *Gabyō* (Painted Rice Cake)
 
 1. Obedience
 

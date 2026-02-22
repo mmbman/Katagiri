@@ -1620,8 +1620,7 @@ The relative and absolute integrate. The relative means the relative within the 
 
 If you pile them up they make three: the three are the relative, the absolute, and integrate. The complete transformation makes five refers to all five of the Five Ranks, the philosophical basis for Soto Zen teaching.
 
-In Japanese the relative is called *hen*. The absolute is called
-*sho*.
+In Japanese the relative is called *hen*. The absolute is called *sho*.
 
 And we say “*sho hen ego*.”
 
@@ -2113,7 +2112,7 @@ If you miss the beat even slightly you cannot fit into the rhythm of music. You 
 
 Regardless of whether you understand or not, you should keep your eyes open to how to tune in, because you are Buddha. Because you have to grow that seed of buddha nature. So you have already a great rhythm of music in your heart. Trying to tune into it is our practice. If you don’t, immediately there is a gap. That slight gap is huge, like the gap between heaven and earth. So it is pretty hard to live in peace and harmony.
 
-In the *Shobogenzo* Dogen Zenji says that if you wish to understand the seed of buddha nature you should know that it is precisely the causal conditions of time and season. That is a big term; practically speaking it means time and space becomes fresh from moment to moment. It means there is no constant name that can apply to you. Good, bad, whatever. Nothing. Always you are fresh. So you have to live in this state of freshness. That is Buddhist logic.
+In the *Shōbōgenzō* Dogen Zenji says that if you wish to understand the seed of buddha nature you should know that it is precisely the causal conditions of time and season. That is a big term; practically speaking it means time and space becomes fresh from moment to moment. It means there is no constant name that can apply to you. Good, bad, whatever. Nothing. Always you are fresh. So you have to live in this state of freshness. That is Buddhist logic.
 
 Why do we have to gassho with wholeheartedness? Should we gassho blindly? Meticulously? Nervously? With great tension?
 
@@ -2495,7 +2494,7 @@ So what is Buddha?
 
 Maybe you can explain seventy percent of Buddha, using words. The rest you cannot explain.
 
-At one time I became attendant to Hashimoto Roshi, and accompanied him on a trip to Nagoya where he was to give *teisho* on the *Shobogenzo*. The job of the attendant was to follow him wherever he went, and to buy train tickets if he needed them.
+At one time I became attendant to Hashimoto Roshi, and accompanied him on a trip to Nagoya where he was to give *teisho* on the *Shōbōgenzō*. The job of the attendant was to follow him wherever he went, and to buy train tickets if he needed them.
 
 So this day he gave me his purse and told me to buy a ticket. And when I opened the purse I realized there was not enough money. So I told him that the money was not enough.
 
@@ -3181,7 +3180,7 @@ This is the sense in which “use” should be understood, in distinction not �
 
 ###### Notes on the Commentary:
 
-“…Bendōwa” “Discourse on the Practice of the Way.” A chapter of the *Shobogenzo*, written in 1231. A translation by Norman Waddell and Abe Masao appears in the *Eastern Buddhist*, Vol. 6, No. 1, (1976) pg. 128.
+“…Bendōwa” “Discourse on the Practice of the Way.” A chapter of the *Shōbōgenzō*, written in 1231. A translation by Norman Waddell and Abe Masao appears in the *Eastern Buddhist*, Vol. 6, No. 1, (1976) pg. 128.
 
 “...Mudras” Gestures, generally with the hands, used to assist in achieving particular states of mind.
 

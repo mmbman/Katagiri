@@ -375,7 +375,7 @@ clean?
 >  
 > SZ: You have gained the pivotal opportunity of human form. Do not pass your days and nights in vain. 
 
-- “Pivotal opportunity” is *kiyō* (機要), according to the Nishijima and Cross translation of *Shobogenzo*, Volume 1. For commentary on *ki* (機), see [“Dealing with Death, Dealing with Life”](1989-01-07-Dealing-with-Death-Dealing-with-Life) at [33:32](1989-01-07-Dealing-with-Death-Dealing-with-Life#3332).
+- “Pivotal opportunity” is *kiyō* (機要), according to the Nishijima and Cross translation of *Shōbōgenzō*, Volume 1. For commentary on *ki* (機), see [“Dealing with Death, Dealing with Life”](1989-01-07-Dealing-with-Death-Dealing-with-Life) at [33:32](1989-01-07-Dealing-with-Death-Dealing-with-Life#3332).
 
 ##### 33
 

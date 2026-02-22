@@ -77,7 +77,7 @@ Reference:
 
 ### *Zazengi*
 
-This fascile of Shobogenzo is distinct from [Fukan Zazengi](#fukanzazengi).
+This fascile of Shōbōgenzō is distinct from [Fukan Zazengi](#fukanzazengi).
 
 [Fukanzazengi – Talk 1 (36:23)](1979-06-09-Fukanzazengi-Talk-1#3623)
 
@@ -97,7 +97,7 @@ Japanese: Kaiin-zanmai
 
 - [Fukanzazengi – Talk 7 (6:15-)](1979-06-15-Fukanzazengi-Talk-7#615)
 
-## Shobogenzo Zuimonki
+## Shōbōgenzō Zuimonki
 
 ### Nansen Kills The Cat
 
