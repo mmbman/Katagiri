@@ -83,7 +83,7 @@ And the point that this koan teaches us is that no matter how long you imagine s
 
 Before you practice Zen, you imagine lots of things about Zen – through books, or through the teachings, through your friends, et cetera. And now that you have got into the Zen practically – maybe you cannot see real Zen, maybe you can see a log bridge. But before you practice Zen, maybe you really expect something, so-called golden bridge, famous stone bridge, because it is pretty famous. But when you go and see directly, maybe you cannot see it. Most people can see just a log bridge.
 
-Dōgen Zenji also [says] in his *Shobogenzo* (in the chapter *Yuibutsu yobutsu*, “Only Buddha and Buddha”):
+Dōgen Zenji also [says] in his *Shōbōgenzō* (in the chapter *Yuibutsu yobutsu*, “Only Buddha and Buddha”):
 
 > When you realize buddha-dharma, you do not think, ‘This is realization just as I expected.’ Even if you think so, realization invariably differs from your expectation. Realization is not like your conception of it. For this reason, realization cannot take place as previously conceived. When you realize buddha-dharma, you do not consider how realization came about. You should reflect on this. What you think one way or another before realization is not a help for realization.
 
