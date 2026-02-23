@@ -4,15 +4,11 @@ title: "Notes on Bendōwa"
 
 #### by Kikan Michael Howard
 
-#### Updated February 18, 2026
+#### Updated February 22, 2026
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Bendōwa*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-“SZ” indicates text from the Sotoshu translation of *Shōbōgenzō*.  
-
-“EB” indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  
-
-“MD” indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
+“SZ” indicates text from the Sotoshu translation of *Shōbōgenzō*.  “EB” indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  “MD” indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
 
 ----
 
@@ -176,11 +172,17 @@ could you be hindered by nodes in bamboo or knots in wood?
 
 ##### 2.1.1
 
-EB: After the desire to seek the Way awakened in me, I went to all parts of the country, calling upon religious teachers, until I chanced to encounter the priest Myozen of Kennin-ji. Swiftly passed the frosts and flowers of the nine years I stayed with him. During that time I learned something of the manner of the Rinzai school. Myozen, the chief disciple of the patriarch Eisai, was the only of Eisai’s disciples who genuinely transmitted the supreme Buddha Dharma. None of the others could compare with him.
+> 子、發心求法よりこのかた、わが朝の遍方に知識をとぶらひき。ちなみに建仁の全公をみる。あひしたがふ霜華、すみやかに九廻をへたり。いささか臨濟の家風をきく。全公は、祖師西和尚の上足として、ひとり無上の佛法を正傳せり、あへて餘輩のならぶべきにあらず。
+
+> EB: After the desire to seek the Way awakened in me, I went to all parts of the country, calling upon religious teachers, until I chanced to encounter the priest Myozen of Kennin-ji. Swiftly passed the frosts and flowers of the nine years I stayed with him. During that time I learned something of the manner of the Rinzai school. Myozen, the chief disciple of the patriarch Eisai, was the only of Eisai’s disciples who genuinely transmitted the supreme Buddha Dharma. None of the others could compare with him.
 
 ##### 2.1.2
 
-EB: In addition, I proceeded to great Sung China, where I visited some of the leading priests of Liang-che, and learned of the different characteristics of the Five Gates. Ultimately, I went to Tai-pai peak and engaged in religious practice under the Zen master Ju-ching, until I had resolved the one great matter of Zen practice for my entire life.
+> 子、かさねて大宋國におもむき、知識を兩所にとぶらひ、家風を五門にきく。つひに太白峰の淨禪師に参じて、一生参學の大事、ここにをはりぬ。
+
+> EB: In addition, I proceeded to great Sung China, where I visited some of the leading priests of Liang-che, and learned of the different characteristics of the Five Gates. Ultimately, I went to Tai-pai peak and engaged in religious practice under the Zen master Ju-ching, until I had resolved the one great matter of Zen practice for my entire life.
+
+- “Great matter” is *daiji* (大事). *Gaku* (學) is “study” or “learn”.
 
 ##### 2.2
 
