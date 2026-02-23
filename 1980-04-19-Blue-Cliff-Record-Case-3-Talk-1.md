@@ -7,14 +7,11 @@ title: "Blue Cliff Record Case 3: Master Ma Is Unwell, Talk 1"
 
 ### Summary
 
-What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal. But on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is fleeting, ephemeral. What is the opportunity of this human body and mind? How can we communicate human life to each other, in order to enter a peaceful world? Even though body and mind are going on in the rhythm of the universe, we are always poking our head into a hole, like a cat. Do we need to stay in the hole, turning it into a den? Katagiri Roshi discusses what is *right*, in the sense of *Right Thought* and *Right View* in Buddha’s Noble Eightfold Path. He also discusses how we should relate to modern civilization, and there is a story about his brother learning to swim in the Navy.
+What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feeling of Zen Master Baso, who is about to die? In the universal perspective, life is eternal, but on the other hand, in order to express eternal life, we have to have a human body, a human mind, which is fleeting, ephemeral. What is the opportunity of this human body and mind?
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-1)
 
 #### 0:00
 
@@ -22,7 +19,7 @@ What is the meaning of “Sun Face Buddha, Moon Face Buddha”? What is the feel
 
 > Great Master Ma was unwell. The temple superintendent asked him, “Teacher, how has your venerable health been in recent days?” The Great Master said, “Sun Face Buddha, Moon Face Buddha.”
 > 
-> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 Great Zen Master Ma, [Baso Zen Master](glossary#baso-dōitsu), was the second [patriarch](glossary#patriarch) after [Huineng Zen Master](glossary#huineng).
 

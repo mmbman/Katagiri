@@ -13,20 +13,17 @@ Katagiri Roshi comments on the famous dharma encounter between Te Shan and Kuei 
 
 *(Archive Issue: In the Online Audio Archive, Talk 1 and Talk 2 are listed in reverse order. Since Talk 1 must have come before Talk 2, I have switched the dates accordingly.)*
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-4-lecture-1)
 
 #### 0:00
 
-**Katagiri Roshi:** Case Four of *Blue Cliff Record*. The title is, “Te Shan Carrying His Bundle”. 
+**Katagiri Roshi:** Case Four of *Blue Cliff Record*. The title is “Te Shan Carrying His Bundle.”
 
 Let me first read the case:
 
-> When [Te Shan](glossary#tokusan-senkan) arrived at [Kuei Shan](glossary#isan-reiyū), he carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east. He looked around and said, “There is nothing, no one.” Then he went out.
+> When Te Shan arrived at Kuei Shan, he carried his bundle with him into the teaching hall, where he crossed from east to west and from west to east. He looked around and said, “There is nothing, no one.” Then he went out.
 >
->> [Setchō](glossary#setchō-jūken) (in Chinese, Hsueh Tou) added the comment, “Completely exposed.”
+>> Setchō (in Chinese, Hsueh Tou) added the comment, “Completely exposed.”
 >
 > But when Te Shan got to the monastery gate, he said, “Still, I shouldn’t be so coarse.” So he reentered (the teaching hall) with full ceremony to meet (Kuei Shan). As Kuei Shan sat there, Te Shan held up his sitting mat and said, “Teacher!” Kuei Shan reached for his whisk, whereupon Te Shan shouted, shook out his sleeves, and left.
 >
@@ -34,11 +31,11 @@ Let me first read the case:
 >
 > Te Shan turned his back on the teaching hall, put on his straw sandals, and departed. That evening Kuei Shan asked the head monk, “Where is that newcomer who just came?” The head monk answered, “At that time he turned his back on the teaching hall, put on his straw sandals, and departed.”
 >
-> Kuei Shan said, “Hereafter that lad will go to the summit of a solitary peak, build himself a grass hut, and go on scolding the [Buddhas](glossary#buddha) and reviling the Patriarchs.”
+> Kuei Shan said, “Hereafter that lad will go to the summit of a solitary peak, build himself a grass hut, and go on scolding the Buddhas and reviling the Patriarchs.”
 >
 >> Setchō added the comment, “He adds frost to snow.”
 >
-> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
+> (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
 That is the whole story. Let me first talk simply about this story, and then I would like to read the pointer. 
 
@@ -46,7 +43,7 @@ That is the whole story. Let me first talk simply about this story, and then I w
 
 > When Te Shan arrived at Kuei Shan...
 
-Te Shan is one of the famous Zen Masters. You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of the [*Diamond Sutra*](glossary#diamond-sutra). He was commenting on the *Diamond Sutra*, so he had lots of time to give lectures everywhere in China in those days. And then at that time, he heard that Zen emphasizes that the mind itself is Buddha. But according to *Diamond Sutra*, mind itself is not Buddha, mind itself unattainable, because *Diamond Sutra* always emphasizes [emptiness](glossary#śūnyatā): the mind in the present is unattainable, mind in the past and future are unattainable. So from this point, Te Shan really doubted the Zen teaching that mind itself is Buddha. 
+Te Shan is one of the famous Zen Masters. You know there is a famous story between an old woman and Te Shan. Te Shan at that time was an outstanding teacher of the *Diamond Sutra*. He was commenting on the *Diamond Sutra*, so he had lots of time to give lectures everywhere in China in those days. And then at that time, he heard that Zen emphasizes that the mind itself is Buddha. But according to *Diamond Sutra*, mind itself is not Buddha, mind itself unattainable, because *Diamond Sutra* always emphasizes emptiness: the mind in the present is unattainable, mind in the past and future are unattainable. So from this point, Te Shan really doubted the Zen teaching that mind itself is Buddha. 
 
 So one day, he went to debate with a famous Zen Master. On his way, he rested for a while to take lunch, buying a dumpling, a rice cake at a small store pretty close to the monastery where the famous Zen Master lived. 
 
@@ -68,7 +65,7 @@ So she said, “In *Diamond Sutra*, the mind in the present is unattainable, and
 
 He was completely confused, because the *Diamond Sutra* didn’t answer his questions. So unfortunately, he couldn’t have lunch there. 
 
-But this teacher was very straightforward to the old woman, even though she was not a Zen priest or whatever they are where she was, so he asked her, “How did you learn Buddhism? Under whom did you learn?” She said, “I learned Buddhism under the guidance of a famous Zen Master who is living in the monastery pretty close to this shop. His name is [Ryōtan Zen Master](glossary#ryōtan-sūshin). You had better go there and practice under him.” So he immediately went to that monastery and practiced, instead of debating with a Zen Master about some aspect of the *Diamond Sutra*. 
+But this teacher was very straightforward to the old woman, even though she was not a Zen priest or whatever they are where she was, so he asked her, “How did you learn Buddhism? Under whom did you learn?” She said, “I learned Buddhism under the guidance of a famous Zen Master who is living in the monastery pretty close to this shop. His name is Ryōtan Zen Master. You had better go there and practice under him.” So he immediately went to that monastery and practiced, instead of debating with a Zen Master about some aspect of the *Diamond Sutra*. 
 
 That is Tokusan or Te Shan Zen Master. In the future, he was a great Zen Master in China, in the line of Rinzai. Tokusan was noted for the strict and rough training of the monks. 
 
@@ -94,7 +91,7 @@ So he went back again and he re-entered the teaching hall with full ceremony to 
 
 > As Kuei Shan sat there, Te Shan held up his sitting mat and said, “Teacher!” 
 
-At that time Kuei Shan sat there, sitting [zazen](glossary#zazen), and Te Shan held up his sitting mat. “Sitting mat” is what we call [zagu](glossary#zagu); this one. This is very traditional: wherever you may go, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this zagu and bow, and then after that you can talk and discuss. *(Transcriber’s Note: The zagu is folded into a strip when not in use, hence it could be held up. Perhaps Te Shan was moving as if to unfold it to perform bows and then did not do so.)*
+At that time Kuei Shan sat there, sitting zazen, and Te Shan held up his sitting mat. “Sitting mat” is what we call *zagu*; this one. This is very traditional: wherever you may go, when you see the teachers, first you have to express your respect to your teacher. At that time, you unfold this zagu and bow, and then after that you can talk and discuss. (*Transcriber’s Note:* The *zagu* is folded into a strip when not in use, hence it can be held up. Perhaps Te Shan was moving as if to unfold it to perform bows and then did not do so.)
 
 > Kuei Shan reached for his whisk ...
 
@@ -104,13 +101,13 @@ Immediately, Kuei Shan started to move toward the whisk. The whisk is one of the
 
 This is very interesting, because Kuei Shan didn’t say anything but immediately he started to move toward the whisk, and immediately Te Shan shouted, shook out his sleeves, and left. 
 
-In this story, let’s imagine Te Shan. First, Te Shan went to the [Buddha Hall](glossary#buddha-hall), and he walked back and forth, to the west and east, and he said, “Nothing.” “Nothing” means there is nothing in the monastery. [He might be thinking,] “I came here to check for something about Kuei Shan. I wanted to know who Kuei Shan is. But I already feel from the Buddha’s Teaching Hall that there is nothing, so it’s not necessary to see Kuei Shan.” So he left. That is really rude. *[He laughs.]* Extraordinary. Very rude. 
+In this story, let’s imagine Te Shan. First, Te Shan went to the Buddha Hall, and he walked back and forth, to the west and east, and he said, “Nothing.” “Nothing” means there is nothing in the monastery. [He might be thinking,] “I came here to check for something about Kuei Shan. I wanted to know who Kuei Shan is. But I already feel from the Buddha’s Teaching Hall that there is nothing, so it’s not necessary to see Kuei Shan.” So he left. That is really rude. *[He laughs.]* Extraordinary. Very rude. 
 
 But on the way to leaving the Zen monastery, he reflected upon himself: “Oh, I was a little bit coarse. I should go back to see Kuei Shan with [the correct attitude].” And then, as Te Shan saw Kuei Shan sitting there, that is really sort of like a snake sitting there, with its head like this, [looking at Te Shan], and Te Shan just like a frog. *[Laughter.]* 
 
 I can imagine the situation. Te Shan really was rude and boasted of himself, “[I am a] Great Zen Master.” So he went back, a little bit reflecting on himself, but still, a very “holy” air. So immediately there is Kuei Shan sitting there. And Te Shan said “Teacher!” But when Te Shan said “Teacher!”, already Kuei Shan knew his mind, because Kuei Shan could read Te Shan’s mind through the word “Teacher.” A very holy air there. But Kuei Shan didn’t say anything, because it is completely beyond discussion: no matter how long you discuss about that, you cannot correct it, or you cannot accept it, or you cannot handle it. So immediately, he tried to take the whisk. 
 
-*The whisk* means daily routine, human daily life. Without daily living, you cannot exist. Even [enlightenment](glossary#enlightenment): how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way, you cannot. I tell you very often, enlightenment is just like scenery you can see on the way during travel. It’s not something *extra*, something unusual, which makes you exciting. It is a pretty usual case: when you take a trip, very naturally you can attain enlightenment, you can see the scenery. That’s why Kuei Shan knows pretty well that for Te Shan enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very holy air. Kuei Shan knows that pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already an answer to Te Shan. 
+*The whisk* means daily routine, human daily life. Without daily living, you cannot exist. Even enlightenment: how can you attain enlightenment? Without your body and mind, can you attain enlightenment? No way, you cannot. I tell you very often, enlightenment is just like scenery you can see on the way during travel. It’s not something *extra*, something unusual, which makes you exciting. It is a pretty usual case: when you take a trip, very naturally you can attain enlightenment, you can see the scenery. That’s why Kuei Shan knows pretty well that for Te Shan enlightenment is something special. He really hangs on to enlightenment, et cetera; it makes his attitude a very holy air. Kuei Shan knows that pretty well, that’s why he immediately picked up his whisk. Picking up a whisk is already an answer to Te Shan. 
 
 Te Shan was also not a stupid monk, because he had practiced for many, many years, studying the Zen sutras, et cetera, so he was also very sharp. So immediately he shouted, he screamed, because [he thought], “What do you mean, *whisk*? What do you mean, *daily living*? You should keep your mouth shut! Enlightenment is completely beyond daily living or not daily living.” It’s sort of a “shut up!” So he shouted.
 
@@ -156,7 +153,7 @@ So finally, the comment, “He adds frost to the snow.” Finally all you have t
 
 If you pick up your daily life with consciousness, that daily life very naturally becomes conceptualized, [seeing] objects. Then immediately it becomes a red light; sometimes it becomes a yellow light. A flashing light comes up: is this good or bad? Or is this your experience you did? If you do something, immediately there is experience; that experience is nothing but a flashing light. Most people are very confused by these flashing lights. It’s not necessary to ignore it, because it is something you have to take responsibility for. But on the other hand, you cannot stop your life. All we have to do is aim at the ideal beautiful image of human life, which is called Buddha, and we have to move toward it, day by day. That is the final goal we have to do, practically. 
 
-I always tell you about [shikantaza](glossary#shikantaza): just turn on the switch. This is a very simple practice. It is too simple to understand, [really]. But this is an urgent need we have to do. 
+I always tell you about *shikantaza*: just turn on the switch. This is a very simple practice. It is too simple to understand, [really]. But this is an urgent need we have to do. 
 
 Within this urgent need of just turning on the switch, there are lots of questions. Always the question is left: is this correct? Yes or no; always. All you have to do is turn on the switch, and lots of questions [come up]: “Is that right?” “Is that wrong?” Whatever those questions are, put them aside. By practice and study, behind the switch there is lots of philosophical and psychological background. By studying this background, maybe *sometimes* the questions are solved. “Oh, Katagiri was wrong.” Or, “Katagiri was right.” Sometimes you can solve questions immediately... but sometimes not. So this ... turning on the switch every day, that is nothing to add to daily routine. If you say something about this, that is nothing but adding the frost to the snow. 
 

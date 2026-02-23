@@ -31,7 +31,7 @@ The Pointer:
 
 > When you see smoke on the other side of a mountain, you already know there is a fire; when you see horns on the other side of a fence, right away you know there is an ox there. To understand three when one is raised, to judge precisely at a glance — this is the everyday food and drink of a patchrobed monk. Getting to where he cuts off the myriad streams, he is free to arise in the east and sink in the west, to go against or to go with, in any and all directions, free to give or to take away. But say, at just such a time, whose actions are these? Look into Hsueh Tou’s trailing vines.
 > 
-> (From *The Blue Cliff Record* translated by Thomas Cleary.)
+> (From *The Blue Cliff Record* translated by Thomas Cleary & J.C. Cleary.)
 
 That is the introduction, which is called Pointer, to the main subject. Let me read the main subject:
 
@@ -39,7 +39,7 @@ That is the introduction, which is called Pointer, to the main subject. Let me r
 > 
 > Later the Emperor brought this up to Master Chih and asked him about it. Master Chih asked, “Does your majesty know who this man is?” The Emperor said, “I don’t know.” Master Chih said, “He is the Mahasattva Avalokitesvara, transmitting the Buddha Mind Seal.” The Emperor felt regretful, so he wanted to send an emissary to go invite (Bodhidharma to return). Master Chih told him, “Your majesty, don’t say that you will send someone to fetch him back. Even if everyone in the whole country were to go after him, he still wouldn’t return.”
 > 
-> (From *The Blue Cliff Record* translated by Thomas Cleary.)
+> (From *The Blue Cliff Record* translated by Thomas Cleary & J.C. Cleary.)
 
 That is the main subject. And the introduction or Pointer is – I’ll read it again. *[He reads it again.]*
 

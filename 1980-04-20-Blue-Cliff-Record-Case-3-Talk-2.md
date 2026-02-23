@@ -7,18 +7,15 @@ title: "Blue Cliff Record Case 3: Master Ma Is Unwell, Talk 2"
 
 ### Summary
 
-Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living. Also: What is the difference between zazen and taking marijuana?
+Katagiri Roshi examines the notes and verse for the “Sun Face Buddha, Moon Face Buddha” koan. If the Buddhas and ancestors dwell in nirvana, in eternity, then why do they have to die? Why do we have to practice hard, even if our practice is less than a drop in an ocean? Why do we have to continue even if there is no one who we can talk to about our suffering? Katagiri Roshi says that compassion is not something given by Buddhas or Buddhist teachings; compassion comes from us. We must have clear eyes to make it alive in our daily living.
 
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-3-lecture-2)
 
 #### 0:00
 
-**Katagiri Roshi:** \[We will go through\] [Engo Zenji’s](glossary#engo-kokugon) notes [on this case].
+**Katagiri Roshi:** [We will go through] Engo Zenji’s notes [on this case].
 
 > Great Master Ma was unwell.
 
@@ -26,13 +23,13 @@ Engo Zenji’s note says:
 
 >> This fellow has broken down quite a bit. He’s dragging in other people.
 
-I think [Shakyamuni Buddha](glossary#shakyamuni-buddha) lived for 80 years, and [Jōshū Zen Master](glossary#jōshū-jūshin) lived for 120 years. But sooner or later, whoever they are, when the time comes, they have to die. But the question is, why is it that they have to die? They dwell in [nirvana](glossary#nirvana) and the truth, eternity; if it is true, why is it that they have to die?
+I think Shakyamuni Buddha lived for 80 years, and Jōshū Zen Master lived for 120 years. But sooner or later, whoever they are, when the time comes, they have to die. But the question is, why is it that they have to die? They dwell in nirvana and the truth, eternity; if it is true, why is it that they have to die?
 
-Dōgen Zenji died when he was 53 years old. This is really [Buddha](glossary#buddha)’s compassion. Whoever you are, enlightened person or unenlightened person, [that you] have to die when the time comes [is] Buddha’s compassion, because if you live in paradise, where it is not necessary for you to die, that is not human life. In that situation I don’t think you can enlighten your stream of consciousness, [your] stream of time and space, whatever it is, because you can live so long without becoming old. When you want to get something in paradise, you can get it immediately, without suffering. There are no desires, because you can always satisfy yourself. If you can satisfy yourself, there is no need for desires. Before you say “I want to get this,” already it appears. So, there is no sense of time, no sense of stream of consciousness, no sense of impermanence. That is not the human world. At that time, you cannot have any chance to attain [enlightenment](glossary#enlightenment).
+Dōgen Zenji died when he was 53 years old. This is really Buddha’s compassion. Whoever you are, enlightened person or unenlightened person, [that you] have to die when the time comes [is] Buddha’s compassion, because if you live in paradise, where it is not necessary for you to die, that is not human life. In that situation I don’t think you can enlighten your stream of consciousness, [your] stream of time and space, whatever it is, because you can live so long without becoming old. When you want to get something in paradise, you can get it immediately, without suffering. There are no desires, because you can always satisfy yourself. If you can satisfy yourself, there is no need for desires. Before you say “I want to get this,” already it appears. So, there is no sense of time, no sense of stream of consciousness, no sense of impermanence. That is not the human world. At that time, you cannot have any chance to attain enlightenment.
 
 Of course, Buddha Shakyamuni can dwell in nirvana, eternity. But when the time comes, he has to die. This is Buddha’s compassion, in order to guide other people to attain enlightenment. Because the truth is not something which Buddha Shakyamuni gives to you, but [something] which each of us individually gets a taste of, directly from the truth as it is. [For this], you cannot always go to a teacher who exists forever. 
 
-Buddha Shakyamuni’s patriarchs, they have to die. At that time, you are – [Ānanda](glossary#ānanda), many of Buddha’s disciples are – confused. But the truth is confusion. They found a great opportunity to see the truth, which is the same enlightenment or truth as the Buddha saw.
+Buddha Shakyamuni’s patriarchs, they have to die. At that time, you are – Ānanda, many of Buddha’s disciples are – confused. But the truth is confusion. They found a great opportunity to see the truth, which is the same enlightenment or truth as the Buddha saw.
 
 #### 6:04
 
@@ -40,13 +37,13 @@ The same applies to your practice. If you look around the human world, sometimes
 
 If you practice in the human world, lots of people don’t understand why you practice. Whatever you explain – to save all sentient beings, or to see for yourself, or to understand human beings well – whatever you say, people don’t understand. Finally, maybe you feel pensive and sad, disappointed. I experience this a lot, anyway. Because, you can see how many people are really ignorant. But on the other hand, if you ask yourself, “Are you not [also] ignorant when you are enlightened?” – no, I don’t think so. That’s why we practice, every day. So from this point, broadly speaking, you who are practicing or others who don’t practice are exactly the same; not so much different. If you practice Zen, which is a little bit different from others’ practice, you are really proud of yourself. That is sometimes too much. But if you ask yourself, strictly speaking, basically you are not different from others.
 
-Anyway, you have lots of questions. “How long should I practice like this?” Or, “Will it be possible for us to attain enlightenment and nirvana? How long do we practice [zazen](glossary#zazen)?” Et cetera. Through the practice you are doing day after day, you don’t know when that will happen. And also, if you look at the human world, the human world is constantly going. There are lots of people who are starving, and there are lots of people who are fighting, and you really have a big doubt: what are you *doing* in this practice? You really want to save [people], get out from this zazen and help human beings. But how much can you help? 
+Anyway, you have lots of questions. “How long should I practice like this?” Or, “Will it be possible for us to attain enlightenment and nirvana? How long do we practice zazen?” Et cetera. Through the practice you are doing day after day, you don’t know when that will happen. And also, if you look at the human world, the human world is constantly going. There are lots of people who are starving, and there are lots of people who are fighting, and you really have a big doubt: what are you *doing* in this practice? You really want to save [people], get out from this zazen and help human beings. But how much can you help? 
 
 Well, if you can [help], anyway, do it. 
 
 Finally, no matter how long you discuss this point with yourself, there is no way to find any perfect solution. So finally what you have to do is, keep quiet. Why don’t you sit down when you have to sit down? That’s all that we have to do.
   
-In Zen, there are lots of scriptures explaining *no-mind*. Read *The Zen Doctrine of No-Mind* written by [D. T. Suzuki](glossary#d-t-suzuki). He is quoting the topic of no-mind from the words written by Bodhidharma; the title is “Discourse on the Absolute” *[He chuckles.]* This discourse really discusses no-mind: again and again, it asks what no-mind is. If you really dwell in no-mind, how can you know no-mind? *[Laughter.]* Those questions are always coming up – and answers, and questions, and answers, and questions, always appear. Read that book; that’s interesting. But finally, *what is that*? What do you have to do? Finally, all you have to do is, keep your quiet. When the time comes to die, just die. When the comes to sit, just sit. When the time comes to live in this world, to live. That’s all we have to do. 
+In Zen, there are lots of scriptures explaining *no-mind*. Read *The Zen Doctrine of No-Mind* written by D. T. Suzuki. He is quoting the topic of no-mind from the words written by Bodhidharma; the title is “Discourse on the Absolute” *[He chuckles.]* This discourse really discusses no-mind: again and again, it asks what no-mind is. If you really dwell in no-mind, how can you know no-mind? *[Laughter.]* Those questions are always coming up – and answers, and questions, and answers, and questions, always appear. Read that book; that’s interesting. But finally, *what is that*? What do you have to do? Finally, all you have to do is, keep your quiet. When the time comes to die, just die. When the comes to sit, just sit. When the time comes to live in this world, to live. That’s all we have to do. 
 
 Unfortunately, before you reach this *terminating abode*, we have to suffer. We have to struggle. That’s interesting.
 
@@ -56,7 +53,7 @@ Human beings are really interesting. We know pretty well, “Don’t do this. Do
 
 #### 14:00
 
-If you attend [sesshin](glossary#sesshin), even for today’s [sitting](glossary#sitting), I think you have a lot of questions. But whatever you think – if you see human beings who are really ignorant, who don’t understand this kind of practice, who don’t understand the depths of human life, or who are not interested in this kind of understanding – it doesn’t mean you should give up. It doesn’t mean you should be engaged in normal human life, forgetting this kind of practice, forgetting the deep understanding of human beings. It doesn’t mean that. 
+If you attend *sesshin*, even for today’s sitting, I think you have a lot of questions. But whatever you think – if you see human beings who are really ignorant, who don’t understand this kind of practice, who don’t understand the depths of human life, or who are not interested in this kind of understanding – it doesn’t mean you should give up. It doesn’t mean you should be engaged in normal human life, forgetting this kind of practice, forgetting the deep understanding of human beings. It doesn’t mean that. 
 
 If you give up this kind of practice, there is no compassion. Who helps human beings except you, except each of us individually? Who helps [then]? No one helps. So, *you* can help; each of us individually can help. This is [the] point. If you see the really ignorant human world, with ignorant people fighting each other – at that time you can really practice. That’s why you have to practice at that time, because that practice originates from your compassion.
 
@@ -68,7 +65,7 @@ Nevertheless, even though modern civilization cuts down trees and destroys natur
 
 The same applies to your practice. This is compassion, this is really Buddha’s compassion. Without this compassion, you cannot help anybody, you cannot help any beings. 
 
-That’s why Engo’s note says, “This fellow has broken down quite a bit. He’s dragging in other people.” Lots of questions. If you practice zazen and enlightenment, then immediately you can save all sentient beings – wonderful, no problem. It’s not necessary to become sick. Why did [Vimalakirti](glossary#vimalakirti) become sick? This is really true. Even though you obtain enlightenment, even though you try to practice deeply again and again, you become sick. Because, I told you before, if you look at human beings around your life ... immediately you suffer. [You ask,] “Why do you do this? Is this work useful for human beings? Or is it ridiculous?” You get really sick. 
+That’s why Engo’s note says, “This fellow has broken down quite a bit. He’s dragging in other people.” Lots of questions. If you practice zazen and enlightenment, then immediately you can save all sentient beings – wonderful, no problem. It’s not necessary to become sick. Why did Vimalakirti become sick? This is really true. Even though you obtain enlightenment, even though you try to practice deeply again and again, you become sick. Because, I told you before, if you look at human beings around your life ... immediately you suffer. [You ask,] “Why do you do this? Is this work useful for human beings? Or is it ridiculous?” You get really sick. 
 
 And also, when the time comes, whoever you are, you have to die. Regardless of whether you attain enlightenment or not, there are ignorant people there who don’t understand you, absolutely. This is a really big problem, dragging in all human beings. *Why* do you have to practice?
 
@@ -110,7 +107,7 @@ If this is just to take care of young birds [so they can] fly in the sky, well, 
 
 #### 30:10
 
-[Now] the Verse. This is [Setchō Zen Master](glossary#setchō-jūken)’s verse for the koan, and also [Engo Zen Master](engo-kokugon)’s comment on each verse. 
+[Now] the Verse. This is Setchō Zen Master’s verse for the koan, and also Engo Zen Master’s comment on each verse. 
 
 (*Transcriber’s Note:* First, here is Setchō Zen Master’s complete poem, without the comments.)
 
@@ -121,7 +118,7 @@ If this is just to take care of young birds [so they can] fly in the sky, well, 
 > This distress is worth recounting;  
 > Clear-eyed patchrobed monks should not take it lightly.  
 >
-> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR))
+> (From [*The Blue Cliff Record* translated by Thomas Cleary and J.C. Cleary](books#BCR))
 
 (*Transcriber’s Note:* And now, here is the poem with the comments, as Katagiri Roshi read it.)
   
@@ -225,7 +222,7 @@ According to Engo Zen Master, hard practice, human suffering, is unsentimental, 
 
 How can Baso speak of this? To whom? To sad people? Well, maybe they’d understand. But even if somebody understands *Sun Face Buddha, Moon Face Buddha* – who dies? Baso Zen Master dies, not the person who understands *Sun Face Buddha, Moon Face Buddha*. So that’s why Engo Zen Master asks, “to whom would you speak of this?” Finally what you have to do is, you should have clear eyes. *Who* dies? 
 
-Sometimes I feel in the United States, Buddhism is still staying in the realm of [Śrāvakabuddha](glossary#śrāvakabuddha). Śrāvakabuddha means a buddha who attains enlightenment through listening to the Buddha’s teaching. Lots of people are interested in listening to Buddha’s teaching, and in enlightenment. It’s not good enough, because it doesn’t work in your daily living. Of course you can attain enlightenment intellectually by listening to Buddha. But, why is it that a Bodhisattva has to practice a thousand years continually? *Why*? Because it’s not simple to practice your enlightenment in daily living. It’s not so simple. 
+Sometimes I feel in the United States, Buddhism is still staying in the realm of *śrāvakabuddha*. *Śrāvakabuddha* means a buddha who attains enlightenment through listening to the Buddha’s teaching. Lots of people are interested in listening to Buddha’s teaching, and in enlightenment. It’s not good enough, because it doesn’t work in your daily living. Of course you can attain enlightenment intellectually by listening to Buddha. But, why is it that a Bodhisattva has to practice a thousand years continually? *Why*? Because it’s not simple to practice your enlightenment in daily living. It’s not so simple. 
 
 Even though you understand Sun Face Buddha, Moon Face Buddha through your practice – who dies? *You* die. When the time comes, *you* have to die. You’re really confused: “I am talking about my understanding of Sun Face Buddha, Moon Face Buddha.” Of course, but there is no proof. “Katagiri, can *you* die as a Sun Face Buddha, Moon Face Buddha?” There is no proof. I can say, “Yes, I can die,” or “No.” Yes or no – there is nothing to say. Finally, we have to learn death exactly from death directly. 
 
@@ -303,7 +300,7 @@ So it is okay, if you are interested in that stuff, you should research it, unde
 
 *[There is a long pause.]*
 
-So, [Tibetan Buddhism](glossary#tibetan-buddhism) and also [Abhidharmakosha](glossary#abhidharmakosha) explains a little bit about this. So that’s interesting. It makes you sick for a while. *[Laughter.]* You experience bitterness, and that’s wonderful, in a sense. But, don’t stay in the *den* of sickness. Sickness is sickness, so sooner or later you must overcome sickness. Even though the Dharma is good – if you always hang on [to it], you are sick. Nothing but sickness. 
+So, Tibetan Buddhism and also *Abhidharmakosha* explains a little bit about this. So that’s interesting. It makes you sick for a while. *[Laughter.]* You experience bitterness, and that’s wonderful, in a sense. But, don’t stay in the *den* of sickness. Sickness is sickness, so sooner or later you must overcome sickness. Even though the Dharma is good – if you always hang on [to it], you are sick. Nothing but sickness. 
 
 Just like marijuana. Marijuana is wonderful, you know – makes you high. *[Laughter.]* And you understand immediately what death is. “Well I understand. Why don’t you take marijuana? You can understand death; you can go to death and come back.” You can understand, don’t you think so?
 
@@ -346,7 +343,6 @@ That’s why *[unintelligible]* is necessary for us. Why don’t you read “The
 *[Laughter.]*
 
 #### 1:17:28 end of recording
-
 
 ---
 

@@ -30,7 +30,7 @@ Katagiri Roshi reviews Zen Master Jōshū’s dharma encounter with a monk regar
 > 
 > Jōshū said, “It is enough to ask about the matter; [bow](glossary#bowing) and withdraw.”
 >
-> (From [*The Blue Cliff Record* translated by Thomas Cleary](books#BCR). 'Jōshū' is substitued for 'Chao Chou', since Katagiri Roshi uses the Japanese name.)
+> (From [*The Blue Cliff Record* translated by Thomas Cleary & J.C. Cleary](books#BCR). 'Jōshū' is substitued for 'Chao Chou', since Katagiri Roshi uses the Japanese name.)
 
 Jōshū was one of the greatest Zen teachers in China, in the 8th century. They say that he became a monk at 60 years old, and until his death, he practiced again and again. Dōgen really admired this Jōshū [Zen Master](glossary#zen-master); in *Shōbōgenzō* he mentioned Jōshū very often. And also, Jōshū was a great Zen Master who belonged to the [Rinzai](glossary#rinzai-zen ) line, but he never used the shouting and the stick, hitting the monks. He used very common words, he lived in a usual way. But each statement was very sharp, piercing the old monk’s heart. That’s why everyone admired him very much. Jōshū is the name of the place which was location of his temple, named Kannon-in (Chinese: Guānyīnyuàn). 
 
