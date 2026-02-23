@@ -240,7 +240,7 @@ At that time, *moment* is kind of an entity to separate from others. But if you 
 
 So, from this point, how can you do it? 
 
-If you read the *Genjokoan*, Dōgen Zenji says, 
+If you read the *Genjōkōan*, Dōgen Zenji says, 
 
 > There is no before, no after. All sentient beings at the dharma stage.
 
@@ -333,7 +333,7 @@ Do you have a question?
 
 **Question:** You said, when you do something, you have to think of tomorrow, or some moment ahead. But isn’t it possible you use your human speculation and are doing things the wrong way? 
 
-**Katagiri Roshi:** Yes. That’s why... you should read *Genjokoan*. In *Genjokoan*, Dōgen Zenji talks about the full presence of individuals, taking the example of firewood and ashes. That’s an interesting example. And in that chapter, Dōgen Zenji mentions all beings, each dharma is at the *dharma stage*. “Dharma stage” means completely *mind to mind in mutual accord*. Everything exists according to *mind to mind in mutual accord*, before you think. This is our human nature, and the nature of all sentient beings. That’s why we can live like this, in peace and harmony. 
+**Katagiri Roshi:** Yes. That’s why... you should read *Genjōkōan*. In *Genjōkōan*, Dōgen Zenji talks about the full presence of individuals, taking the example of firewood and ashes. That’s an interesting example. And in that chapter, Dōgen Zenji mentions all beings, each dharma is at the *dharma stage*. “Dharma stage” means completely *mind to mind in mutual accord*. Everything exists according to *mind to mind in mutual accord*, before you think. This is our human nature, and the nature of all sentient beings. That’s why we can live like this, in peace and harmony. 
 
 But the moment when you see the human world or trees through human speculation, there is a complication there. 
 

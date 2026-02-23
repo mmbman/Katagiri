@@ -1,5 +1,5 @@
 ---
-title: "Genjokoan: Talk 3"
+title: "Genjōkōan: Talk 3"
 ---
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -46,7 +46,7 @@ So you should live in the vast, expansive realm of the world, surrounded by all 
 
 #### 9:40
 
-Let’s look at [*Genjokoan*](topics#genjokoan).
+Let’s look at [*Genjōkōan*](topics#genjokoan).
 
 At the last sentence, there is a conclusion. The last sentence says: 
 
@@ -68,17 +68,17 @@ So, what is the responsibility for us, what is the *duty* for us, if you want to
 
 How do you develop the whole personality? It’s not your business. Your business is just to participate in this practice. That’s it! And then, the whole personality is coming up, just like water under the ground coming up. If your pipe touches the water [line], naturally water – *[shoop!]* – comes up. 
 
-When you see the water coming up from the ground, it is called *whole personality*. By which people are really impressed, and people really want to see such a person. It is necessary for us; and we have such a capability. So, finally, our purpose is just like this. That’s why it is the conclusion of *Genjokoan*.
+When you see the water coming up from the ground, it is called *whole personality*. By which people are really impressed, and people really want to see such a person. It is necessary for us; and we have such a capability. So, finally, our purpose is just like this. That’s why it is the conclusion of *Genjōkōan*.
 
 So, what is the practice for us? *[He chuckles.]* Well, we always say, “We want to attain enlightenment, we want to be enlightened person,” et cetera. We are always “juggling” in the realm of [samsara](glossary#samsara): “You are wrong, I am right,” you know? “I practiced for ten years, with this person,” “You are always lazy; you are not Buddhist.” And always, “I love him, so he is my teacher.” It’s ridiculous! *[He laughs, and there is some laughter.]* And then sometimes someone tells you bitter things: “Oh, I don’t like him. He is not my teacher.” Something like that. We’re always juggling like this. How do you understand? How do you share your life with all sentient beings, in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, [and] shaking hands – actually, practically, you never built up a peaceful world from day to day. No way. Always you are fighting; [suffering](glossary#suffering). That’s why Dōgen Zenji [speaks] like this.
 
-What is our practice? Whoever you are, what you have to do is try to turn alayavijñāna into tathāgatagarbha. Turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what *Genjokoan* explains.
+What is our practice? Whoever you are, what you have to do is try to turn alayavijñāna into tathāgatagarbha. Turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what *Genjōkōan* explains.
 
 #### 17:56
 
 Let’s go back to the first paragraph. 
 
-Let’s divide *Genjokoan* into eleven sections... 
+Let’s divide *Genjōkōan* into eleven sections... 
 
 *(From 18:20 to 21:05, Katagiri Roshi divides the text into sections. These sections mostly line up with the paragraphs in the Thomas Clearly translation we have today, with some differences. See [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm))*
 

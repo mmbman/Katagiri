@@ -79,7 +79,7 @@ So from this point, *repentance* is not to apologize in the presence of your “
 
 This way means the Bodhisattva Way is also based on the same as human action, but that of giving birth [to] buddha-dharma or “eternal child”. “Eternal child” means using your karmic life and you try to make every possible effort to give birth to the child, but that is eternal child constantly. There is some concern, some anxiety because the bodhisattva doesn’t know what kind of a child is coming. But all they have to do is to aim at giving birth to their eternal child, using their own karmic life. 
 
-That’s why Dogen Zenji says, “Please dig up the human world and turn it into golden world.” This is the last sentence of *Genjokoan*; you can read it. 
+That’s why Dogen Zenji says, “Please dig up the human world and turn it into golden world.” This is the last sentence of *Genjōkōan*; you can read it. 
 
 So you try to direct your karmic life toward that eternal target. “Eternal target” means you should live with all sentient beings, life after life, thinking constantly how to live in peace and harmony. This is difficult, but this is bodhisattva life. And not only thinking, but also *actualize* this vow, this way of life in our daily life. 
 

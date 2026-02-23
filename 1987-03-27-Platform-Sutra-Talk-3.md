@@ -203,7 +203,7 @@ That’s why Dōgen Zenji says, “When you witness one side, the other side is 
 
 That’s why in the chapter of *Shōbōgenzō* “One Bright Pearl,” Gensha Zen Master says, “The whole universe is one bright pearl.” That means, if you stand up straight, the whole world stands up straight. And also, when you come, the whole world comes; when you leave, the whole world leaves. I think you should taste this one. Otherwise, you cannot have perfect peace wherever you may be: in death, in life. When you die, you have to die; that’s it. No other world. [If] you have some slightly other world, well, you cannot die in peace. So if you die, the whole world dies with you. It’s just like ice and water. 
 
-That is [what] Dōgen Zenji [always says] in *Shōbōgenzō*: life and death, or the whole world. You can read it [in] *Genjokoan* – Dōgen Zenji [talks about it] in that one. 
+That is [what] Dōgen Zenji [always says] in *Shōbōgenzō*: life and death, or the whole world. You can read it [in] *Genjōkōan* – Dōgen Zenji [talks about it] in that one. 
 
 #### 51:30
 

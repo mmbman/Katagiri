@@ -507,7 +507,7 @@ Try, okay?
 
 **Different person:** If you have a very good teacher, always you feel like there’s something lacking in yourself. You are living up to that great calligraphy. 
 
-**Katagiri Roshi:** Ah, I see. Right, right. Dōgen Zenji says that in *Genjokoan* [...]. So that’s why you don’t understand this. So, lack of “achievement”.
+**Katagiri Roshi:** Ah, I see. Right, right. Dōgen Zenji says that in *Genjōkōan* [...]. So that’s why you don’t understand this. So, lack of “achievement”.
 
 **Question:** You’d rather keep doing... 
 

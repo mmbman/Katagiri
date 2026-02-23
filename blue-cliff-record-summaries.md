@@ -174,7 +174,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 
 ##### [Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
-Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. What is the *dharma stage*?
+Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjōkōan* is mentioned. What is the *dharma stage*?
 
 ---
 

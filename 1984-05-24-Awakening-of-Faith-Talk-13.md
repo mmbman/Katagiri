@@ -28,7 +28,7 @@ So that is the Buddhist terms *thusness* and *as-it-is-ness*. In Japanese we say
 
 So, absolute truth is pretty difficult to say. If you point out “this is absolute,” it is no longer absolute, so that’s why it’s very difficult. *Absolute* or *truth* means one – oneness – in which two beings [...] live together in peace and harmony. That is one, oneness. That is called truth or absolute. But it’s very difficult to explain what absolute is. 
 
-So very naturally, the absolute or truth is something [that] looks like a truth, but it’s not truth. [It] looks like. But if we can experience the fish, birds and sky – Dōgen Zenji mentions in the *Genjokoan* the birds and the sky: birds manifest [themselves as] the oneness between the birds and the sky. That is oneness, [it] means the truth. But within the manifestation of the truth, there are two beings that exist, birds and sky. But if a bird flies, very naturally the bird creates oneness. The bird’s life is really going in the absolute, becoming one always between the birds and the sky. If you see it intellectually, there are two, birds and sky. But in terms of oneness, bird is not exactly bird: bird is sky. Sky is bird. That's why a bird looks like a bird, but it’s not a bird – it is sky. Sky looks like the sky but it is not sky, because sky is exactly birds. So that's interconnection, interpenetration there. 
+So very naturally, the absolute or truth is something [that] looks like a truth, but it’s not truth. [It] looks like. But if we can experience the fish, birds and sky – Dōgen Zenji mentions in the *Genjōkōan* the birds and the sky: birds manifest [themselves as] the oneness between the birds and the sky. That is oneness, [it] means the truth. But within the manifestation of the truth, there are two beings that exist, birds and sky. But if a bird flies, very naturally the bird creates oneness. The bird’s life is really going in the absolute, becoming one always between the birds and the sky. If you see it intellectually, there are two, birds and sky. But in terms of oneness, bird is not exactly bird: bird is sky. Sky is bird. That's why a bird looks like a bird, but it’s not a bird – it is sky. Sky looks like the sky but it is not sky, because sky is exactly birds. So that's interconnection, interpenetration there. 
 
 So that's why *myo* means “looks like” and also “something manifested as it is, directly”. That is *myo* of *shi-myo*. 
 
@@ -172,7 +172,7 @@ Have you ever experienced this? I experience it pretty often. *[He chuckles.]* C
 
 That’s why we have to awaken to it. 
 
-**Question:** It says that in the Genjokoan, doesn’t it? About an enlightened person is enlightened about ignorance, not about enlightenment. 
+**Question:** It says that in the *Genjōkōan*, doesn’t it? About an enlightened person is enlightened about ignorance, not about enlightenment. 
 
 **Someone else:** *[Inaudible.]*
 

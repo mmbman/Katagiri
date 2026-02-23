@@ -3,7 +3,7 @@ title: "The Goldenness of the Earth, the Sweet Milk of the Long River"
 ---
 ## May 31, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjōkōan*](genjokoan)
 
 ### Summary
 
@@ -18,11 +18,11 @@ title: "The Goldenness of the Earth, the Sweet Milk of the Long River"
 
 #### 0:00
 
-The last sentence of *Genjokoan* in *Shōbōgenzō* says:
+The last sentence of *Genjōkōan* in *Shōbōgenzō* says:
 
 > The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.
 
-In *Genjokoan*, Dōgen Zenji talks about the outlook of the world and human life pretty systematically. Even though it is a very short chapter, very systematically, [point by point], he talks about the outlook of the world and human beings, how we should understand the world and human beings. And then [in] the last sentence, completely beyond the theoretical explanation of the world, he [say it] exactly like this: “The wind of Buddhism makes manifest the great earth’s goldenness.”
+In *Genjōkōan*, Dōgen Zenji talks about the outlook of the world and human life pretty systematically. Even though it is a very short chapter, very systematically, [point by point], he talks about the outlook of the world and human beings, how we should understand the world and human beings. And then [in] the last sentence, completely beyond the theoretical explanation of the world, he [say it] exactly like this: “The wind of Buddhism makes manifest the great earth’s goldenness.”
 
 Dōgen Zenji says that we have to accept the gold of the earth, and build the human world on the earth’s goldenness. And accept the rivers as sweet milk. And taste the river as the sweet milk. And then, build up human life. 
 
@@ -40,7 +40,7 @@ Is there any hope in this world? Is there any gold in this world? We try to take
 
 If you don’t understand, if you don’t see any gold or destination, you should open your heart and listen to the buddhas and ancestors who talk about hope and gold. And try to stand up – at the top of the IDS tower, from where you can see a panoramic picture of the whole universe. IDS tower is an example, okay? [You could say] the top of the Himalayan mountains. We have to reach the top of the IDS tower, which will naturally be able to see the whole picture of the universe. 
 
-I think [you should] read this *Genjokoan* with calm mind, [line by line], again and again. And then finally, you will come to this conclusion. And then when you come to this conclusion, in the *Genjokoan*, Dōgen Zenji tries to tell us. Then finally, still you don’t understand this. But, you can see some dim image, with ... pretty deep, profound aspiration, or hope. Dōgen Zenji tries to tell us. 
+I think [you should] read this *Genjōkōan* with calm mind, [line by line], again and again. And then finally, you will come to this conclusion. And then when you come to this conclusion, in the *Genjōkōan*, Dōgen Zenji tries to tell us. Then finally, still you don’t understand this. But, you can see some dim image, with ... pretty deep, profound aspiration, or hope. Dōgen Zenji tries to tell us. 
 
 Even though we don’t understand, let’s try to reach that IDS tower. From where? You should take your proper stand, in order to see the whole panoramic picture of the universe. 
 
@@ -70,7 +70,7 @@ And also we have to carry this tiny deal *forever*, and under all circumstances,
 
 At that time, whatever happens, you never drift in the ocean of human life, you can sail across the ocean of human life. 
 
-This is the point Dōgen Zenji mentions in the last sentence of the *Genjokoan*. I will read it again: 
+This is the point Dōgen Zenji mentions in the last sentence of the *Genjōkōan*. I will read it again: 
 
 > The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.
 
@@ -88,4 +88,4 @@ But your body and mind biologically belongs to any denomination. That’s fine. 
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjōkōan*](genjokoan)

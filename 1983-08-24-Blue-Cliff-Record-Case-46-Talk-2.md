@@ -234,7 +234,7 @@ But before you attain enlightenment, how can you understand everything is buddha
 
 So even though you don’t understand, you don’t experience this, actually through the teaching you should find the destination. So you should accept that destination, because this is the destination you have to go [toward]. So that is called *faith*, or belief. Or *receive* and keep it. In the Lotus Sutra, [it] always says “receive and keep, and practice.” So faith is [to] totally accept and receive, receive the Buddha’s teaching. 
 
-So at that time, all sentient beings become buddha. According to *Genjokoan*, Dōgen Zenji says, “When [...] all dharmas are buddha dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” Something like this. [This is] exactly the same. So you can accept totally all sentient beings as equal entities, no discrimination. 
+So at that time, all sentient beings become buddha. According to *Genjōkōan*, Dōgen Zenji says, “When [...] all dharmas are buddha dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” Something like this. [This is] exactly the same. So you can accept totally all sentient beings as equal entities, no discrimination. 
 
 That is seeing the human world, human beings, with the eyes of the path. That is the first point. 
 
@@ -244,7 +244,7 @@ The second [point]: “Explaining sound and form.” Next, you have to understan
 
 If the birds are buddha nature, [do the] birds have a kind of lamp of buddha, a kind of “avocado seed”? No, I don’t think so. *Buddha* means human beings and birds and trees are all the same. That means no particular form of the self. That is equality. That is egolessness. 
 
-So, according the *Genjokoan*, Dōgen Zenji says, “When the ten thousand dharmas are without self, there are no delusions, no enlightenment, no buddhas, no creatures, no life and no death.” Very naturally, you can see the real picture of the microphone, real picture of the trees. That is really no-self. 
+So, according the *Genjōkōan*, Dōgen Zenji says, “When the ten thousand dharmas are without self, there are no delusions, no enlightenment, no buddhas, no creatures, no life and no death.” Very naturally, you can see the real picture of the microphone, real picture of the trees. That is really no-self. 
 
 *No-self* means that everything has a certain reason why they exist. Even devils. Even trees, even birds. They have a reason why they exist, completely beyond human speculation, good or bad, right or wrong. So they exist, exactly. That is called buddha nature. 
 
@@ -276,7 +276,7 @@ My actions are based on *feelings*, *perceptions*, *impulses*, [and] *consciousn
 
 So it really depends on individual actions, individual life in motion, every day. Because basically your life is clear water, beyond good or bad, right and wrong: so-called buddha nature. You cannot say you are “bad boy,” you cannot say you are “good boy”; this is the real reality of your life. But nevertheless, your individual life is there! What is this? This is really depending on your actions: you can create your own life, depending on your actions. Blue ink, and red ink; black ink sometimes. And then [you] create lots [of world]. 
 
-So that’s why Dōgen Zenji says next in *Genjokoan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live – because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dōgen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
+So that’s why Dōgen Zenji says next in *Genjōkōan*, “However.” “The buddha way transcends being and nonbeing, therefore there are life and death, ordinary people and buddhas...” And everyone exists, beyond good or bad, right or wrong. That’s why can live – because we have everything as a reason why it exists. No comment. Nothing to destroy. This is a peaceful world. “However,” we have to return to human life. If you are a human being, you have to return to human being. Come back to reality. Wake up. You cannot stay always [in the] peaceful world, [tranquility], silence – no. You have to come back, because you create your own life, from moment to moment. So that’s why Dōgen Zenji says, “However, flowers fall just giving rise to attachment, and weeds spring up arousing antipathy.”
 
 So this is reality, this is a fact you experience. Whatever you say, philosophical or psychological, well, this is a fact. 
 

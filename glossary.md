@@ -267,7 +267,7 @@ Dharma as action, activity.
 ## Dhātu
 
 - [Save All Sentient Beings (26:00)](1980-03-15-Save-All-Sentient-Beings#2600)
-- [Genjokoan: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+- [Genjōkōan: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
 ## Diamond Sutra
 
@@ -393,7 +393,7 @@ Gempo Yamamoto Roshi was the teacher of [Sōen Nakagawa](glossary#sōen-nakagawa
 
 - [*Blue Cliff Record* Case 2, Lecture 1 (44:30)](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#4430)
 
-## Genjokoan
+## Genjōkōan
 
 Genjōkōan – "Actualizing the Fundamental Point" – is one of the first and best-known of [Dōgen's](glossary#dogen) works, and appears as an early chapter in [Shōbōgenzō](#shobogenzo). It is both an introduction to and overview of Dōgen's teachings. 
 

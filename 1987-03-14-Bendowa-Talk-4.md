@@ -307,7 +307,7 @@ So that’s why you have to realize it through the consciousness. But if you rea
 
 So another trap, and another trap, again and again. That’s why Dōgen Zenji says you must be free from original realization, *then* your practice penetrates your life, naturally. 
 
-I think you can read *Genjokoan* again, and *Genjokoan* talks about ashes and kindling, and life and death. Usually we believe kindling becomes ashes, in the time process. But in Buddhism, we don’t believe it. If you believe kindling becomes ashes, kindling is before ashes, ashes is after kindling – if you believe it, this is a misunderstanding. *[He laughs.]*
+I think you can read *Genjōkōan* again, and *Genjōkōan* talks about ashes and kindling, and life and death. Usually we believe kindling becomes ashes, in the time process. But in Buddhism, we don’t believe it. If you believe kindling becomes ashes, kindling is before ashes, ashes is after kindling – if you believe it, this is a misunderstanding. *[He laughs.]*
 
 **Someone:** Would you clarify that, please? Because that’s what *I* believe. *[She laughs.]*
 
@@ -317,7 +317,7 @@ So within that total function of the kindling, there is ashes. Okay? So it’s n
 
 So that’s why Dōgen Zenji says, there is [a] complete cut off [of] before and after, but there is before and after. When the kindling really takes care of its own life exactly like this, then before and after is cut off. But, it’s connected. 
 
-So *Genjokoan* says:
+So *Genjōkōan* says:
 
 > Kindling becomes ash and cannot become kindling again, however we shouldn’t see the ash as after and the kindling as before. Know that kindling abides in the normative state of kindling. 
 

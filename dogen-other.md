@@ -5,6 +5,9 @@ title: "Other Dōgen Fascicles"
 
 This page will list references to Dōgen’s writings for which we do not have complete talks. 
 
+##### *Shōji*: Life and Death
+
+- [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1” at 6:40](1980-01-19-Blue-Cliff-Record-Case-2-Talk-1#640)
 
 ##### *Shisho*: Document of Heritage
 

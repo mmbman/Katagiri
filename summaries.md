@@ -48,7 +48,7 @@ Katagiri Roshi talks about the difference between zazen itself and seeing zazen 
 
 ##### [*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6](1979-06-14-Fukanzazengi-Talk-6)
 
-Katagiri Roshi explains “body and mind dropping off” from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” In relation to this, Katagiri Roshi explains a key line from Dōgen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi explains “body and mind dropping off” from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” In relation to this, Katagiri Roshi explains a key line from Dōgen’s *Genjōkōan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 <br/>
 
@@ -284,7 +284,7 @@ Cease and desist. Why does Nan Ch’uan say we may see a flower as a kind of dre
 
 ##### [*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 2](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2)
 
-Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjokoan* is mentioned. What is the *dharma stage*?
+Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjōkōan* is mentioned. What is the *dharma stage*?
 
 <br/>
 
@@ -668,31 +668,31 @@ Katagiri Roshi summarizes the origins and development of the concept of *karma*,
 
 <br/>
 
-##### [*Genjokoan*: Talk 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
+##### [*Genjōkōan*: Talk 1](1987-06-06-Shobogenzo-Genjokoan-Talk-1)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Genjokoan*: Talk 2](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
+##### [*Genjōkōan*: Talk 2](1987-06-06-Shobogenzo-Genjokoan-Talk-2)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Genjokoan*: Talk 3](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
+##### [*Genjōkōan*: Talk 3](1987-06-07-Shobogenzo-Genjokoan-Talk-3)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Genjokoan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
+##### [*Genjōkōan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 
 Summary not yet available.
 
 <br/>
 
-##### [*Genjokoan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+##### [*Genjōkōan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
 Summary not yet available.
 

@@ -1,5 +1,5 @@
 ---
-title: "Genjokoan: Talk 2"
+title: "Genjōkōan: Talk 2"
 ---
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -134,7 +134,7 @@ Okay? Is that clear? *[He chuckles.]* A little bit complicated, huh?
 
 *Constantly going* means something permanent. There are three meanings of the permanent in Buddhism. One is the essence of nature, essence of existence, is going permanently. That is understandable. The second: change. As origination, and extinction, origination, extinction, origination; appearance, disappearance; are going in perpetual series. That is the second meaning. In other words, change is going in perpetual series. Third: intermittence. Intermittence is going in perpetual series. 
 
-Tomorrow, I want to get into the [*Genjokoan*](topics#genjokoan) a little bit, as a whole. But in *Genjokoan* Dōgen Zenji mentions that before and after is cut off. But, before and after are coming together. It’s complicated, but that is called intermittence of time is going in perpetual series. At that time, intermittence is not longer intermittent; it’s permanent, because it’s going, constantly. But even though you say *consistently*, still we are caught by the concept. It’s not a constant; it’s still intermittent there. Behind the word so-called *constantly*, your thinking is cut off in pieces. So still you don’t know exactly what the permanent is. That’s why Buddhism mentions three meanings of permanence. So permanence is not permanent; simultaneously you can say that permanence is impermanent. So, impermanence must be found in permanence. Permanence must be found in impermanence. Because, this is reality. That’s why this is a little bit different from the usual sense of permanence. 
+Tomorrow, I want to get into the [*Genjōkōan*](topics#genjokoan) a little bit, as a whole. But in *Genjōkōan* Dōgen Zenji mentions that before and after is cut off. But, before and after are coming together. It’s complicated, but that is called intermittence of time is going in perpetual series. At that time, intermittence is not longer intermittent; it’s permanent, because it’s going, constantly. But even though you say *consistently*, still we are caught by the concept. It’s not a constant; it’s still intermittent there. Behind the word so-called *constantly*, your thinking is cut off in pieces. So still you don’t know exactly what the permanent is. That’s why Buddhism mentions three meanings of permanence. So permanence is not permanent; simultaneously you can say that permanence is impermanent. So, impermanence must be found in permanence. Permanence must be found in impermanence. Because, this is reality. That’s why this is a little bit different from the usual sense of permanence. 
 
 **Question:** Sorry, I missed the first of the three components.
 
@@ -174,13 +174,13 @@ How can you take care of your life? Sometimes, there is no way. Katagiri is Kata
 
 But that is nothing to hurt anything, because in that realm of the world, all sentient beings are included. So [there is] nothing to hurt. If you hurt something, you fall away from it. So that is the Bodhisattva category and Buddhas category; you should learn this. This is the advantage of practice for human beings. 
 
-If you are a priest, you should taste and chew and digest what I told you today again and again. And then read this *Genjokoan*; then you can really feel the spirit. Tomorrow I want to get into this.
+If you are a priest, you should taste and chew and digest what I told you today again and again. And then read this *Genjōkōan*; then you can really feel the spirit. Tomorrow I want to get into this.
 
 One more thing. Usually people say, “You should attain enlightenment. You should be aware. If you’re not aware, if you don’t realize, if you don’t attain enlightenment, you are not Buddhist; you are a stupid guy.” *[Laughter]* That is not the [Buddhistic](glossary#buddhistic ) way; no. It’s a complete misunderstanding. Alright?
 
 So, please [try to] understand what I have said today again and again. And then, if you understand what I said: [...] even though you attain enlightenment, originally where [are you]? Originally means very basically, profoundly, where [are you] standing. You are standing in the realm of six consciousnesses, or seventh consciousness. Yes, you are. But simultaneously, the very source of your presence is alayavijñāna, tathāgatagarbha. What is that? That is just the flow of energies, which is very pure and clear. So that is called *you are Buddha*, where all sentient beings exist just like that. We should learn that, okay? Basically, profoundly, you are already present there. That’s why even though you attain enlightenment, still there is opportunity, possibility to manifest this. So how is that? That’s why I say, finally, when you do gassho, please do gassho. That’s it.
 
-Dōgen Zenji mentions “from the beginning,” just like this. It’s a little bit difficult to understand; that’s why you should digest what I said again and again. Then, if you get into this *Genjokoan*, it’s a little bit easier to understand. So tomorrow I want to get into it.
+Dōgen Zenji mentions “from the beginning,” just like this. It’s a little bit difficult to understand; that’s why you should digest what I said again and again. Then, if you get into this *Genjōkōan*, it’s a little bit easier to understand. So tomorrow I want to get into it.
 
 Do you have a question?
 

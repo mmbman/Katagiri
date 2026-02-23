@@ -7,7 +7,7 @@ title: "Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 6"
 
 ### Summary
 
-Katagiri Roshi explains “body and mind dropping off” from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” In relation to this, Katagiri Roshi explains a key line from Dōgen’s *Genjokoan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
+Katagiri Roshi explains “body and mind dropping off” from the standpoint of Buddhist psychology. This talk focuses on *samskaras*, which is often translated as “impulses” or “formations,” but here is discussed as the “together-maker.” In relation to this, Katagiri Roshi explains a key line from Dōgen’s *Genjōkōan*: “Oneness is not like moon reflected in the water; when one is bright, the other one is dark.” He also discusses the lines from *Fukanzazengi*, “It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to knowledge and perceptions?” During a discussion of the “forces” of *prāpti* and *aprāpti*, he tells a story about the 1948 Fukui earthquake in Japan.
 
 ### Transcript
 
@@ -111,7 +111,7 @@ Then finally what you have to do is: stop it. Stop it. How can you stop it? You 
 
 And then, the problem is, mind associates with it and attaches to it; at that time, you cannot see the oneness. And then, the mind misunderstands oneness. 
 
-For instance, [the mind understands that] oneness is just like “the moon reflected in the water.” [That is a] combination of two things; it is not oneness, because two different things exist. So Dōgen Zenji says it like this in the *Genjokoan*:
+For instance, [the mind understands that] oneness is just like “the moon reflected in the water.” [That is a] combination of two things; it is not oneness, because two different things exist. So Dōgen Zenji says it like this in the *Genjōkōan*:
 
 > Oneness is not like moon reflected in the water, water in which moon is reflected.
 

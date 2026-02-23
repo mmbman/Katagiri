@@ -249,7 +249,7 @@ So if something acts on your object, it is something actual.
 
 **Katagiri Roshi:** Object, yes. If you act on your object, it’s actual. For instance, if you think Europe, it’s already [actual]. Imaginary, whatever you say – imaginary. But if you don’t think it, Europe is there, and also it is in your thoughts, still related in your thoughts, but it’s very quiet. 
 
-So the whole world exists like that. That’s why Dōgen Zenji says, “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist.” [That’s] the first sentence Dōgen Zenji says in the *Genjokoan*. That is completely [the] whole world is belonging to your life. And then at that time, it is called *all sentient beings*. That is your world. 
+So the whole world exists like that. That’s why Dōgen Zenji says, “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist.” [That’s] the first sentence Dōgen Zenji says in the *Genjōkōan*. That is completely [the] whole world is belonging to your life. And then at that time, it is called *all sentient beings*. That is your world. 
 
 Is that alright? Actual things? 
 

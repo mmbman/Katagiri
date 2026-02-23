@@ -1,9 +1,9 @@
 ---
-title: "Genjokoan: A, B, and C Worlds"
+title: "Genjōkōan: A, B, and C Worlds"
 ---
 ## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-06-20-Manas) | [Next](1987-12-19-Transformation-through-Play) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-20-Manas) | [Next](1987-12-19-Transformation-through-Play) | [List](list#1987) | Series: [*Genjōkōan*](genjokoan)
 
 ### Transcript
 
@@ -18,7 +18,7 @@ title: "Genjokoan: A, B, and C Worlds"
 
 #### 0:00
 
-**Katagiri Roshi:** \[At the beginning of] *Shōbōgenzō* *Genjokoan* [it says]:
+**Katagiri Roshi:** \[At the beginning of] *Shōbōgenzō* *Genjōkōan* [it says]:
 
 > When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are [Buddhas](glossary#buddha), there are sentient beings.
 
@@ -140,4 +140,4 @@ But practically speaking, for instance, if you want to master dance or skiing or
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-06-20-Manas) | [Next](1987-12-19-Transformation-through-Play) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-20-Manas) | [Next](1987-12-19-Transformation-through-Play) | [List](list#1987) | Series: [*Genjōkōan*](genjokoan)
