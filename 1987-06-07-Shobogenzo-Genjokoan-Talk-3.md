@@ -1,5 +1,5 @@
 ---
-title: "Genjokoan: Talk 3 (Flow)"
+title: "Genjokoan: Talk 3"
 ---
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 

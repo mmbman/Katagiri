@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His 
 
 ### Summary
 
-Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And: wherever you may go, you can feel pain.
+Katagiri Roshi discusses the pointer to this case. What is our potential? What is the rhythm of life? What does it mean to be a “smoked dry fish,” and how can we avoid it? Should we look for a “flashy” enlightenment? Should we become a Zen bank robber? Also: How to cook puffer fish. How to lose money in San Francisco. And also: wherever you may go, you can feel pain.
 
 ### Transcript
 
