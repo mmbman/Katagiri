@@ -17,10 +17,10 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [*Fukanzazengi*: Universal Recommendation for Zazen](fukanzazengi)
     - [Notes on *Fukanzazengi*](fukanzazengi-notes)
 - [*Gakudō-yōjinshū*: Principles of Practice](principles-of-practice)
+- [*Genjōkōan*](genjokoan)
 
 - [*Baika*: Plum Blossoms](baika)
 - [*Gabyō*: Painting of a Rice Cake](gabyo)
-- [*Genjōkōan*](genjokoan)
 - [*Kokyō*: The Ancient Mirror](kokyo)
 - [*Kuge*: Flowers in the Sky](kuge)
 - [Mindfulness](mindfulness): from *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Factors of Bodhi”
