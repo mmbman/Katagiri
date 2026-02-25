@@ -348,8 +348,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Hosshō*: Dharma Nature – Talk 12
 1. *Hosshō*: Dharma Nature – Talk 13
 
-1. [*Kokyo*: Form and Mirror – Talk 1](1986-10-18-Shobogenzo-Kokyo-Talk-1)
-1. [*Kokyo*: Form and Mirror – Talk 2](1986-10-19-Shobogenzo-Kokyo-Talk-2)
+1. [*Kokyō*: Form and Mirror – Talk 1](1986-10-18-Kokyo-Talk-1)
+1. [*Kokyō*: Form and Mirror – Talk 2](1986-10-19-Kokyo-Talk-2)
 
 1. [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 
@@ -364,7 +364,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. Bowing
 
-1. *Gabyō*: Painting of a Rice Cake – Talk 1
+1. [*Gabyō*: Painting of a Rice Cake – Talk 1](1986-12-01-Gabyo-Talk-1)
 1. *Gabyō*: Painting of a Rice Cake – Talk 3
 1. *Gabyō*: Painting of a Rice Cake – Talk 4
 1. *Gabyō*: Painting of a Rice Cake – Talk 5
