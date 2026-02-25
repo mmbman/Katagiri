@@ -75,7 +75,7 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1
 - [Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 1](1984-01-21-Blue-Cliff-Record-Case-52-Talk-1)
 - [Case 52: Chao Chou Lets Asses Cross, Lets Horses Cross – Talk 2](1984-01-22-Blue-Cliff-Record-Case-52-Talk-2)
 - [Case 53: Pai Chang’s Wild Ducks](1984-01-25-Blue-Cliff-Record-Case-53)
-- Case 54
+- [Case 54: Yun Men Extends Both Hands](1984-02-08-Blue-Cliff-Record-Case-54)
 - Case 55 Talk 1
 - Case 55 Talk 3
 - Case 57 Talk 1
