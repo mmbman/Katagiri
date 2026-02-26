@@ -3,7 +3,7 @@ title: "Genjōkōan: Talk 3"
 ---
 ## June 7, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) | [Next](1987-06-20-Manas) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-06-Genjokoan-Talk-2) | [Next](1987-06-20-Manas) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -293,4 +293,4 @@ If you become a spiritual teacher, you must be like that. You cannot be a *front
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-06-06-Shobogenzo-Genjokoan-Talk-2) | [Next](1987-06-20-Manas) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-06-06-Genjokoan-Talk-2) | [Next](1987-06-20-Manas) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)

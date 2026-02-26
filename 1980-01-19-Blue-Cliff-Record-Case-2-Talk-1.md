@@ -57,7 +57,7 @@ At that time, do your gymnastics come from the bar? Or does the function of your
 
 So, you should use your consciousness and understand what the bar is, what you are, *to the minimum*. And then what you have to do is *release*: forget yourself and throw yourself *into* the bar. This is the point. But we always research what the bar is; this is ontology. Buddhism is not ontology; Buddhism is [epistemology], the study of recognition. That means the bar and you – not to research what the bar is objectively, but right now, right here, how you can understand or recognize the bar. That is what is called Buddhist psychology, Buddhist philosophy. That is still something objective. And then, the final goal is you should communicate with the bar. This is *Zen*: directly practice. 
 
-(*Transcriber's Note*: It sounds like the word he is using above is *etymology*, but following [“Genjōkōan: Talk 2”](1987-06-06-Shobogenzo-Genjokoan-Talk-2), the word is *epistemology*.)
+(*Transcriber's Note*: It sounds like the word he is using above is *etymology*, but following [“Genjōkōan: Talk 2”](1987-06-06-Genjokoan-Talk-2), the word is *epistemology*.)
 
 So, that means you should get one hundred percent. *How*? It is not the study of [recognition], is not the study of ontology; what you have to do, right now, right here, is you have to grasp the bar, one hundred percent. Not ninety percent, not *ninety-nine* percent; you have to *grasp*. This is always the main point that Buddhism emphasizes.
 

@@ -5,16 +5,9 @@ title: "The Goldenness of the Earth, the Sweet Milk of the Long River"
 
 #### [Previous](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [Next](1986-06-28-Turning-the-Three-Poisons-into-Wheels) | [List](list#1986) | Series: [*Genjōkōan*](genjokoan)
 
-### Summary
-
 ### Transcript
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-goldenness-of-the-earth-the-sweet-milk-of-the-long-river" target="_blank">Listen to this talk</a>
-</p>
-
-***This transcript is in rough draft stage.***
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-goldenness-of-the-earth-the-sweet-milk-of-the-long-river)
 
 #### 0:00
 

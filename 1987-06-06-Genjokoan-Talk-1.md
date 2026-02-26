@@ -3,7 +3,7 @@ title: "Genjōkōan: Talk 1"
 ---
 ## June 6, 1987 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1987-05-23-Karma-in-Buddhism) | [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-05-23-Karma-in-Buddhism) | [Next](1987-06-06-Genjokoan-Talk-2) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
 
 ### Transcript
 
@@ -285,4 +285,4 @@ Is that okay? Do you have any other questions? We will have a discussion class.
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1987-05-23-Karma-in-Buddhism) | [Next](1987-06-06-Shobogenzo-Genjokoan-Talk-2) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
+#### [Previous](1987-05-23-Karma-in-Buddhism) | [Next](1987-06-06-Genjokoan-Talk-2) | [List](list#1987) | Series: [*Genjokoan*](genjokoan)
