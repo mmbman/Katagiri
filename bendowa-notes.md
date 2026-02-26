@@ -8,7 +8,7 @@ title: "Notes on Bendōwa"
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Bendōwa*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-[SZ] indicates text from the Sotoshu translation of *Shōbōgenzō*.  [EB] indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  “MD” indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
+[SZ] indicates text from the Sotoshu translation of *Shōbōgenzō*.  [EB] indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  [MD] indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
 
 ----
 
@@ -51,9 +51,9 @@ without alteration and realizing supreme and complete awakening.
 	- [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1) - as “the purpose of spiritual life,” in relation to *prajñāpāramitā*.
 	- [“Principles of Practice, Talk 2: Bodhicitta”](1986-03-20-Principles-of-Practice-Talk-2) - as *bodhicitta* or bodhi-mind, or “one-mind of the Buddha.”
 	- [“Three Collective Pure Precepts” at 15:02](1986-04-26-Three-Collective-Pure-Precepts#1502) - in connection to the Three Collective Pure Precepts.
-	- [“*Diamond Sutra*, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization”.
+	- [“*Diamond Sutra*, Talk 9: Emptiness” at 11:27](1979-08-01-Diamond-Sutra-Emptiness#1127) – as identical with *sho*, “realization.”
 
--  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing” (souce: [Wikipedia: “Wu wei”](https://en.wikipedia.org/wiki/Wu_wei)). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed”. (*Moon in a Dewdrop*, glossary, p. 346.)
+-  In Chinese, *wu wei* (無爲) – translated here as “unconditioned” or “free from human agency” – is a philosophical term literally meaning “not-acting” or “not-doing” (souce: [Wikipedia: “Wu wei”](https://en.wikipedia.org/wiki/Wu_wei)). In Japanese the term is *mui*; it translates the Sanskrit term *asamskrita*, and has the same meaning as “unconstructed.” (*Moon in a Dewdrop*, glossary, p. 346.)
 
 ##### 1.2
 
@@ -74,9 +74,9 @@ without alteration and realizing supreme and complete awakening.
     - [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005) - the connection with karma is noted.
     - [“*The Awakening of Faith* – Talk 37” at 22:20](1986-04-18-Awakening-of-Faith-Talk-37#2220) - with regard to ceremonies, particularly funeral services.
     - [“Turning the Three Poisons into Wheels” at 15:46](1986-06-28-Turning-the-Three-Poisons-into-Wheels#1546) - with regard to the precepts and the three poisons.
-    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) – as “wow!” or “ahhh”. 
+    - [“Zazen: Entry to the Buddha Dharma”](1987-03-07-Zazen-Entry-to-the-Buddha-Dharma) – as “wow!” or “ahhh.” 
     - [“*Platform Sutra* – Talk 7”](1987-04-24-Platform-Sutra-Talk-7) – on not understanding it.
-    - [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854) – on the connection with or equivalence to *ki* or “momentum of time and energy”.
+    - [“*Baika*: Plum Blossoms – Talk 2” at 58:54](1988-12-03-Baika-Talk-2#5854) – on the connection with or equivalence to *ki* or “momentum of time and energy.”
     - [“*Baika*: Plum Blossoms – Talk 5”](1988-12-06-Baika-Talk-5) - TBD.
 
 ##### 1.3
@@ -89,7 +89,7 @@ without alteration and realizing supreme and complete awakening.
 > 
 > [MD] Sitting upright, practicing Zen, is the authentic gate to the unconfined realm of this samadhi.
 
--  “To disport” is *yuge* (遊戯), from Sanskrit *vikrīḍita* (विक्रीडित). Apparantly this appears as *yuke* (遊化) in this version of Bendōwa (EB, p. 129). *Yu* is “to play.” *Ge* means “to transform.” Katagiri Roshi comments on *yuge* in “[Disporting with the Buddhas: Transformation through Play](1987-12-19-Transformation-through-Play)”. 
+-  “To disport” is *yuge* (遊戯), from Sanskrit *vikrīḍita* (विक्रीडित). Apparantly this appears as *yuke* (遊化) in this version of Bendōwa (EB, p. 129). *Yu* is “to play.” *Ge* means “to transform.” Katagiri Roshi comments on *yuge* in “[Disporting with the Buddhas: Transformation through Play](1987-12-19-Transformation-through-Play).” 
 
 - *Upright sitting* (端坐): for the character *za* 坐, “sitting”, see [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
 
@@ -182,7 +182,7 @@ could you be hindered by nodes in bamboo or knots in wood?
 
 > [EB] In addition, I proceeded to great Sung China, where I visited some of the leading priests of Liang-che, and learned of the different characteristics of the Five Gates. Ultimately, I went to Tai-pai peak and engaged in religious practice under the Zen master Ju-ching, until I had resolved the one great matter of Zen practice for my entire life.
 
-- “Great matter” is *daiji* (大事). *Gaku* (學) is “study” or “learn”.
+- “Great matter” is *daiji* (大事). *Gaku* (學) is “study” or “learn.”
 
 ##### 2.2
 
