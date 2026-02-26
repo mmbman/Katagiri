@@ -11,7 +11,8 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 
 ### Dōgen Studies
 
-#### Basics
+Basics:
+
 - [Introduction to Dōgen Studies](dogen-intro)
 - [*Bendōwa*: A Talk on Pursuing the Way](bendowa)
 	- [Notes on *Bendōwa*](bendowa-notes)
@@ -20,7 +21,8 @@ This website transcribes the dharma talks of Dainin Katagiri Roshi as a referenc
 - [*Gakudō-yōjinshū*: Principles of Practice](principles-of-practice)
 - [*Genjōkōan*](genjokoan)
 
-#### More
+More:
+
 - [*Baika*: Plum Blossoms](baika)
 - [*Gabyō*: Painting of a Rice Cake](gabyo)
 - [*Kokyō*: The Ancient Mirror](kokyo)
