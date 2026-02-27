@@ -173,9 +173,13 @@ growing when we despise them.”
 
 ##### 11.2
 
+> [TC] The experience of the Buddha Teaching, the living road of right transmission, is like this. To say that since (the nature of wind) is permanent one should not use a fan, and that one should feel the breeze even when not using a fan, is not knowing permanence and not knowing the nature of the wind either. 
+
+##### 11.3 
+
 > 風性は常住なるがゆえに、佛家の風は、大地の黄金なるを現成せしめ、長河の蘇酪を参熟せり。
 
-> [TC] The experience of the Buddha Teaching, the living road of right transmission, is like this. To say that since (the nature of wind) is permanent one should not use a fan, and that one should feel the breeze even when not using a fan, is not knowing permanence and not knowing the nature of the wind either. Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth’s being gold and by participation develops the long river into butter.
+> [TC] Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth’s being gold and by participation develops the long river into butter.
 
 - [“The Goldenness of the Earth, the Sweet Milk of the Long River”](1986-05-31-Goldenness-of-the-Earth): “The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.” This is a short talk or part of a talk on this subject, presented as the culminating point of *Genjōkōan*, and indeed as the point of Buddhism.
 
