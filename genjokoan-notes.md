@@ -4,11 +4,11 @@ title: "Notes on Genjōkōan"
 
 #### by Kikan Michael Howard
 
-#### Updated February 23, 2026
+#### Updated February 27, 2026
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Genjōkōan*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen* (or perhaps an earlier version of it), which Katagiri Roshi used in some talks.
+[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen* (or perhaps an earlier version of it), which Katagiri Roshi used in talks in 1986 and 1987.
 
 ----
 
