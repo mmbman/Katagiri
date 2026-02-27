@@ -87,25 +87,25 @@ growing when we despise them.”
 
 ##### 2.2
 
-> Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
+> [TC] Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
 
 - [“*Genjōkōan*: Talk 3” at 48:01](1987-06-07-Genjokoan-Talk-3#4801)
 
 ##### 2.3
 
-> Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. 
+> [TC] Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. 
 
 - [“*Genjōkōan*: Talk 3” at 50:17](1987-06-07-Genjokoan-Talk-3#5017)
 
 ##### 2.4
 
-There are also those who attain enlightenment on top of enlightenment, and there are those who are further deluded in the midst of delusion. 
+> [TC] There are also those who attain enlightenment on top of enlightenment, and there are those who are further deluded in the midst of delusion. 
 
 - [“*Genjōkōan*: Talk 3” at 52:17](1987-06-07-Genjokoan-Talk-3#5217)
 
 ##### 2.5
 
-> When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood — Buddhas go on realizing.
+> [TC] When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood — Buddhas go on realizing.
 
 - [“*Genjōkōan*: Talk 3” at 53:10](1987-06-07-Genjokoan-Talk-3#5310)
 
