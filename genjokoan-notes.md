@@ -34,6 +34,12 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [“A, B, and C Worlds”](1987-06-27-A-B-and-C-Worlds)
 
+- [“*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2” at 46:44](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2#4644) “When all dharmas are buddha-dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” This appears perhaps to be Katagiri Roshi’s somewhat off-the-cuff translation. Here there is a short but important discussion of this line in terms of “seeing the human world, human beings, with the eyes of the path” and “[accepting] totally all sentient beings as equal entities.” *Faith* is “[to] totally accept and receive.”
+
+- [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6) “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist” – discussion here related to whether objects are “actual” and the meaning of “all sentient beings.”
+
+
+
 ##### 1.2
 
 > 萬法ともにわれにあらざる時節、まどひなく、さとりなく、諸佛なく、衆生なく、生なく、滅なし。
@@ -113,6 +119,8 @@ There are also those who attain enlightenment on top of enlightenment, and there
 
 - [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 6” at 28:46](1979-06-14-Fukanzazengi-Talk-6#2846): on “Oneness is not like moon reflected in the water, water in which moon is reflected – when one is bright, the other one is dark.”
 
+- [“*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 1” after 34:30](1988-10-15-Blue-Cliff-Record-Case-87-Talk-1#3430): Katagiri Roshi says, “When one side, your life, appears precisely and clearly, so-called *I*, at that time the rest of the beings, the other persons and trees and birds, don’t appear in front. Their life becomes very obscure; but they always support you as the contents of your life. That’s why you cannot ignore others’ life.”
+
 ##### 4
 
 > [TC] Studying the Buddha Way is studying oneself. Studying oneself is forgetting oneself. Forgetting oneself is being enlightened by all things. Being enlightened by all things is causing the body-mind of oneself and the body-mind of others to be shed. There is ceasing the traces of enlightenment, which causes 
@@ -129,7 +137,13 @@ There are also those who attain enlightenment on top of enlightenment, and there
 
 > [TC] Kindling becomes ash, and cannot become kindling again. However, we should not see the ash as after and the kindling as before. Know that kindling abides in the normative state of kindling, and though it has a before and after, the realms of before and after are disconnected. Ash, in the normative state of ash, has before and after. Just as that kindling, after having become ash, does not again become kindling, so after dying a person does not become alive again. This being the case, not saying that life becomes death is an established custom in Buddhism—therefore it is called unborn. That death does not become life is an established teaching of the Buddha; therefore we say imperishable. Life is an individual temporal state, death is an individual temporal state. It is like winter and spring—we don’t think winter becomes spring, we don’t say spring becomes summer.
 
-- [“*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 2” at 36:34](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634): “We must realize that firewood is at the dharma stage of firewood, and although being possessed of before and after, the firewood is cut off from before and after.” There is an explanation here of “normative state” or “dharma stage”.
+- [“*Bendōwa*: Dōgen's Questions & Answers – Talk 4” at 59:50](5950): discussion of these lines in connection with *jijuyu samadhi* and “you are you-ing.”
+
+- [“*Baika*: Plum Blossoms – Talk 3” at 31:18](1988-12-04-Baika-Talk-3#3118): extensive commentary.
+
+- [“*Blue Cliff Record* Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 2” at 36:34](1983-02-02-Blue-Cliff-Record-Case-40-Talk-2#3634): “We must realize that firewood is at the dharma stage of firewood, and although being possessed of before and after, the firewood is cut off from before and after.” There is an explanation of “normative state” or “dharma stage.”
+
+- [“*Blue Cliff Record* Case 50: Yun Men’s Every Atom Samadhi” at 43:00](1984-01-04-Blue-Cliff-Record-Case-50#4300) and [1:06:50](1984-01-04-Blue-Cliff-Record-Case-50#10650): More on “no before, no after” and “dharma stage.” Much of the talk is about “passing beyond stages.”
 
 ##### 7
 
@@ -143,7 +157,9 @@ There are also those who attain enlightenment on top of enlightenment, and there
 
 ##### 9
 
-> [TC] As a fish travels through water, there is no bound to the water no matter how far it goes; as a bird flies through the sky，there’s no bound to the sky no matter how far it flies. While this is so, the fish and birds have never been apart from the water and the sky—it’s just that when the need is large the use is large，and when the requirement is small the use is small. In this way, though the bounds are unfailingly reached everywhere and tread upon in every single place, the bird would instantly die if it left the sky and the fish would instantly die if it left the water. Obviously, water is life; obviously the sky is life. There is bird being life. There is fish being life. There is life being bird, there is life being fish. There must be progress beyond this—there is cultivation and realization, the existence of the living one being like this.
+> [TC] As a fish travels through water, there is no bound to the water no matter how far it goes; as a bird flies through the sky, there’s no bound to the sky no matter how far it flies. While this is so, the fish and birds have never been apart from the water and the sky—it’s just that when the need is large the use is large, and when the requirement is small the use is small. In this way, though the bounds are unfailingly reached everywhere and tread upon in every single place, the bird would instantly die if it left the sky and the fish would instantly die if it left the water. Obviously, water is life; obviously the sky is life. There is bird being life. There is fish being life. There is life being bird, there is life being fish. There must be progress beyond this—there is cultivation and realization, the existence of the living one being like this.
+
+- [“*The Awakening of Faith* – Talk 13: Tathagatagarbha & Alayavijnana”](1984-05-24-Awakening-of-Faith-Talk-13): these lines come up in discussion of *shi-myo* or “thusness”, alayavijnana and tathagatagarbha.
 
 ##### 10
 
@@ -164,5 +180,7 @@ There are also those who attain enlightenment on top of enlightenment, and there
 - [“The Goldenness of the Earth, the Sweet Milk of the Long River”](1986-05-31-Goldenness-of-the-Earth): “The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.” This is a short talk or part of a talk on this subject, presented as the culminating point of *Genjōkōan*, and indeed as the point of Buddhism.
 
 - [“*Genjōkōan*: Talk 3” at 9:40](1987-06-07-Genjokoan-Talk-3#940): Katagiri Roshi begins his line-by-line discussion of *Genjōkōan* with the last line presented as the destination.
+
+- [“The Need and Way of Repentance”](1988-08-10-The-Need-and-Way-of-Repentance): “Please dig up the human world and turn it into golden world”: “direct your karmic life toward that eternal target,” the “eternal child.”
 
 - It’s worth noting that the interpretation of the final line in the Sōtōshū translation of *Shōbōgenzō* differs from that presented here. The exploration of this is left as an excercise. 

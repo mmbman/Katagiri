@@ -212,7 +212,7 @@ Because the serene lake and trees exist in the same state of being. So all being
 
 So, that’s why, and at the same time, the rest of beings do not appear in front, but completely support it, and become excellent contents for it. 
 
-That’s why Dogen Zenji says, “when you witness one side, one side is obscure.” (*Transcriber’s Note:* This is from *Genjōkōan*.) When one side, your life, appears precisely and clearly, so-called *I*, at that time the rest of the beings, the other persons and trees, birds, don’t appear in front. Their life becomes very obscure; but they always support you as the contents of your life. That’s why you cannot ignore others’ life. 
+That’s why Dogen Zenji says, “when you witness one side, one side is obscure.” (*Transcriber’s Note:* This is from *Genjōkōan*.) When one side, your life, appears precisely and clearly, so-called *I*, at that time the rest of the beings, the other persons and trees and birds, don’t appear in front. Their life becomes very obscure; but they always support you as the contents of your life. That’s why you cannot ignore others’ life. 
 
 But apparently, the egoistic sense always tries to ignore, and is saying “don’t touch me.” That is a human problem; that always happens. 
 

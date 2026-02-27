@@ -20,6 +20,7 @@ Basics:
     - [Notes on *Fukanzazengi*](fukanzazengi-notes)
 - [*Gakudō-yōjinshū*: Principles of Practice](principles-of-practice)
 - [*Genjōkōan*](genjokoan)
+	- [Notes on *Genjōkōan*](genjokoan-notes)
 
 More:
 
