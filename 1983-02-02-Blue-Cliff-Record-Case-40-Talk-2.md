@@ -5,10 +5,6 @@ title: "Blue Cliff Record Case 40: Nan Ch’uan’s It’s Like a Dream, Talk 2"
 
 #### [Previous](1983-01-26-Blue-Cliff-Record-Case-40-Talk-1) | [Next](1983-02-09-Blue-Cliff-Record-Case-41-Talk-1) | [List](list#1983) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
-### Summary
-
-Katagiri Roshi discusses the verse to Case 40 of the *Blue Cliff Record*. *Genjōkōan* is mentioned. What is the *dharma stage*?
-
 ### Transcript
 
 *(Archive Issue: Case 40 Talks 1 and 2 are transposed in the online archive. The link here is to the audio for “Lecture 1”, which is actually Lecture 2.)*
@@ -152,7 +148,7 @@ That means, Dōgen Zenji always tells us, that is just continuous practice. At t
 
 In *Genjōkōan*, Dōgen Zenji says: 
 
-> When Buddhas are genuinely Buddhas, there is no need for them to be conscious that they are Buddhas. Yet they are realized Buddhas, and they continue to realize Buddhas. 
+> When Buddhas are genuinely Buddhas, there is no need for them to be conscious that they are Buddhas; yet they are realized Buddhas, and they continue to realize Buddhas. 
 
 So, continue to realize Buddhas. This realization of Buddhas is just carried on, day by day, from moment to moment. 
 

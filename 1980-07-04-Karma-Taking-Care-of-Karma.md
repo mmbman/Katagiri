@@ -200,7 +200,7 @@ How can you take care of it? This is karma. It’s really karma.
 
 That’s why Dōgen Zenji says (in *Genjōkōan*),
 
-> The Buddha Way is completely beyond the concept of being or not-being. That’s why there are human beings and buddhas, life and death, delusion and enlightenment.
+> The Buddha Way is completely beyond the concept of being or not-being, that’s why there are human beings and buddhas, life and death, delusion and enlightenment.
 
 Because everyone is great being. If everything is great being, everything is entitled to live. Before you criticize, before you put a certain label on it, this is the actual picture of human life.
 
