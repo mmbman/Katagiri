@@ -20,6 +20,8 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 > [SZ] The Realized Koan  
 > [TC] The Issue at Hand  
 
+- For the meaning of *genjō* and *kōan* see [“*Genjōkōan*: Talk 1” at 42:48](1987-06-06-Genjokoan-Talk-1#4248).
+
 - [“*Gabyō*: Painting of a Rice Cake – Talk 1” at 43:27](1986-12-01-Gabyo-Talk-1#4327): discussion of the term *genjō* as actualization or manifestation in the immediate present, or “subjectivity”.
 
 ##### 1.1

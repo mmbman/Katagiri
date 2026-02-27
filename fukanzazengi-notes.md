@@ -4,7 +4,7 @@ title: "Notes on Fukanzazengi"
 
 #### by Kikan Michael Howard
 
-#### Updated February 18, 2026
+#### Updated February 27, 2026
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This document is a work in progress. I will update this page as I transcribe talks and find additional references.
 
@@ -287,6 +287,8 @@ clean?
 > 公案現成、籮籠未到。若得此意、如龍得水、似虎靠山。  
 >  
 > [SZ] It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. 
+
+- “The koan realized” (公案現成) is the same characters as *Genjōkōan* (現成公案), only in the order “*kōan genjō*.” For the meaning of *genjō* and *kōan* see [“*Genjōkōan*: Talk 1” at 42:48](1987-06-06-Genjokoan-Talk-1#4248). See also [“*Gabyō*: Painting of a Rice Cake – Talk 1” at 43:27](1986-12-01-Gabyo-Talk-1#4327) for *genjō* as “actualization or manifestation in the immediate present” or “subjectivity.” 
 
 ##### 24
 
