@@ -14,3 +14,4 @@ title: "Genjōkōan"
 - [Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
 - [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
+See also [Notes on *Genjōkōan*](genjokoan-notes).
