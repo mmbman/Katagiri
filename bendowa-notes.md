@@ -8,7 +8,7 @@ title: "Notes on Bendōwa"
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Bendōwa*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-[SZ] indicates text from the Sotoshu translation of *Shōbōgenzō*.  [EB] indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  [MD] indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
+[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [EB] indicates text from “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157, which was the translation that Katagiri Roshi used most often.  [MD] indicates text from *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.  
 
 ----
 
