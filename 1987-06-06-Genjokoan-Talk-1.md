@@ -11,7 +11,7 @@ title: "Genjōkōan: Talk 1"
 
 #### 0:00
 
-**Katagiri Roshi:** At this time, I would like to study *egolessness* through Dōgen’s teaching, particularly *Genjōkōan*. You have the textbook; the title in English is “The Issue At Hand.” (*Transcriber’s Note:* The translation is Thomas Cleary’s, from *Shōbōgenzō: Zen Essays by Dōgen*. It is available on the internet.)
+**Katagiri Roshi:** At this time, I would like to study *egolessness* through Dōgen’s teaching, particularly *Genjōkōan*. You have the textbook; the title in English is “The Issue At Hand.” (*Transcriber’s Note:* The translation is Thomas Cleary’s, from *Shōbōgenzō: Zen Essays by Dōgen*.)
 
 There are two crucial points in practicing and studying Buddhism in general. The first one is the practice of egolessness. I don’t know how I can say it; probably you have a question how you should practice egolessness. But anyway, temporarily I use [the term] *the practice of egolessness*. 
 
