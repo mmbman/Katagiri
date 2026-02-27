@@ -77,7 +77,7 @@ growing when we despise them.”
 
 - [“*Genjōkōan*: Talk 3” at 35:12](1987-06-07-Genjokoan-Talk-3#3512)
 
-- [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “Nevertheless, flowers fall with human attachment, weeds grow with hatred.” [KR] The connection with karma, and specifically “taking care of karma,” is mentioned.
+- [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “Nevertheless, flowers fall with human attachment, weeds grow with hatred.” The connection with karma, and specifically “taking care of karma,” is mentioned.
 
 ##### 2.1
 
