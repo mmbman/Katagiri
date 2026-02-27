@@ -37,7 +37,7 @@ The case:
 
 > Having penetrated through and out of birth and death, he sets his devices in motion. 
 
-*Devices* means living function, or living working, vivid working. So he set vivid working in motion; not idealistically. He uses living working as it is, beyond concept. That is that “he sets his devices in motion.”
+*Devices* means living function, or living working, vivid working. So he sets vivid working in motion: not idealistically, he uses living working as it is, beyond concept. That is that “he sets his devices in motion.”
 
 “Having penetrated through and out of birth and death”: *penetrates through birth and death* is not to see birth and death objectively. Birth and death must be taken as your own problem of life and death. 
 
