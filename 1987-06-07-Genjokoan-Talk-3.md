@@ -7,54 +7,47 @@ title: "Genjōkōan: Talk 3"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
-
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2" target="_blank">Listen to this talk</a>
-</p>
-
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/egolessness-lecture-2)
 
 #### 0:00
 
-**Katagiri Roshi:** Yesterday I mentioned that the important point in [Buddhism](glossary#buddhism) is that we have to feel deeply and directly who we are; such as tasting, realizing *manas*, psychologically speaking. At that time, the realization of manas guides you to touch karmic life, coming from past life. That is [*alayavijñāna*](glossary#alayavijñāna). 
+**This transcript is in draft stage.**
+
+**Katagiri Roshi:** Yesterday I mentioned that the important point in Buddhism is that we have to feel deeply and directly who we are; such as tasting, realizing *manas*, psychologically speaking. At that time, the realization of manas guides you to touch karmic life coming from past life. That is *alayavijñāna*. 
 
 And then, I think it is not good enough for us to deeply or directly feel or to taste who you are by meditation. You have to reach alayavijñāna, so-called karmic consciousness, karmic life, but at that time there is still a problem: that we are stuck in the concept of karmic life. 
 
-Alayavijñāna is characterized by something going in perpetual series, from the past, through the present, to the future. So, [there is] nothing to pin down there, nothing to grasp, nothing to keep you stuck. It’s always going. If you really feel what your karmic life is, finally there is no concept of *your own* karmic life. Finally what you can see is just [the] flow of energy; that’s it. That is called [*tathāgatagarbha*](glossary#tathāgatagarbha).
+Alayavijñāna is characterized by something going in perpetual series, from the past, through the present, to the future. So [there is] nothing to pin down there, nothing to grasp, nothing to keep you stuck; it’s always going. If you really feel what your karmic life is, finally there is no concept of *your own* karmic life. Finally what you can see is just [the] flow of energy; that’s it. That is called *tathāgatagarbha*. 
 
-There is nothing to put a name on; it is kind of just a perpetual flow of energy. It’s very difficult to put a name on it, but it’s really something real, because it supports your life and also all sentient beings. That is called tathāgatagarbha. At that time, you really appreciate it. 
+There is nothing to put a name on; it is kind of just a perpetual flow of energy. It’s very difficult to put a name on it, but it’s really something real, because it supports your life and also all sentient beings; that is called tathāgatagarbha. At that time, you really appreciate it. And then from this, I think religious [ascertainment], and relaxation, or relief, naturally oozes from the bottom of your heart. That is called *faith*. 
 
-And then from this, I think religious [ascertainment], and relaxation, or relief, naturally oozes from the bottom of your heart. That is called *faith*. 
-
-So, the main purpose of Buddhist practice is to taste [ego consciousness](glossary#ego-consciousness), who you are, deeply through meditation – but, it’s not good enough. The farther practice is to taste karmic life not only conceptually, but directly. You should *participate* in alayavijñāna. What is direct participation in alayavijñāna? That is just movement, flow; perpetual flow of energy to live, to be present. Not only for you, but with all sentient beings. That is [the] final purpose of Buddhism.
+So, the main purpose of Buddhist practice is to taste ego consciousness, who you are, deeply, through meditation – but, it’s not good enough. The farther practice is to taste karmic life not only conceptually, but directly. You should *participate* in alayavijñāna. What is direct participation in alayavijñāna? That is just movement, flow; perpetual flow of energy to live, to be present – not only for you, but with all sentient beings. That is [the] final purpose of Buddhism.
 
 #### 4:57
 
 I also mentioned yesterday that most people believe that if you don’t attain enlightenment then you are not Buddhist, you are really a lower class of human being, but I don’t think it is true. Whether you are a deluded person or you are an enlightened person, all sentient beings are [aware]. You should remember this!
 
-But I mentioned that if you see your life individually, under all circumstances you want to live! Where does that desire come from? [Is it] your own desire? No; [it is] not your own desire. I gave you my own story: When the bomb exploded, I immediately ran and jumped into the hole, and chanted the name of Amitaba. Was that my desire? No way; not my desire. No choice. So under all circumstances, everyone has great energy, capacity to live, to *be*. Completely beyond like or dislike. 
+But I mentioned that if you see your life individually, under all circumstances you want to live! Where does that desire come from? [Is it] your own desire? No; [it’s] not your own desire. I gave you my own story: When the bomb exploded, I immediately ran and jumped into the hole, and chanted the name of Amitaba. Was that my desire? No way, not my desire – no choice. Under all circumstances, everyone has great energy, capacity to live, to *be* – completely beyond like or dislike. So you should live there, from the beginning. You should appreciate this energy; you should appreciate this life force gifted to you, from the beginningless past.
 
-So, you should live there, from the beginning. You should appreciate this energy; you should appreciate this life force gifted to you, from the beginningless past. Anyway, you already have [this] great capacity.
-
-That is [what] we temporarily call [Buddha Nature](glossary#buddha-nature). Or, 2500 years ago, [Buddha Shakyamuni](glossary#shakyamuni-buddha) mentioned, “All are Buddha.” Temporarily, we call [that] Buddha. Buddha is a person who realizes that perpetual flow of energy, flow of existence, constantly [moving] from the beginningless past to the endless future. 
+Anyway, you already have [this] great capacity. That is [what] we temporarily call *buddha-nature*. Or, 2500 years ago, Buddha Shakyamuni said, “All are Buddha.” Temporarily, we call [that] Buddha. *Buddha* is a person who realizes that perpetual flow of energy, flow of existence, constantly [moving] from the beginningless past to the endless future. 
 
 You should participate directly in it. So, what is that? Just be there. And then, manifest it. 
 
-So, strictly speaking, I think everyone is in Buddha’s great world. I think even though you are not an enlightened person, [there is no] discrimination between [Buddha](glossary#buddha) and ordinary people. You are not an enlightened person, but originally you *are* an enlightened person: because you already survive, you are living from day to day. By your own effort? Yes it is [by own effort], but something more than that: by the help of the grasses, rains, sunshine, humidity, the air. By all sentient beings, you can survive. This is the *true* reality. 
+Strictly speaking, I think everyone is in Buddha’s great world. Even if you are not an enlightened person, [there is no] discrimination between Buddha and ordinary people. You are not an enlightened person, but originally you *are* an enlightened person: because you already survive, you are living from day to day. By your own effort? Yes it is, but something more than that: by the help of the grasses, rains, sunshine, humidity, the air. By all sentient beings, you can survive. This is the *true* reality. 
 
-So you should live in the vast, expansive realm of the world, surrounded by all sentient beings. Usually we always see the world in the narrow way: “this is my world,” “that is your world,” separately. But first of all we should live in that enormously expansive realm of existence. That is called Buddha Nature. We are Buddha.
+So you should live in the vast, expansive realm of the world, surrounded by all sentient beings. Usually we see the world in the narrow way: “this is my world; that is your world,” separately. But first of all we should live in that enormously expansive realm of existence. That is called buddha-nature. We are Buddha.
 
 #### 9:40
 
-Let’s look at [*Genjōkōan*](topics#genjokoan).
+Let’s look at *Genjōkōan*.
 
 At the last sentence, there is a conclusion. The last sentence says: 
 
 > Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth's being gold and by participation develops the long river into butter.
 >
-> (From “The Issue at Hand” translated by Thomas Cleary. The text is available on  [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
+> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary.)
 
-“The wind of Buddhism”: In this case Dōgen Zenji uses *wind* because he quoted the story of [Zen Master](glossary#zen-master) Hōtetsu of Mount Mayoku using a fan, et cetera. That’s why he is talking about the wind, created by fan. The “wind of Buddhism” means Buddha’s family. So in this case, wind means *lifestyle*; the refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family. So, their life has [a] really refined lifestyle [...] What is it? That is to manifest the earth. *The earth* means *alayavijñāna*, karmic life. 
+“The wind of Buddhism”: In this case Dōgen Zenji uses “wind” because he quoted the story of Zen Master Hōtetsu of Mount Mayoku using a fan, et cetera. That’s why he is talking about the wind created by fan. “The wind of Buddhism” means Buddha’s family. So in this case, wind means *lifestyle*; the refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family. Their life has [a] really refined lifestyle [...] What is it? That is to manifest the earth. *The earth* means *alayavijñāna*, karmic life. 
 
 “Being gold”: Turning earth – turning alayavijñāna – into gold means *tathāgatagarbha*. 
 
@@ -64,23 +57,21 @@ At the last sentence, there is a conclusion. The last sentence says:
 
 “Into butter”: Sweet butter, sweet milk, wonderful milk. That means Buddha’s world; [a] peaceful, harmonious world. 
  
-So, what is the responsibility for us, what is the *duty* for us, if you want to be present in this world as a human being? That is, a human being who has the great refined lifestyle of Buddha’s family. What is the duty? Our duty is to turn the earth – alayavijñāna, alaya world, karmic life – into gold – which means tathāgatagarbha, Buddha’s world. How? You should participate in it, directly. Regardless of whether you judge yourself, “I am enlightened,” or “I am unenlightened,” it doesn’t matter. All you have to do is you should participate in this practice directly, day by day. And then at that time, your life ripens, very naturally. So you can develop the long river: your whole life, including past, present, and future, into butter, sweet butter – that means into the peaceful, harmonious world. That is your total personality coming up.
+So, what is the responsibility for us, what is the *duty* for us, if you want to be present in this world as a human being – that is, a human being who has the great refined lifestyle of Buddha’s family. What is the duty? Our duty is to turn the earth – alayavijñāna, alaya world, karmic life – into gold – which means tathāgatagarbha, Buddha’s world. How? You should participate in it directly. Regardless of whether you judge yourself, “I am enlightened,” or “I am unenlightened,” it doesn’t matter. All you have to do is you should participate in this practice directly, day by day, and then at that time your life ripens, very naturally. So you can develop the long river: your whole life, including past, present, and future, into butter, sweet butter – that means into the peaceful, harmonious world. That is your total personality coming up.
 
-How do you develop the whole personality? It’s not your business. Your business is just to participate in this practice. That’s it! And then, the whole personality is coming up, just like water under the ground coming up. If your pipe touches the water [line], naturally water – *[shoop!]* – comes up. 
+How do you develop the whole personality? It’s not your business. Your business is just to participate in this practice. That’s it! And then the whole personality is coming up, just like water under the ground coming up. If your pipe touches the water [line], naturally water – *[shoop!]* – comes up. 
 
 When you see the water coming up from the ground, it is called *whole personality*. By which people are really impressed, and people really want to see such a person. It is necessary for us; and we have such a capability. So, finally, our purpose is just like this. That’s why it is the conclusion of *Genjōkōan*.
 
-So, what is the practice for us? *[He chuckles.]* Well, we always say, “We want to attain enlightenment, we want to be enlightened person,” et cetera. We are always “juggling” in the realm of [samsara](glossary#samsara): “You are wrong, I am right,” you know? “I practiced for ten years, with this person,” “You are always lazy; you are not Buddhist.” And always, “I love him, so he is my teacher.” It’s ridiculous! *[He laughs, and there is some laughter.]* And then sometimes someone tells you bitter things: “Oh, I don’t like him. He is not my teacher.” Something like that. We’re always juggling like this. How do you understand? How do you share your life with all sentient beings, in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, [and] shaking hands – actually, practically, you never built up a peaceful world from day to day. No way. Always you are fighting; [suffering](glossary#suffering). That’s why Dōgen Zenji [speaks] like this.
+So, what is the practice for us? *[He chuckles.]* Well, we always say, “We want to attain enlightenment, we want to be an enlightened person,” et cetera. We are always “juggling” in the realm of *samsara*: “You are wrong; I am right,” you know? “I practiced for ten years, with this person”; “You are always lazy; you are not Buddhist.” And always, “I love him, so he is my teacher.” It’s ridiculous! *[He laughs, and there is some laughter.]* And then sometimes someone tells you bitter things: “Oh, I don’t like him. He is not my teacher.” Something like that. We’re always juggling like this. How do you understand? How do you share your life with all sentient beings in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, [and] shaking hands – actually, practically, you never built up a peaceful world from day to day. No way. Always you are fighting; suffering. That’s why Dōgen Zenji [teaches] like this.
 
-What is our practice? Whoever you are, what you have to do is try to turn alayavijñāna into tathāgatagarbha. Turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what *Genjōkōan* explains.
+What is our practice? Whoever you are, what you have to do is try to turn alayavijñāna into tathāgatagarbha – turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what *Genjōkōan* explains.
 
 #### 17:56
 
-Let’s go back to the first paragraph. 
+Let’s go back to the first paragraph, [and] divide *Genjōkōan* into eleven sections... 
 
-Let’s divide *Genjōkōan* into eleven sections... 
-
-*(From 18:20 to 21:05, Katagiri Roshi divides the text into sections. These sections mostly line up with the paragraphs in the Thomas Clearly translation we have today, with some differences. See [link](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm))*
+(*Transcriber’s Note:* From 18:20 to 21:05, Katagiri Roshi divides the text into sections, mostly lining up with the paragraphs in the Thomas Clearly translation but with some differences. I follow these section numbers in the [Notes on Genjokoan](genjokoan-notes).)
 
 *(He has someone read the first section:)*
 
@@ -115,7 +106,7 @@ And then, next:
 
 > When the myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
 
-*(Transcriber’s Note: Katagiri Roshi says* dharmas *instead of* things *here.)*
+(*Transcriber’s Note:* The Cleary translation uses “things” to translate “dharmas.” Here Katagiri Roshi says *dharmas*.)
 
 Then at that time, you are you, but you are not you – you are all sentient beings. You are supported by all sentient beings. So you shouldn’t always attach to yourself: “I am great.” I don’t think so; that is really egoistic! If you become *really* great, in other words if you really become mature, you don’t know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water; people just participate in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It’s not a stream of water, so [there is] always bumping. Lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we *[unintelligible]*.
 
@@ -143,7 +134,7 @@ That’s really hatred coming up. Flowers bloom and weeds grow beyond your hatre
 
 But on the other hand, you cannot ignore that feeling. So Dōgen Zenji says let’s come back to everyday life as a human being. [...] What do you feel [about] flowers or weeds? Do you feel love? Do you feel you love the weeds? Are you *sure* you love the weeds? We always cut the grass, and then some people say, “don’t cut the grass,” you know? Are you sure you love the weeds? Are you sure you love the insects and the mosquitos? Are you sure? But – do you hate them? Are you sure? You don’t hate, you don’t love; [you] don’t know. 
 
-But, it is a fact [that] you feel hatred or you feel love. This is a fact. Very straightforwardly, look at your human life. Your feeling, hatred or love, is not the usual sense of love or hatred you have thought for a long time. Let’s see it a different way, okay? That’s why Dōgen Zenji says the last sentence. He says [to] first bring up the Buddha’s world [as] how to see the human world. You should see the world in terms of Buddha’s eye. If so, should you hate the [samsaric](glossary#samsara) world? No. Come back, please come back – to the human life which exists day by day; with feelings, emotions; hatred, anger, et cetera. 
+But, it is a fact [that] you feel hatred or you feel love. This is a fact. Very straightforwardly, look at your human life. Your feeling, hatred or love, is not the usual sense of love or hatred you have thought for a long time. Let’s see it a different way, okay? That’s why Dōgen Zenji says the last sentence. He says [to] first bring up the Buddha’s world [as] how to see the human world. You should see the world in terms of Buddha’s eye. If so, should you hate the samsaric world? No. Come back, please come back – to the human life which exists day by day; with feelings, emotions; hatred, anger, et cetera. 
 
 That’s why yesterday I mentioned that I think instead of always handling a feeling of sadness, we should go back to the important point: how to live, how to see the world; in other words, your basic attitude toward human life. So let the different way you should see the world, from the Buddha’s eye. That is our practice. Because feelings, sadness, always appear just like bubbles coming up. You love feelings so much, but next moment they disappear, and love turns into hatred. So it’s always very uneasy. But you cannot ignore it; that’s why Dōgen Zenji brings it up. Don’t ignore this one. But that feeling – sadness, hatred – is not something you should hate or you should love. You should take care of hatred or love as the Buddha’s world, as a decoration of the Buddhas’ land. 
 
@@ -171,7 +162,7 @@ It is something like [that] an owl can see everything at night. “By practice, 
 
 ... because I create it. 
 
-But on the other hand, if so, it is wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion; please use delusion in universal perspective. That is the [bodhisattva](glossary#bodhisattva) practice. That’s why bodhisattvas suffer from their life, and also from [other] people’s life, all sentient beings’ life – how to help all sentient beings.
+But on the other hand, if so, it is wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion; please use delusion in universal perspective. That is the bodhisattva practice. That’s why bodhisattvas suffer from their life, and also from [other] people’s life, all sentient beings’ life – how to help all sentient beings.
 
 #### 48:01
 
@@ -183,7 +174,7 @@ So your life, your delusion is already manifested in the advent of myriad things
 
 So, delusion and enlightenment work together. That’s why a bodhisattva is always characterized by walking with all sentient beings hand in hand, instead of getting into Buddha’s position, becoming Buddha. They don’t want that! So, [they are] always walking. But behind the bodhisattva’s delusion, there is a Buddha there; so-called enlightenment. That’s why, if you read scriptures, always the bodhisattva appears in front, and behind [there are] Buddhas. Always the Buddha is behind the bodhisattva, supporting. 
 
-So if you read the scriptures, there is always something very quiet, silent, beyond a bodhisattva’s activities in the front. There is some quietness. That quietness is described sometimes as [emptiness](glossary#śūnyatā).
+So if you read the scriptures, there is always something very quiet, silent, beyond a bodhisattva’s activities in the front. There is some quietness. That quietness is described sometimes as *emptiness*.
 
 It’s very interesting: if you sit down quietly and read scriptures, very naturally, you can see first the bodhisattva’s activities and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
 
@@ -195,7 +186,7 @@ Next,
 
 You should know what delusion is: that is called Buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become a bodhisattva. And then you can help, you can share. 
 
-For instance, [if] you always try to help, but people don’t accept you. This is [suffering](glossary#suffering). But suffering is okay... [Well,] not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people, whatever happens, accepting or not accepting. Anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is [being] a bodhisattva. 
+For instance, [if] you always try to help, but people don’t accept you. This is suffering. But suffering is okay... [Well,] not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people, whatever happens, accepting or not accepting. Anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is [being] a bodhisattva. 
 
 That delusion is really supported by enlightenment. That’s why the next sentence says, 
 
@@ -215,7 +206,7 @@ In the saying,
 
 > When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood, Buddhas go on realizing.
 
-That’s why [we ask,] “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri mentions this, Buddha mentions this, [ancestors](glossary#ancestor) mention this. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
+That’s why [we ask,] “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri mentions this, Buddha mentions this, ancestors mention this. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
 
 So, it’s just like your body soaks in the stream, and then your whole body is wet, but we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; then next moment, some thirst comes again. So to really quench your thirst, you jump into the water; you soak your body and mind in the river. And then, the river water soaks through your huge pores. Your body is just like a bamboo basket. Do you understand? Like the pores. But you don’t believe it. If you soak [your body], then water falls through there, lots of [...] holes, the pores. *[He chuckles.]*
 
@@ -247,9 +238,9 @@ This last [part],
 
 > when you witness one side, one side is obscure.
 
-This is a crucial point of Buddha’s practice. If you explain this point, then the teaching of [egolessness](glossary#egolessness), interconnection, interpenetration, interdependent co-origination, comes up. But “when you witness one side, the other side is obscure” [means] the whole world is penetrated to you. At that time, your life becomes very secure, very secure. Stand up and walk. Gassho becomes gassho; gassho settles in gassho, exactly. Because the whole world is gassho; the whole world is walking. 
+This is a crucial point of Buddha’s practice. If you explain this point, then the teaching of egolessness, interconnection, interpenetration, interdependent co-origination, comes up. But “when you witness one side, the other side is obscure” [means] the whole world is penetrated to you. At that time, your life becomes very secure, very secure. Stand up and walk. Gassho becomes gassho; gassho settles in gassho, exactly. Because the whole world is gassho; the whole world is walking. 
 
-That’s why Dōgen Zenji says, “the mountain walks.” Intellectually, you cannot believe it, but from this point of view, the mountain walks. How do you know? You just walk. And then, the whole mountain walks. The same applies to sports, and everything. Without this, you cannot taste the profundity of sports, the profundity of arts, the profundity of physics. No. 
+That’s why Dōgen Zenji says, “the mountain walks.” Intellectually, you cannot believe it, but from this point of view, the mountain walks. How do you know? You just walk; and then, the whole mountain walks. The same applies to sports, and everything. Without this, you cannot taste the profundity of sports, the profundity of arts, the profundity of physics. No. 
 
 So, this is a key point. And then, the rest of [the sections are] explaining about this in a concrete way. I don’t know if we have enough time [to discuss them].
 
@@ -267,7 +258,7 @@ Okay, do you have questions? I’m sorry I didn’t finish.
 
 **Katagiri Roshi:** Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about the oneness with the rock face and the climber’s body and mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
 
-*(Transcriber’s Note: The book* Beyond Boredom and Anxiety: Experiencing Flow in Work and Play, 25th Anniversary Edition *by Mihaly Csikszentmihalyi is available but expensive. The more recent update by the same author,* Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)*
+(*Transcriber’s Note:* The book *Beyond Boredom and Anxiety: Experiencing Flow in Work and Play*, 25th Anniversary Edition, by Mihaly Csikszentmihalyi, is available but expensive. The more recent update by the same author, *Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)
 
 What do I mean, just the flow of experience? “Just the flow of activity when you climb the mountain” – what is that? Just the flow of activities called “climbing the mountain” – at that time, where are they, what are they? Right in the middle of the perpetual flow of activities, there is rock, mountain, trees, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called *perpetual flow of activities*, called *climbing the mountain*. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscured.” *The other side* means the rest of the existence. The whole world comes into you. 
 
