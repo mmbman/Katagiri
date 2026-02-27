@@ -1,5 +1,5 @@
 ---
-title: "Genjōkōan: A, B, and C Worlds"
+title: "A, B, and C Worlds"
 ---
 ## June 27, 1987 Dharma Talk by Dainin Katagiri Roshi
 
@@ -11,16 +11,14 @@ title: "Genjōkōan: A, B, and C Worlds"
 
 *(Archive issue: The conclusion of this talk seems to be missing.)*
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds" target="_blank">Listen to this talk</a>
-</p>
 
+#### [Listen to this talk] (https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds)
 
 #### 0:00
 
 **Katagiri Roshi:** \[At the beginning of] *Shōbōgenzō* *Genjōkōan* [it says]:
 
-> When all things are buddha-dharma, then there is delusion and [enlightenment](glossary#enlightenment), there is cultivation of practice, there is birth, there is death, there are [Buddhas](glossary#buddha), there are sentient beings.
+> When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.
 
 And next he says, 
 
@@ -28,9 +26,9 @@ And next he says,
 
 Next he says, 
 
-> Because the [Buddha Way](glossary#buddha-way) originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and Buddhas.
+> Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and Buddhas.
 >
-> > (From “The Issue at Hand” translated by Thomas Cleary, with some word changes. The text is available on  [thezensite.com](http://www.thezensite.com/ZenTeachings/Dogen_Teachings/GenjoKoan_Cleary.htm).)
+> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, with some change.)
 
 Three sentences here. Let’s say [...] the first one, according to my terms, [refers to] the *A world*. *A world*, *B world*, *C world*; the first sentence is *A world*. That is, Dōgen Zenji says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, the seen world, that is the *A world*, the mundane world, simply speaking.
 
@@ -44,7 +42,7 @@ In the spiritual world, there are lots of terms: *Buddhas*, and *enlightenment*,
 
 #### 5:00
 
-But as you know pretty well, [Buddhism](glossary#buddhism) says that the world, or human life, or myriad, myriad things, or every single thing, are produced by the truth of *interdependent co-origination*. In other words, there is nothing which is produced by its own *being*, it’s own nature, it’s own substance. 
+But as you know pretty well, Buddhism says that the world, or human life, or myriad, myriad things, or every single thing, are produced by the truth of *interdependent co-origination*. In other words, there is nothing which is produced by its own *being*, it’s own nature, it’s own substance. 
 
 In other words, according to the senses, the table exists by its nature, by its own energy, by its own substance. In philosophy we say the earth, [wind], water and fire, the four elements. The world is produced by the five elements, then the table has five elements. That is its own energy and power or substance to produce itself. That is a very common [belief].
 
@@ -82,13 +80,13 @@ So what is the true reality of the table, beyond being or not being, abundance o
 
 That is “the Buddha Way originally sprang forth from abundance and paucity.” And then next he says, [because of that], “there is birth and death, delusion and enlightenment, sentient beings and Buddhas.” 
 
-This is very important: we exist. I am thinking, therefore I exist, you can say. *[He chuckles.]* Or my five [skandhas](glossary#skandha), including thinking. And with you, all sentient beings exist. That existence – my life and your life – is completely beyond your speculation or evaluation. So should your life be viewed in terms of [emptiness](glossary#śūnyatā), so-called *no birth*? Yes or no. And is your life is seen from the mundane view? Yes or no.
+This is very important: we exist. I am thinking, therefore I exist, you can say. *[He chuckles.]* Or my five *skandhas*, including thinking. And with you, all sentient beings exist. That existence – my life and your life – is completely beyond your speculation or evaluation. So should your life be viewed in terms of emptiness, so-called *no birth*? Yes or no. And is your life is seen from the mundane view? Yes or no.
 
 In the *Madhyamaka*, Nāgārjuna constantly tries to correct people’s misunderstanding of Buddha’s teaching, emphasizing constantly the true meaning of emptiness. So finally, everything is based on emptiness. Emptiness means the truth. But I don’t think this is really true, so still people don’t understand it, because we cannot ignore the mundane world. So very naturally in the history, *[unintelligible]* consciousness develops, the conscious psychological world is developed. At that time, in the Buddhist psychology, I think, of course, the reality is beyond abundance and paucity, because it is based on emptiness. And then the question comes up: the world that you see out there, is what? It should be negated? It should be affirmed? No. Whichever you say, no.
 
-So beyond your “yes” or “no”: *yes*. That is called *C world*, according to my term, and in Buddhism we say pure *dharmadhātu nisyanda* in [Sanskrit](glossary#sanskrit). 
+So beyond your “yes” or “no”: *yes*. That is called *C world*, according to my term, and in Buddhism we say pure *dharmadhātu nisyanda* in Sanskrit. 
 
-In English we say *dharma world*; in Sanskrit we say *dharmadhātu*. [*Dhātu*](glossary#dhātu) is a vein of ore. *Dharma* is the truth, and also phenomena, all beings – you can see the form of all things – and also teaching. So we call [it] *dharma*, including three of [those]. So dharmadhātu means something is *mined* from interdependence and interpenetration of myriad dharmas, myriad conditioned elements, and then that is so-called dharmadhātu. So dharmadhātu is the dharma world; *buddha-dharma*, we say, or Buddha’s world. And *nisyanda* means *throwing into* or *necessary result*. [...] So it means that the truth is mined from there, the real reality beyond *A* and *B world*, and throws into the worldly affair. And this is the necessary result of dharmadhātu. 
+In English we say *dharma world*; in Sanskrit we say *dharmadhātu*. *Dhātu* is a vein of ore. *Dharma* is the truth, and also phenomena, all beings – you can see the form of all things – and also teaching. So we call [it] *dharma*, including three of [those]. So dharmadhātu means something is *mined* from interdependence and interpenetration of myriad dharmas, myriad conditioned elements, and then that is so-called dharmadhātu. So dharmadhātu is the dharma world; *buddha-dharma*, we say, or Buddha’s world. And *nisyanda* means *throwing into* or *necessary result*. [...] So it means that the truth is mined from there, the real reality beyond *A* and *B world*, and throws into the worldly affair. And this is the necessary result of dharmadhātu. 
 
 So dharmadhātu – in other words truth, absolute truth, absolute reality, or whatever you say – is not something separate from you. If what the absolute God, Buddha, or true reality, or whatever *is* is something separate from you, it is nothing but conceptions. Which is pretty cold. It doesn’t make sense.
 
@@ -102,7 +100,7 @@ So that’s why Dōgen Zenji mentions that your world should be completely accep
 
 One of the primitive peoples has a certain custom after birth, [for the mother to] hold a baby in a particular bag in front of [them], and they are very proud of themselves if this bag is kept in purity constantly. Nothing is contaminated or dirty by baby’s pee, et cetera; the mother always keeps this bag clear and clean. Well, how do you know the time and occasion when the baby wants to have a pee? The baby doesn’t say anything. But if she is always carried in a bag, just like kangaroo, baby’s life and mother’s life is exactly one. So if baby feels nature, naturally [the mother] understands it.
 
-The famous [Zen Master](glossary#zen-master) *[unintelligible]* in Japan always mentions [that when] the baby cries, that is the time when the mothers’ breast is filled with milk. Very naturally, the mother knows. And also, the mother knows what’s going on with the baby when he cries, what kind of cry he or she has. Through the type of cry, mother knows whether baby is sick, or baby is sleepy, or baby feels hungry. She knows. 
+The famous Zen Master *[unintelligible]* in Japan always mentions [that when] the baby cries, that is the time when the mothers’ breast is filled with milk. Very naturally, the mother knows. And also, the mother knows what’s going on with the baby when he cries, what kind of cry he or she has. Through the type of cry, mother knows whether baby is sick, or baby is sleepy, or baby feels hungry. She knows. 
 
 The primitive people always carry their babies [close to their] bodies, and then they can know it. Intellectually we don’t believe it, but actually we do. Baby remembers the situation of the mothers womb after the baby’s birth. That’s why we throw the babies into the pool, let them swim. Do you know this one? Because babies remember. Maybe babies don’t say anything, but in the beginning of the birth, I think everything is one. But right after, we always educate human beings, separate. So very naturally, we put the diaper – and then we feel comfortable. And also, mothers and parents always going to see the movie, and put the babies with somebody else. And mothers and fathers want to work, and go camping, so they try to get a baby sitter. That’s comfortable for us. But I don’t know if that is really true or not. That is a big question. For adults, it’s comfortable, because we want to satisfy our own desire, but we don’t think about the baby’s real nature. Baby’s real nature is exactly one. So why don’t you take care of the babies *always*? Then, even though baby doesn’t know, I think there is communication there. Do you understand this? This is education. 
 
@@ -110,7 +108,7 @@ Or for instance, if you don’t believe me: why do you talk to babies? Or [speak
 
 In other words, I always say, soak your body and mind in the river, and then at that time you can learn. But modern civilization is completely [doing] the opposite: first, scoop the water into your head, which is like a bamboo basket. *[Laughter]* How can you keep your knowledge, learning, maturities? It’s very difficult, [almost] impossible. I don’t mean you should ignore [that way], but we follow a little bit [quicker] way.
 
-So [...] why do you talk to the babies in English or Japanese? Or why do you talk to the dog or [cat](glossary#cat) in English or in Japanese? Dog doesn’t care what kind of language you use. There is no guarantee how much the baby understands your language. But you constantly talk, and then, baby understands. How? I don’t know. You don’t know either!
+So [...] why do you talk to the babies in English or Japanese? Or why do you talk to the dog or cat in English or in Japanese? Dog doesn’t care what kind of language you use. There is no guarantee how much the baby understands your language. But you constantly talk, and then, baby understands. How? I don’t know. You don’t know either!
 
 You don’t know, but beyond good or bad, beyond being or not being, beyond abundance or paucity, you always do it! There is language, there is the baby’s life, there is the mother’s life, and then the whole thing is coming up. And then finally you can say, “this is education,” and “this is language.”
 
@@ -126,9 +124,9 @@ That’s why we say pure *dharmadhātu nisyanda*. The world of worldly affairs i
 
 In terms of the truth itself, or emptiness itself, truth by itself manifested in our world means to throw a light upon the world and save it. Therefore, secularization of emptiness or truth is what is called *compassion* or *upaya*. Upaya means to *excellent method*. Upaya means to go near to, or to reach. 
 
-In terms of *C world*, Dōgen Zenji says “the Buddha Way originally sprung forth from abundance and paucity.” Your world is bathed in the warm light of the huge expanse of being, existence, beyond purity or not purity. In other words, your life is embraced by the really great, warm arms of the mother. So, we should completely accept. But beyond whether you want to accept or you don’t accept, you are already embraced by the huge, warm arms of the mother. This is the earth, the universe. That is called the [Buddha land](glossary#buddha-land), [or] Buddha.
+In terms of *C world*, Dōgen Zenji says “the Buddha Way originally sprung forth from abundance and paucity.” Your world is bathed in the warm light of the huge expanse of being, existence, beyond purity or not purity. In other words, your life is embraced by the really great, warm arms of the mother. So, we should completely accept. But beyond whether you want to accept or you don’t accept, you are already embraced by the huge, warm arms of the mother. This is the earth, the universe. That is called the Buddha land, [or] Buddha.
 
-[...] Maybe I mentioned, all life should be built up on the foundation of nothingness. In other words, the pivot of nothingness is a place where there is no space, no chance to poke your head into it. And then how can you build your life there, [on] that question mark? Or how can you transmit the [dharma](glossary#dharma), if there is no space, no time for you to poke your head in? That is a big question, and also that is a very interesting point, practice-wise. That is why Buddhism always talks about this. 
+[...] Maybe I mentioned, all life should be built up on the foundation of nothingness. In other words, the pivot of nothingness is a place where there is no space, no chance to poke your head into it. And then how can you build your life there, [on] that question mark? Or how can you transmit the dharma, if there is no space, no time for you to poke your head in? That is a big question, and also that is a very interesting point, practice-wise. That is why Buddhism always talks about this. 
 
 But practically speaking, for instance, if you want to master dance or skiing or whatever, you can see the future vision of the skier, or rock climber, et cetera. But if you see the future vision, very naturally we try to have lots of expectations from that future vision...
 

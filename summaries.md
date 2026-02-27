@@ -692,7 +692,7 @@ Summary not yet available.
 
 <br/>
 
-##### [*Genjōkōan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+##### [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
 Summary not yet available.
 

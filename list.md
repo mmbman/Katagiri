@@ -419,7 +419,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*Genjōkōan*: Talk 2](1987-06-06-Genjokoan-Talk-2)
 1. [*Genjōkōan*: Talk 3](1987-06-07-Genjokoan-Talk-3)
 1. [*Genjōkōan*: Manas: Spontaneous, Perpetual, Homogeneous](1987-06-20-Manas)
-1. [*Genjōkōan*: A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
+1. [A, B, and C Worlds](1987-06-27-A-B-and-C-Worlds)
 
 1. Obon Memorial
 
