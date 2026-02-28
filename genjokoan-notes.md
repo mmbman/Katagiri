@@ -8,7 +8,7 @@ title: "Notes on Genjōkōan"
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Genjōkōan*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen* (or perhaps an earlier version of it), which Katagiri Roshi used in talks in 1986 and 1987.
+[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen*, which Katagiri Roshi used in some talks in 1986 and 1987.
 
 ----
 
@@ -20,7 +20,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 > [SZ] The Realized Koan  
 > [TC] The Issue at Hand  
 
-- For the meaning of *genjō* and *kōan* see [“*Genjōkōan*: Talk 1” at 42:48](1987-06-06-Genjokoan-Talk-1#4248).
+- For the meaning of *genjō* (現成) and *kōan* (公案) see [“*Genjōkōan*: Talk 1” at 42:48](1987-06-06-Genjokoan-Talk-1#4248).
 
 - [“*Gabyō*: Painting of a Rice Cake – Talk 1” at 43:27](1986-12-01-Gabyo-Talk-1#4327): discussion of the term *genjō* as actualization or manifestation in the immediate present, or “subjectivity”.
 
