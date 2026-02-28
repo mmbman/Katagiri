@@ -123,19 +123,21 @@ Okay? Is that clear? *[He chuckles.]* A little bit complicated, huh?
 
 **Question:** Hojo-san, you said alayavijñāna is the fruit of your past actions, it includes the seeds of your future. It’s also the fruit of the cosmic aspect?
 
-**Katagiri Roshi:** Yes. Yes, that’s true. Everything has it. But, how those hinge in the past, in the present, in the future, is stored in that consciousness – how it works, at super-speed.
+**Katagiri Roshi:** Yes. Yes, that’s true. *Everything* – everything has it. But how those things – in the past, in the present, in the future – are stored in that consciousness – how it works, at super-speed.
 
-**Same person:** So it’s consciousness of that, of how it works, when you’re in alayavijñāna.
+**Questioner:** So it’s consciousness of *that*, of how it works, when you’re in alayavijñāna.
 
-**Katagiri**. Yes. That’s right. So, without leaving any trace of each single seed – but, it’s there. Do you understand? That is called, whatever you say: atoms, and particles... *[He laughs.]* Alayavijñāna is kind of a huge black hole in the Universe. *[He laughs.]* I don’t know. Anyway, those myriad things working at super-speed. That is, Buddhism says, interdependent co-origination.
+**Katagiri:** Yes! That’s right. So, without leaving any trace of each single [seed] – but, it’s there. Do you understand? [Those are] called – whatever you say – atoms, or particles... *[He laughs.]* Well, alayavijñāna is a kind of a huge black hole in the Universe. *[He laughs.]* I don’t know; well, anyway, those myriad, myriad things [are] working at super-speed. That is, Buddhism says, *interdependent co-origination*.
 
-**Question:** So, in that consciousness, you perceive the whole stream of karma.
+**Questioner:** So, in that consciousness, you perceive the whole stream of karma.
 
-**Katagiri Roshi:** Yes. Stream. That’s why in Buddhist psychology, the definition of alayavijñāna is “just like the stream of a waterfall.” Constantly going. 
+**Katagiri Roshi:** Yes. That’s why in Buddhist psychology, the definition of alayavijñāna is “just like a stream [or] waterfall.” Constantly going. 
 
-*Constantly going* means something permanent. There are three meanings of the permanent in Buddhism. One is the essence of nature, essence of existence, is going permanently. That is understandable. The second: change. As origination, and extinction, origination, extinction, origination; appearance, disappearance; are going in perpetual series. That is the second meaning. In other words, change is going in perpetual series. Third: intermittence. Intermittence is going in perpetual series. 
+*Constantly going* means something *permanent*. [But there are] three meanings of the permanent in Buddhism. One is that the essence of nature, essence of existence, is going permanently. That is understandable. The second: *change* – as origination and extinction, origination, extinction, origination; appearance, disappearance – is going in perpetual series. That is the second meaning. In other words, *change* is going in perpetual series. The third: *intermittence*. Intermittence is going in perpetual series. 
 
-Tomorrow, I want to get into the *Genjōkōan* a little bit, as a whole. But in *Genjōkōan* Dōgen Zenji mentions that before and after is cut off. But, before and after are coming together. It’s complicated, but that is called intermittence of time is going in perpetual series. At that time, intermittence is not longer intermittent; it’s permanent, because it’s going, constantly. But even though you say *consistently*, still we are caught by the concept. It’s not a constant; it’s still intermittent there. Behind the word so-called *constantly*, your thinking is cut off in pieces. So still you don’t know exactly what the permanent is. That’s why Buddhism mentions three meanings of permanence. So permanence is not permanent; simultaneously you can say that permanence is impermanent. So, impermanence must be found in permanence. Permanence must be found in impermanence. Because, this is reality. That’s why this is a little bit different from the usual sense of permanence. 
+Well, tomorrow I want to get into the *Genjōkōan* a little bit as a whole. But [that’s why] in *Genjōkōan* Dōgen Zenji says that before and after is cut off, but before and after are coming together. It’s complicated. But that is called “intermittence of time is going in perpetual series.” At that time, intermittence is no longer intermittent; it’s permanent – because it’s going, constantly. But even if you say “[constantly],” still we are caught by the concept; so it’s not constant; it’s still intermittent there. By the word “constantly” your thinking is cut off in pieces, so still you don’t know exactly what the permanent is. 
+
+That’s why Buddhism [teaches] three meanings of permanence. So permanence is not permanent; simultaneously you can say that permanence is impermanent. So permanent impermanence must be found in permanence. Permanence must be found in impermanence. Because, this is our reality. *[He laughs.]* So that’s why this is a little bit different from the usual sense of permanence. 
 
 **Question:** Sorry, I missed the first of the three components.
 
@@ -145,121 +147,131 @@ Tomorrow, I want to get into the *Genjōkōan* a little bit, as a whole. But in 
 
 #### 46:49
 
-**Question:** [...]
+**Question:** *[Unintelligible.]*
 
 **Katagiri Roshi:** No, that’s a different term.
 
-**Question:** Is there a Japanese term for manas? 
+**Questioner:** Is there a Japanese term for *manas*? 
 
 **Katagiri Roshi:** Manas is the seventh consciousness.
 
-**Question:** There is no Japanese for manas?
+**Questioner:** There is no Japanese for *manas*?
 
-**Katagiri Roshi:** No. For manas, we say manas.
+**Katagiri Roshi:** No. For *manas* we say “manas.”
 
 #### 47:12
 
-**Question:** Hojo-san, when you’re mentioning that when you’re behaving morally and ethically, you say “I’m very good boy,” “good saint” and so forth, and then that’s ego. At the moment that you realize that that’s ego coming in, is that manas?
+**Question:** Hojo-san, when you’re mentioning that when you’re behaving morally and ethically, you say “I’m a very good boy,” “good saint” and so forth, and then that’s ego. At the moment that you realize that that’s ego coming in, is that manas?
 
 **Katagiri Roshi:** Yes, ego.
 
-**Question:** Realizing that it’s ego?
+**Questioner:** Realizing that it’s ego?
 
-**Katagiri Roshi:** Yes; ego is still working there. Even though you do zazen and are constantly seeing and feeling who you are, how ego is working very deeply, still ego is working. So that’s why very naturally pride is coming up; it’s very difficult to be patient, or it’s very difficult to be humble. Always there is the ego. Even though you see the truth, [the more you see it,] the more you attach to it, because it’s very beneficial to you. Ego consciousness realizes how beneficial realization of alayavijñāna is, and then *attaches* to it. *[He laughs.]* And then manas brings that attachment into the six consciousness world. 
+**Katagiri Roshi:** Yes; ego is *still* working there. Even though you do zazen and are constantly seeing and feeling who you are, how ego is working very deeply, still ego is working. So that’s why very naturally pride is coming up; it’s very difficult to be patient, or it’s very difficult to be humble. Always there is the ego. Even though you see the truth, [...] you attach to it, because it’s very beneficial to you. Ego consciousness realizes how beneficial realization of alayavijñāna is, and then *attaches* to it. *[He laughs.]* And then manas brings that attachment into the six consciousness world. 
 
-And then, at that time, manas really forces you to get everyone to believe something you have.That’s why, if you believe something religiously, you’re always forcing people, in many ways: “You should believe *this*; if you don’t, you are stupid.” *[He laughs.]* [...] 
+And then, at that time, manas really forces you to get everyone to believe something you have. That’s why, if you believe something religiously, you’re always forcing people, in many ways: “You should believe *this*; if you don’t, you are stupid.” *[He laughs.]* 
 
-Not only the religious world. [But] if you deal with religion, it’s very dangerous because you don’t realize how hurt people [get] through this ego. But in the usual sense, it’s very quick, and everyone expresses ego; that’s why you don’t feel how much you hurt people. Because, everyone does it, you know? “You should express your ego”; “If you ever [...] you should express it.” If you don’t feel good: scream, scream. Everyone screams, so, the whole room is screaming. So even though only one person screams, everyone says, “Oh, you’re screaming.” That’s it. So your screaming doesn’t hurt so much, because everyone does it. *[He laughs.]* The religious world is more complicated. And if you see the religious word, so called peace and harmony, through belief, then you attach strongly. And also the problem is, no one experiences it; everyone behaves in a different way from you. That’s why you strongly believe the truth after practicing hard for many, many years. And then you really attach to your experience, or career, and belief. And finally you put everyone down, because everyone is doing a completely different way. So very naturally, if you want to save people, help people, you force them. If people don’t follow, you fight. That always happens. It’s very dangerous. Spiritual fighting is really *miserable*. So that’s why we have to realize ego consciousness through meditation, and then you can feel directly who you are. And then, manas, ego consciousness, has alayavijñāna as object, which means you feel karmic life through realization of manas. You can see.
+Always [this is going on]; not only the religious world. [But] if you deal with religion, it’s very dangerous, because you don’t realize how hurt people [can be] through this ego. In the usual [way], it’s very quick, and everyone expresses ego – that’s why you don’t feel how much you hurt people, because *everyone* does it, you know? “You should express your ego”; “If you ever [have a feeling], you should express it.” If you don’t feel good: scream, scream – everyone screams, so the whole room is screaming. Even though only one person screams, everyone says, “Oh, you’re screaming.” So your screaming doesn’t hurt so much, because everyone does it. *[He laughs.]* 
 
-How can you take care of your life? Sometimes, there is no way. Katagiri is Katagiri; no matter how long I study Buddhism, still something smells. I can’t escape it. But, this is a way for Katagiri. *[He laughs.]* But I don’t [mean] it is a goal I have to do best. I have to go farther, deeper, until, realizing alayavijñāna as tathāgatagarbha, means, completely you have to touch the base of manas. You should experience stream energy directly. Directly, okay? In other words, you must be *on there*. You must be right there, instead of understanding through conceptualization – no. Unconsciously you always understand in a conceptualized [way], but it is not the experience of alayavijñāna. You have to directly be right there, beyond the world of conceptualization. Where you should be present is right there. That is the stream of energy, the flow of energy. Then, at that time, this is really *cosmic*. So whatever you may be, all you have to do is just be there, and go. 
+The religious world is more complicated. If you see the religious world, so-called peace and harmony, through *belief*, then you attach strongly, and also the problem is [that] no one experiences it; everyone behaves in a different way from you. That’s why you strongly believe the truth after practicing hard for many, many years, and then you really attach to your experience, or career, and belief; then finally you put everyone down, because everyone is doing it in a completely different way. So very naturally, if you want to save people, help people, you *force* them. If people don’t follow it, you fight. That always happens. It’s very dangerous. Spiritual fighting is really *miserable*. 
 
-But that is nothing to hurt anything, because in that realm of the world, all sentient beings are included. So [there is] nothing to hurt. If you hurt something, you fall away from it. So that is the Bodhisattva category and Buddhas category; you should learn this. This is the advantage of practice for human beings. 
+So that’s why we have to realize ego consciousness through meditation, and then you can feel directly who you are. And then, manas, ego consciousness, has alayavijñāna as [its] object, which means you feel karmic life through realization of manas. You can see.
 
-If you are a priest, you should taste and chew and digest what I told you today again and again. And then read this *Genjōkōan*; then you can really feel the spirit. Tomorrow I want to get into this.
+How can you take care of your life? Sometimes, there is no way. Katagiri is Katagiri; no matter how long I study Buddhism, still [there is some] smell. I can’t escape it. But, this is Katagiri’s; this is a [way] for Katagiri. *[He laughs.]* But I don’t [mean] it is a goal, what I have to do. Next, I have to go farther, deeper, until realizing alayavijñāna as tathāgatagarbha. That means completely you have to touch the base of manas. You should directly experience stream energy. Directly, okay? In other words, you must be *on there*; you must be right there. Instead of understanding through conceptualization – no. Consciously or unconsciously you always understand in a conceptualized [way], but it is not the experience of alayavijñāna. You have to directly be right there, beyond the world of conceptualization. Where you should be present is right there. That is the stream of energy, the flow of energy. And then, at that time, this is really *cosmic*. So wherever you may be, all you have to do is just be there, and go. 
+
+But that is nothing to hurt anything, because in that realm of the world, all sentient beings are included. So [there is] nothing to hurt; if you hurt something, you fall away from it. 
+
+So that is the bodhisattva category and buddhas category; you should learn this. This is the advantage of practice for human beings. 
+
+[...] If you are a priest, you should taste and chew and digest what I told you today again and again. And then read this *Genjōkōan*; then you can really feel the spirit. 
+
+So tomorrow I want to get into this [*Genjōkōan*].
 
 One more thing. Usually people say, “You should attain enlightenment. You should be aware. If you’re not aware, if you don’t realize, if you don’t attain enlightenment, you are not Buddhist; you are a stupid guy.” *[Laughter]* That is not the Buddhistic way; no. It’s a complete misunderstanding. Alright?
 
-So, please [try to] understand what I have said today again and again. And then, if you understand what I said: [...] even though you attain enlightenment, originally where [are you]? Originally means very basically, profoundly, where [are you] standing. You are standing in the realm of six consciousnesses, or seventh consciousness. Yes, you are. But simultaneously, the very source of your presence is alayavijñāna, tathāgatagarbha. What is that? That is just the flow of energies, which is very pure and clear. So that is called *you are Buddha*, where all sentient beings exist just like that. We should learn that, okay? Basically, profoundly, you are already present there. That’s why even though you attain enlightenment, still there is opportunity, possibility to manifest this. So how is that? That’s why I say, finally, when you do gassho, please do gassho. That’s it.
+So, please [try to] understand what I have said today again and again. And then, if you understand what I said: [...] even if you attain enlightenment, originally where [are you]? “Originally” means very basically, profoundly, where [are you] standing? Are you standing in the realm of six consciousnesses, or seventh consciousness? Yes, you are... but simultaneously, the very source of your presence is alayavijñāna; tathāgatagarbha. What is that? That is just the flow of energies, which is very pure and clear. So that is called *you are Buddha*. [...] All sentient beings exist just like that. We should learn that, okay? Basically, profoundly, you are already present there; that’s why even if you attain enlightenment, still there is opportunity or possibility to manifest this. So how is that? That’s why I say, finally, when you do gassho, please do gassho. That’s it.
 
-Dōgen Zenji mentions “from the beginning,” just like this. It’s a little bit difficult to understand; that’s why you should digest what I said again and again. Then, if you get into this *Genjōkōan*, it’s a little bit easier to understand. So tomorrow I want to get into it.
+Dōgen Zenji says from the beginning [it is] just like this. It’s a little bit difficult to understand; that’s why you should digest what I said again and again. Then, if you get into this *Genjōkōan*, it’s a little bit easier to understand. So tomorrow I want to get into it.
 
-Do you have a question?
+Do you have a question? Can you feel it a little bit?
 
 #### 57:54
 
-**Question:** Hojo-san, I have a question about manas. You said back here that it leads you to act in a simple way, deeply connected and “sticky.” Sticky seems to imply attachment. And perhaps I’m being hung up on a word, but it seems like attachment’s what we’re supposed to think about *not* doing. So what is manas attachment to?
+**Question:** Hojo-san, I have a question about manas. You said back here that it leads you to act in a simple way, deeply connected and “sticky.” And “sticky” seems to imply attachment. Perhaps I’m being hung up on a word, but it seems like attachment’s what we’re supposed to think about *not* doing. So what is manas attachment to?
 
-**Katagiri Roshi:** Manas [is] attached to the six senses, and also eighth consciousness. So in other words, manas [is] attached to the phenomenal world you live in, and also the not-phenomenal world, so called alayavijñāna. In other words, attached to the *cosmic* state of existence.
+**Katagiri Roshi:** Manas [is] attached to the six senses, and also the eighth consciousness. So in other words, manas [is] attached to the phenomenal world you live in, and also the not-phenomenal world, so-called *alayavijñāna*. In other words, attached to the *cosmic* state of existence.
 
-But alayavijñāna itself is completely beyond attachment created by manas, because [is is] constant flow of energies. Alayavijñāna itself is constantly going; [it is] energy in perpetual series. So, even though manas tries to attach, [there is] nothing to attach [to]. It’s impossible. So finally, you can deeply see alayavijñāna; you can really be free from manas. 
+But alayavijñāna itself is completely beyond attachment created by manas, because [is is] constant flow of energies. Alayavijñāna itself is constantly going; [it is] energy in perpetual series. So, even though manas tries to attach, [there is] nothing to attach [to]. It’s impossible. So finally, you can really see alayavijñāna deeply; you can really be free from manas. 
 
-But manas always has alayavijñāna as object; that’s why finally all we have to do is – what? Experience alayavijñāna, the cosmic world; then, don’t attach to it. Constantly deepen your experience. Don’t stay with it. So, always deepening, deepening, deepening; going deeply, deeply, constantly. You have to do it forever.
+But manas always has alayavijñāna as an object; that’s why finally all we have to do is – what? Experience alayavijñāna, the cosmic world, and then don’t attach to it. Constantly deepen your experience. Don’t stay with it. So, always deepening, deepening, deepening; going deeply, deeply, constantly. You have to do it forever.
 
-**Question:** That means let go of it rather than sticking to it.
+**Someone:** That means let go of it rather than sticking to it.
 
 **Katagiri Roshi:** Right. 
 
-**Question:** But then return to it.
+**Same person:** But then return to it.
 
 **Katagiri Roshi:** Yes.
 
 #### 1:00:28
 
-**Question:** Hojo-san? In that context, the context of past, present, future karma is all stream, is all connected, is always, always there; it can’t not be there. How can we create karma? We talk about all “all the karma we’ve ever created,” that sort of thing. But if we’re just part of that stream that’s [...] there, how do we create karma? I don’t quite understand that.
+**Question:** Hojo-san? In that context, the context of past, present, future karma is all stream, is all connected, is always, always there, it can’t not be there – how can we create karma? When we talk about “all the karma we’ve ever created,” and that sort of thing. But if we’re just part of that stream, and [it’s constantly] there, how do we create karma? I don’t quite understand that.
 
 **Katagiri Roshi:** How do you create the karma in the past, or in the future?
 
-**Question:** In your life.
+**Questioner:** In your life.
 
 **Katagiri Roshi:** In your life? In the present? 
 
-**Question:** Right now. How are we creating karma now? How *did* we create karma?
+**Questioner:** Right now. How are we creating karma now? How *did* we create karma?
 
-**Katagiri Roshi:** Because of alayavijñāna as karmic consciousness, including the karma in the past, present, future. This is characteristic of alayavijñāna. And also, those seeds and karma come together, working together, creating what? Just this flow of energy, that’s it. Like a spinning top, with lots of colors on the top. When the top spins, all the colors become one. No matter how many seeds are in the store, the whole storage spins, and then all colors become one. It’s not mixed up; each color exists. But right in the middle of flow of activity, all colors become one. So that means a perpetual series. That’s why all karma, different karma, works together, creating the flow of energy in perpetual series. At that time, you don’t know what the karma is. 
+**Katagiri Roshi:** Because of alayavijñāna as karmic consciousness, including the karma in the past, present, future. This is characteristic of alayavijñāna. And also, those seeds and karma come together, working together, creating what? Just the flow of energy, that’s it. Like a spinning top, with lots of colors on the top: when the top spins, all the colors become one. No matter how many seeds are in the store, the whole storage spins, and then all colors become one. It’s not mixed up; each color exists. But right in the middle of the flow of activity, all colors become one. So that [is the meaning of] “a perpetual series.” That’s why all karma, different karma works together, creating the flow of energy in perpetual series. At that time, you don’t know what the karma is. 
 
-So that means, basically, you have a karmic life, but the basis of karmic life is just like a white paper. Exactly white paper. That’s why whatever you want to do, you can do it. And then you can put the new seed there for the future. *[He laughs.]*
+So that means, basically, you have a karmic life, but the basis of karmic life is just like a white paper. Exactly white paper. That’s why whatever you want to do, you can do it. And then you can put the *new* seed there, for the future.
 
-**Question:** Since basically what we perceive as our consciousness, our ego, is circumstantial to everything else, I still don’t quite grasp how we create karma then. It would be like a twig going down a stream deciding where it was going. It doesn’t really decide anything, there’s no... so, what are you saying, we just observe the karma?
+**Questioner:** Since basically what we perceive as our consciousness, our ego, is circumstantial to everything else, I still don’t quite grasp how we create karma then. It would be like a twig going down a stream deciding where it was going. It doesn’t really decide anything... so, what are you saying, we just observe the karma?
 
-**Katagiri Roshi:** That’s why I said the example, the spinning top, with lots of color? Yes. So, I think, look at your energy to live. Plainly speaking, look at the energy to live. Whatever you think from your karmic life – you want to stop living, or you don’t want to stop living, or so-so – whatever you think, there is some great energy beyond your speculation, or judgement, evaluations. What is that energy? From where does it come? 
+**Katagiri Roshi:** That’s why I said the example of the spinning top, with lots of color? Yes. So, I think, look at your energy to live. Plainly speaking, look at the energy to live. Whatever you think from your karmic life – you want to stop living, or you don’t want to stop living, or so-so – whatever you think, there is some great energy beyond your speculation, judgement, or evaluations. What is that energy? From where does it come? 
 
-**Question:** So does that pertain specifically to what you think is your self?
+**Questioner:** So does that pertain specifically to what you think is your self?
 
 **Katagiri Roshi:** Yes! You can *feel* this!
 
-For instance, in the Second World War, [...] before I went to the Air Force, I had decided to die anytime, anywhere, for Japan. *[He laughs.]* That’s human beings. You can have a strong patriotism for America, you know? You have it, otherwise you are not American. *[He laughs.]* So, the same applied to me. Then I always was ready to die, anytime, anywhere. But when the bomb came, I *ran away*! *[Much laughter; Katagiri laughs.]* And chanting the name of Amitaba: “Help, please!” Do you understand this?
+For instance, in the Second World War, I was *[unintelligible]* in Japan. Before I went to the Air Force, I had decided to die anytime, anywhere, for Japan. *[He chuckles.]* That’s human beings. You can have a strong patriotism for America, you know? You have it, everyone has it, otherwise you are not American. *[He laughs.]* So, the same applied to me. Then I always was ready to die, anytime, anywhere. But when the bomb came, I *ran away*! *[Much laughter; Katagiri laughs.]* And I was chanting the name of Amitaba: “Help, please!” Do you understand this?
 
 **Question:** *[Unintelligible.]*
 
 *[Laughter.]*
 
-**Katagiri Roshi:** So whatever it is, always there is a great energy to live, beyond your evaluation or judgement from your karma. So what is this great energy? It is just like a white piece of paper, which is always working, coming from the beginningless past. That’s why you want to do it. 
+**Katagiri Roshi:** So whatever it is, always there is a great energy to live, beyond your evaluation or judgement from your karma. What is this great energy? It is just like a white piece of paper, which is always working, coming from the beginningless past. That’s why you want to do it. 
 
-But, you want to know how; that’s why [we have] the explanation of alayavijñāna, et cetera; [so] psychologically we understand. But [in reality], everyone experiences [this great energy], simply speaking. That’s why that great energy is just like a white piece of paper. You can put anything. Under all circumstances, you want to live. In the middle of a situation, [...] psychologically you may really despair, but at the bottom, still you want to live. Because as long as you feel despair, that despair is backed by great energy to live. Otherwise you don’t feel despair. Do you understand? 
+But, you want to know *how*; that’s why [we have] the explanation of alayavijñāna, et cetera; [so] psychologically we [understand]. But [in reality], everyone experiences [this great energy], simply speaking. [Because] that great energy is just like a white piece of paper; you can put anything. Under all circumstances, you want to live. In the middle of a situation, [...] psychologically you may really despair, but at the bottom, still you want to live. Because as long as you feel despair, that despair is backed by great energy to live. Otherwise, you don’t feel despair. Do you understand? 
 
-So, great energy is just like a white piece of paper, beyond your speculation. But it is not a concept called “white piece of paper”; it is just total working of energy. A spinning top. So that’s why it supports your life. It’s not a concept, separate from you; it’s always supporting you, from the bottom. That’s why you want to live, consciously or unconsciously. So then you behave [some way]; that is creating karma, right now. 
+So that great energy is just like a white piece of paper, beyond your speculation, but it is not a *concept* called “white piece of paper”; it is just total working of energy. A spinning top. So that’s why it supports your life. It’s not a concept, separate from you; it’s always supporting you, from the bottom. That’s why you want to live, beyond consciously or unconsciously. So then you behave [some way]; that is creating karma, right now. 
 
-For instance, when the bombs fell, I ran away and chanted the name of Amitaba, asking him to help me. That is my karma. *[He laughs.]* I don’t know how to create this karma intellectually. All of a sudden, I do it.
+For instance, when the bombs fell, I ran away and chanted the name of Amitaba, asking him to help me. That is my karma. *[He laughs.]* I don’t know how to create this karma. It’s not intellectual; all of a sudden, I do it.
 
 #### 1:08:08
 
-**Question:** But you talked about three kinds of enlightenment: awakening, satori and shō. Would you talk about those three in terms of the eight consciousnesses? 
+**Question:** But you talked about three kinds of enlightenment: *awakening*, *satori* and *shō*. Could you talk about those three in terms of the eight consciousnesses? 
 
-**Katagiri Roshi:** All three are connected to each other, but if I explain [them] separately, I think that awareness (kaku) is based on the six consciousnesses.
+**Katagiri Roshi:** All three are connected to each other, but if I explain [them] separately, I think that awareness (*kaku*) is based on the six consciousnesses.
 
 **Question:** That’s what you sometimes call awakening?
 
-**Katagiri Roshi:** Awareness. Understanding; something like that. And then, *satori* is to feel manas directly. Very deeply you feel who you are, as well as feeling other people. You can feel an experience of something more than you, through you. That is satori.
+**Katagiri Roshi:** Awakeing; awareness. Or understanding; something like that. 
 
-And then *shō*, originally *verification*, means the eighth consciousness turning into tathāgatagarbha. 
+And then, *satori* is to feel *manas* directly. Very deeply you feel who you are, as well as feeling other people. You can feel or experience something more than you, *through* you. That is satori.
 
-Those three: verification, satori, awareness, are connected, working together. 
+And then *shō*, originally “verification,” means the eighth consciousness turning into tathāgatagarbha. 
+
+Those three – *verification*, *satori*, *awareness* – are connected, working together. 
 
 #### 1:10:15
 
 **Question:** Hojo-san? Can some of the first consciousnesses you talked about, like the ears, also be connected to the very deep level of the stream of consciousness?
 
-**Katagiri Roshi:** Yes. Yes. That’s why six consciousnesses [are] connected with manas, and also the six consciousnesses are controlled by alayavijñāna. So alayavijñāna is kind of a general in the army. *[He chuckles.]* Manas is the sergeant. Always giving orders: “you should do it.” And the six consciousnesses are the soldiers. *[Laughter.]* Okay? Kind of like that. So always the sergeant should get the information from the general, and then order the six consciousnesses, the soldiers: “You should do this, you should do that, such and such,” you know? And then finally, the soldiers realize where the general is. And then, you have to go back to the general and [say], “I’m finished, my duty is over." Like that. 
+**Katagiri Roshi:** Yes, yes. That’s why six consciousnesses [are] connected with manas, and also the six consciousnesses are controlled by alayavijñāna. So alayavijñāna is kind of a general in the army. *[He chuckles.]* Manas is the sergeant. Always giving orders: “You should do it.” *[Laughter.]* And the six consciousnesses are the soldiers. *[Laughter.]* Okay? Kind of like that. So always the sergeant should get the information from the general, and then order the six consciousnesses, the soldiers: “You should do this, you should do that, such and such,” you know? And then finally, the soldiers realize where the general is; and then, you have to go back to the general and [say], “I’m finished, my duty is over." Like this. *[He laughs.]*
 
 So, [they are] always connected, something like that.
 
