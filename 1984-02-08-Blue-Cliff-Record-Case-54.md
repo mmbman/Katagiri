@@ -123,7 +123,7 @@ That way is really “at ease, he shears through iron and cuts through nails.”
 
 I told you, the trees standing straightly in the mountains covered with snow in the severe [winter] weather in [Minnesota] is really beautiful, perfectly beautiful. We have never experienced it in San Francisco. *[He laughs.]* Of course, nature is nature wherever you may go, but nature manifests in a different way, exactly a different way. Everyone manifests yourself in a different way from moment to moment. You never repeat the same things, even for a moment. That’s why nature in this kind of weather is quite beautiful, which you have never experienced in other situations. 
 
-So [you see beauty] because the tree stands up straight by itself on the mountain but simultaneously its existence covers heaven and earth. It means behind the tree, nature is there, beautiful nature is there. Fitting into the sunset, fitting into the morning sunrise. And covered with white snow, birds; it’s really beautiful. So, tree is one, but it’s not one. Tree is one, but simultaneously behind the one, it is *all*. That’s why in Buddhism [we always say] “one in all, all in one.” 
+So [you see beauty] because the tree stands up straight by itself on the mountain but simultaneously its existence covers heaven and earth. It means behind the tree nature is there, beautiful nature is there. Fitting into the sunset, fitting into the morning sunrise. And covered with white snow, birds; it’s really beautiful. So, tree is one, but it’s not one. Tree is one, but simultaneously behind the one, it is *all*. That’s why in Buddhism [we always say] “one in all, all in one.” 
 
 We can do it; we can deal with it just like this. Whoever you are, whether you are enlightened or [not] enlightened, it doesn’t matter, you can do it. How? Zazen is [the] simple way. Zazen is that you can do like this. 
 
@@ -139,7 +139,7 @@ If I [talk about] the human world, [we think our] existence comes from that sour
 
 “Source” means you cannot see the human world in terms of your own view. I see the human word in terms of my point of view, but simultaneously I have to put aside my view and see the whole universe behind me, within me, outside of me. I don’t know *where*; but the universe is there. This is just like a tree. This is me. 
 
-This is a practice, not discussion. I have to take care of myself, understanding the human word and human life in terms of my view, but next moment I have to put aside my views, and then I have to get a taste really deeply of the whole nature within me, by which my life has been supported, consciously or unconsciously. 
+This is a practice, not discussion. I have to take care of myself, understanding the human world and human life in terms of my view, but next moment I have to put aside my views and then I have to get a taste really deeply of the whole [of] nature within me, by which my life has been supported, consciously or unconsciously. 
 
 *[Tape change.]* 
 
@@ -155,17 +155,15 @@ I talked in the Zen Center in San Francisco about the message of the Zen Master 
 
 It’s very difficult to deal with yourself by yourself, always standing in your own world. Simultaneously you want to belong to somebody’s [group]. So if you don’t like philosophy, religion, et cetera, then you can belong to a group of people who are always chatting with each other, drinking wine and beer every day. This is also a group. A pretty good group. 
 
-But here it says whatever kind of group you belong to, it’s fine, but watch out! Because most of people are completely over-infatuated with [it], before you are conscious of [it]. It means, you become crazy. Okay? In other words, your life is contaminated, perverted, by the group, by the ideas, or *isms*. [...] 
+But here it says whatever kind of group you belong to, it’s fine, but watch out! Because most people are completely over-infatuated with [it], before you are conscious of [it]. It means, you become crazy. Okay? In other words, your life is contaminated, perverted, by the group, by the ideas, or *isms*. [...] 
 
-That’s a very good suggestion for us. Even religion: we say, “Sangha is beautiful.” Idealistically we can always imagine what sangha is. But the actual situation of sangha is... what? It’s very complicated, because sangha itself is beautiful, but human beings have to take care of sangha, and human beings make the sangha complicated. Sangha itself is beautiful, but when the human beings deal with the sangha, it makes it complicated. It’s *very* complicated. 
-
-The question is where? Not with a sangha, not with the community, not with society – but with *you*, human beings.
+That’s a very good suggestion for us. Even religion: we say, “sangha is beautiful.” We can always imagine idealistically what sangha is. But the actual situation of sangha is... what? It’s very complicated – because sangha itself is beautiful, but human beings have to take care of sangha, and human beings make the sangha complicated. Sangha itself is beautiful, but when the human beings deal with the sangha, it makes it complicated. It’s *very* complicated. The [issue] is where? Not with sangha, not with the community, not with society – but with *you*, human beings.
 
 That’s why we have to realize this. We very easily become crazy by the group, or ideas, or *isms*. Then if you [come] out from that group or community, you are very confused; you don’t know what to do. In other words, sometimes you have to go out of the group and you have to stand up by yourself. At that time you are really confused; you don’t know what to do. 
 
-I experienced this in the past. In the monastery, it’s pretty easy to practice: just to follow the schedule. 120 monks there, you know? 120 monks always encouraging me; so I thought, “My goodness, I attain the enlightenment, just like a buddha, a bodhisattva!” But when I came back to my temple, there were no 120 monks there; only I and my teacher, and the mountains and the graveyard behind the temple. So it was very difficult to practice in the same way as the monastic way; it’s very difficult. But I had to stand up by myself, and continue to live. It made me confused very much. 
+I experienced this in the past. In the monastery, it’s pretty easy to practice: just to follow the schedule. One hundred twenty monks there, you know? One hundred twenty monks always encouraging me; so I thought, “My goodness, I attain enlightenment, just like a buddha, a bodhisattva!” But when I came back to my temple, there were no one hundred and twenty monks there; only I and my teacher, and the mountains and the graveyard behind the temple. So it was very difficult to practice in the same way as the monastic way. It was very difficult, but I had to stand up by myself, and continue to live. It made me confused very much. 
 
-So, if you really become crazy about a group, that means you lose subjectivity, you lose yourself, because you don’t stand up by yourself. In other words you always see yourself or take care of yourself in terms of the group, community. There is no way to escape from that, you belong to the group; but you shouldn’t look at yourself in terms of a group, you have to look at [and learn about] yourself directly. 
+So, if you really become crazy about a group, that means you lose subjectivity, you lose yourself, because you don’t stand up by yourself. In other words you always see yourself or take care of yourself in terms of the group, community. There is no way to escape from that: you belong to the group. But you shouldn’t look at yourself in terms of a group; you have to look at [and learn about] yourself directly. 
 
 That’s why [this koan asks], “Where do you come from?” This question is very important for us. 
 
