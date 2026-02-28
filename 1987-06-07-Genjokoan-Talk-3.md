@@ -15,45 +15,47 @@ title: "Genjōkōan: Talk 3"
 
 **Katagiri Roshi:** Yesterday I mentioned that the important point in Buddhism is that we have to feel deeply and directly who we are; such as tasting, realizing *manas*, psychologically speaking. At that time, the realization of manas guides you to touch karmic life coming from past life. That is *alayavijñāna*. 
 
-And then, I think it is not good enough for us to deeply or directly feel or to taste who you are by meditation. You have to reach alayavijñāna, so-called karmic consciousness, karmic life, but at that time there is still a problem: that we are stuck in the concept of karmic life. 
+And then, I think it is not good enough for us to deeply or directly feel or to taste who you are by meditation. You have to reach alayavijñāna, so-called *karmic consciousness*, karmic life, but at that time there is still a problem: that we are stuck in the *concept* of karmic life. 
 
-Alayavijñāna is characterized by something going in perpetual series, from the past, through the present, to the future. So [there is] nothing to pin down there, nothing to grasp, nothing to keep you stuck; it’s always going. If you really feel what your karmic life is, finally there is no concept of *your own* karmic life. Finally what you can see is just [the] flow of energy; that’s it. That is called *tathāgatagarbha*. 
+Alayavijñāna is characterized by something going in perpetual series, from the past, through the present, to the future. [There is] nothing to pin down there, nothing to grasp, nothing to keep you stuck; it’s always going. So if you really feel what your karmic life is, finally there is no concept of *your own* karmic life. Finally what you can see is just [the] flow of energy; that’s it. That is called *tathāgatagarbha*. 
 
-There is nothing to put a name on; it is kind of just a perpetual flow of energy. It’s very difficult to put a name on it, but it’s really something real, because it supports your life and also all sentient beings; that is called tathāgatagarbha. At that time, you really appreciate it. And then from this, I think religious [ascertainment], and relaxation, or relief, naturally oozes from the bottom of your heart. That is called *faith*. 
+There is nothing to put a name on; it is kind of just a perpetual flow of energy. It’s very difficult to put a name on it, but it’s really something real, because it supports your life and also all sentient beings. That is called tathāgatagarbha. At that time, you really appreciate it. 
 
-So, the main purpose of Buddhist practice is to taste ego consciousness, who you are, deeply, through meditation – but, it’s not good enough. The farther practice is to taste karmic life not only conceptually, but directly. You should *participate* in alayavijñāna. What is direct participation in alayavijñāna? That is just movement, flow; perpetual flow of energy to live, to be present – not only for you, but with all sentient beings. That is [the] final purpose of Buddhism.
+And then from this, I think religious [ascertainment], and relaxation, or relief, naturally oozes from the bottom of your heart. That is called *faith*. 
+
+So, the main purpose of Buddhist practice is to taste deeply ego consciousness, who you are, through meditation – but it’s not good enough. The farther practice is to taste karmic life not only conceptually, but directly you should *participate* in alayavijñāna. What is direct participation in alayavijñāna? That is just movement; flow. Perpetual flow of energy to live, to be present – not only for you, but with all sentient beings. That is [the] final purpose of Buddhism.
 
 #### 4:57
 
 I also mentioned yesterday that most people believe that if you don’t attain enlightenment then you are not Buddhist, you are really a lower class of human being, but I don’t think it is true. Whether you are a deluded person or you are an enlightened person, all sentient beings are [aware]. You should remember this!
 
-But I mentioned that if you see your life individually, under all circumstances you want to live! Where does that desire come from? [Is it] your own desire? No; [it’s] not your own desire. I gave you my own story: When the bomb exploded, I immediately ran and jumped into the hole, and chanted the name of Amitaba. Was that my desire? No way, not my desire – no choice. Under all circumstances, everyone has great energy, capacity to live, to *be* – completely beyond like or dislike. So you should live there, from the beginning. You should appreciate this energy; you should appreciate this life force gifted to you, from the beginningless past.
+But I mentioned that if you see your life individually, under all circumstances you want to live! Where does that desire come from? [Is it] your own desire? No; [it’s] not your own desire. I gave you my own story: When the bomb exploded, I immediately ran and jumped into the hole, and chanted the name of Amitaba. Was that my desire? No way! *[He laughs.]* Not my desire; no choice. Under all circumstances, everyone has great energy, capacity to live, to *be* – completely beyond like or dislike. So you should live there, from the beginning. You should appreciate this energy; you should appreciate this life force gifted to you, from the beginningless past.
 
-Anyway, you already have [this] great capacity. That is [what] we temporarily call *buddha-nature*. Or, 2500 years ago, Buddha Shakyamuni said, “All are Buddha.” Temporarily, we call [that] Buddha. *Buddha* is a person who realizes that perpetual flow of energy, flow of existence, constantly [moving] from the beginningless past to the endless future. 
+Anyway, you already have [this] great capacity. That is [what] we temporarily call *buddha-nature*. Or, twenty-five hundred years ago, Buddha Shakyamuni said, “All are Buddha.” Temporarily, we call [that] *Buddha*. Buddha is a person who realizes that perpetual flow of energy, flow of existence, constantly [moving] from the beginningless past to the endless future. 
 
 You should participate directly in it. So, what is that? Just be there. And then, manifest it. 
 
-Strictly speaking, I think everyone is in Buddha’s great world. Even if you are not an enlightened person, [there is no] discrimination between Buddha and ordinary people. You are not an enlightened person, but originally you *are* an enlightened person: because you already survive, you are living from day to day. By your own effort? Yes it is, but something more than that: by the help of the grasses, rains, sunshine, humidity, the air. By all sentient beings, you can survive. This is the *true* reality. 
+Strictly speaking, I think everyone is in Buddha’s great world. Even if you are not an enlightened person, [there is no] discrimination between Buddha and ordinary people. You are not an enlightened person, but originally you *are* an enlightened person: because you already survive, you are living from day to day. By your own effort? Yes; but something more than that: by the help of the grasses, rains, sunshine, humidity, the air. By all sentient beings, you can survive. This is the *true* reality. 
 
-So you should live in the vast, expansive realm of the world, surrounded by all sentient beings. Usually we see the world in the narrow way: “this is my world; that is your world,” separately. But first of all we should live in that enormously expansive realm of existence. That is called buddha-nature. We are Buddha.
+So you should live in the vast, expansive realm of the world, surrounded by all sentient beings. Usually we see the world in the narrow way: “this is *my* world; that is *your* world,” separately. But first of all we should live in that enormously expansive realm of existence. That is called *buddha-nature*. We are Buddha.
 
 #### 9:40
 
 Let’s look at *Genjōkōan*.
 
-At the last sentence, there is a conclusion. The last sentence says: 
+The last sentence is a conclusion. The last sentence says: 
 
 > Because the nature of wind is eternal, the wind of Buddhism causes the manifestation of the earth's being gold and by participation develops the long river into butter.
 >
 > (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary.)
 
-“The wind of Buddhism”: In this case Dōgen Zenji uses “wind” because he quoted the story of Zen Master Hōtetsu of Mount Mayoku using a fan, et cetera. That’s why he is talking about the wind created by fan. “The wind of Buddhism” means Buddha’s family. So in this case, wind means *lifestyle*; the refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family. Their life has [a] really refined lifestyle [...] What is it? That is to manifest the earth. *The earth* means *alayavijñāna*, karmic life. 
+“The wind of Buddhism”: In this case Dōgen Zenji uses “wind” because he quoted the story of Zen Master Hōtetsu of Mount Mayoku using a fan, et cetera; that’s why he is talking about the wind created by a fan. “The wind of Buddhism” means Buddha’s family. So in this case, wind means *lifestyle*; the refined lifestyle of the Buddha’s family. All sentient beings are nothing but Buddha’s family. [They have a] really refined lifestyle of their own. What is it? That is to manifest the earth. *The earth* means *alayavijñāna*, karmic life. 
 
 “Being gold”: Turning earth – turning alayavijñāna – into gold means *tathāgatagarbha*. 
 
 “And by participation”: You have to participate in this practice, directly. And then at that time you can develop the long river – that means human life. 
 
-“Long river”: Human life, the human world, handed down from century after century. [A] long, long river. 
+“The long river”: Human life, the human world, handed down from century after century. [A] long, long river. 
 
 “Into butter”: Sweet butter, sweet milk, wonderful milk. That means Buddha’s world; [a] peaceful, harmonious world. 
  
