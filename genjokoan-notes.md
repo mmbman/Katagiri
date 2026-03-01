@@ -42,6 +42,8 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6): “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist” – discussion here related to whether objects are “actual” and the meaning of “all sentient beings.”
 
+- “Cultivation of practice” here is *shugyō* (修行). For discussion of *shugyō* see [“*Genjōkōan*: Talk 3” at 5310](1987-06-07-Genjokoan-Talk-3#5310).
+
 ###### 1.2
 
 > 萬法ともにわれにあらざる時節、まどひなく、さとりなく、諸佛なく、衆生なく、生なく、滅なし。

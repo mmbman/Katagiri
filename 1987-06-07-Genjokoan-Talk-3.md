@@ -220,61 +220,75 @@ What you have to do is, you are always acting and helping all sentient beings as
 
 [Because we ask,] “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri [talks about] this, Buddha [talks about] this, ancestors [talks about] this. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
 
-So, it’s just like your body soaks in the stream, and then your whole body is wet, but we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; then next moment, some thirst comes again. So to really quench your thirst, you jump into the water; you soak your body and mind in the river. And then, the river water soaks through your huge pores. Your body is just like a bamboo basket. Do you understand? Like the pores. But you don’t believe it. If you soak [your body], then water falls through there, lots of [...] holes, the pores. *[He chuckles.]*
+So, it’s just like your body soaks in the stream, and then your whole body is wet. [...] If you feel thirst, you always scoop the water and you drink, and then you feel good; but next moment, some thirst comes again. So to really quench your thirst, you jump into the water; you soak your body and mind in the river. And then the river water soaks through each pore, just like a bamboo basket. Your body is just like a bamboo basket. Do you understand? [...] *[He chuckles.]*
 
-That’s why it says here, “when the Buddhas are indeed the Buddhas, at that time, you become Buddhas.” With *great enlightenment about delusion* is all sentient beings; that is *you*. Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. Because, how to save all sentient beings? How to guide deluded, stubborn people to Buddha’s way? It’s very hard. *[He chuckles.]* It’s really tiring. *[Laughter.]* But there is no other way, so you have to continue to [do it]. That is great delusion about enlightenment. This is called sentient beings; this is called *you*. And then, if you do it, that is called “Buddha becomes Buddha.” 
+That’s why it says here, “When the Buddhas are indeed the Buddhas”: at that time, *you* become buddhas. With “great enlightenment about delusion” is all sentient beings; that is *you*. “Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings.” Because, how to save all sentient beings? How to guide deluded, stubborn people to Buddha’s way? It’s very hard. *[He laughs.]* It’s really tiring. *[Laughter.]* But there is no other way, so you have to continue to [do it]. That is great delusion about enlightenment. Okay? This is called sentient beings; this is called *you*. And then, if you do it, that is called “Buddha becomes Buddha.” 
 
-But, how do we know? Who proves this? There is no need to be self conscious of being Buddhas. No. Because, [it is] just perpetual flow of energies. You just be there. Just like being present in a jet airplane, [as] I always mention: just be there. 
+But, how do we know? Who proves this? There is no need to be self conscious of being buddhas. No. Because [it is] just perpetual flow of energies. You just be there. Just like being present in a jet airplane, [as] I always say: just be there. 
 
-“Nevertheless, it is realizing Buddhahood, Buddhas go on realizing” means, that way of practice naturally makes your life mature. Before you know it. This is called *shugyō*; practice. He translated it “cultivating practice.” Practice is constant cultivation. There is no “top,” no end. Constantly cultivating.
+“Nevertheless, it is realizing Buddhahood, Buddhas go on realizing” means that way of practice naturally makes your life mature, before you know it. This is called *shugyō* (修行); “practice.” He translated it “cultivating practice.” Practice is constant cultivation. There is no “top,” no end; constantly cultivating.
 
 #### 57:50
 
-Next, how do we do this? That practice seems to be very hard, but, he mentions, there is a way. He says: 
+How do we do this? That practice seems to be very hard, but, he mentions, there is a way. He says: 
 
 > In seeing forms with the whole body-mind, hearing sound with the whole body-mind, though one intimately understands, it isn't like reflecting images in a mirror, it's not like water and the moon – when you witness one side, one side is obscure.
 
-So, all you have to do is [...] you should throw away [your] whole body and mind into your object. At that time, your body is reflected in the realm of your object, and interconnected and interpenetrating each-other at super-speed – just like moon and water, both never disturbed. Just creating the world; so-called “how beautiful it is”. You feel this one, simultaneously. 
+So all you have to do is [...] you should throw away [your] whole body and mind into your object. At that time, your body is reflected in the realm of your object, and interconnected and interpenetrating each-other at super-speed – just like moon and water. But both are never disturbed; just creating the [world], so-called “how beautiful it is.” You feel this, simultaneously. 
 
-That’s why it says, “it isn’t like reflecting image in the mirror, it is not like water and the moon.” Because if you see the water and the moon, you separate them. If you attain enlightenment, all sentient beings are reflected in your whole body and mind. And then, you say, “I am the Universe!” *[He laughs.]* That’s ridiculous. And then when [...] you walk a little far from the earth, three feet and five feet and walking, and then you say, “I am a saint. The whole universe helps my life, and [I am] free from it.” That is not real enlightenment. That’s ridiculous. That is called *prejudice*, okay? *[Laughter.]*
+That’s why it says here, “It isn’t like reflecting images in a mirror, it is not like water and the moon.” Because if you see the water and the moon, you separate [them]. If you attain enlightenment, all sentient beings are reflected in your whole body and mind – and then, you say, “I am the Universe!” That’s ridiculous! *[He laughs.]* And then [...] you walk a little far from the earth – three feet or five feet – [...] and you say, “I am a saint. The whole universe helps my life, and [I am] free from it.” That is not real enlightenment. That’s ridiculous. That is called *prejudice*, okay? *[Laughter.]*
 
-So that’s why it says, “it is not like a reflecting image in the mirror.” If you believe religion is to experience miracles like flying in the sky, that is just like the relationship between water and the moon. That’s [all]. But real enlightenment is not like that. That’s why he says it *isn’t* like a reflecting image in the mirror, it is not like water and the moon. When you witness one side, one side is obscure. So, what is *real* enlightenment, what is real activity of human beings? At that time, when the moon is reflected in the water, the whole water becomes moon. That’s it. The whole universe. So you cannot see the moon, because the moon has penetrated and disappeared, melted away into your body and mind. 
+So that’s why it says, “It is not like reflecting images in the mirror.” If you believe religion is to experience such a miracle – flying in the sky – that is just like the relationship between the water and the moon; that’s [all]. But real enlightenment is not like that. 
 
-You can experience [this in] the way you climb mountains. Then you are always using consciousness, but you really devote yourself into the rock, because there is no choice to escape, so it requires enormous attention. At that time, mind penetrates; your body and mind finally melt away. So where [are these things]? What are [these things]? They are just body; there is no rock. Rock has penetrated your body; just your body is there. Your body still goes through the rock climbing procedures: using boots, using a rope, et cetera. Your body doesn’t confuse them, because mind is there, rock is there. But all are penetrated and melted away, so the whole body is rock, the whole body is the mountain. And then, how do we know? Just climb; the activity of climbing. The perpetual flow of activity called climbing, from moment to moment. That’s it.
+So that’s why it says it *isn’t* like reflecting images in the mirror, it is not like water and the moon –  “when you witness one side, one side is obscure.” So what is *real* enlightenment, what is the real activity of human beings? At the time when the moon is reflected in the water, the whole water becomes moon. That’s it. The whole universe. So you cannot see the moon, because the moon is penetrated and disappeared, melted away into your body and mind. 
 
-Buddha’s teaching is always talking about this; [worried] about human beings from that point of view. That’s why it’s a little difficult. That’s why Dōgen Zenji brings it up first. You should see the world in terms of Buddha’s eye. 
+You can experience this when you climb the rock [faces of the] mountains. Then you have consciousness and you are always using the consciousness, but you really devote yourself into the rock [face], because there is no choice to escape, so it requires enormous attention into it. At that time, mind penetrates; your body and mind finally are melted away. 
+
+So what are they? They are just body; there is no rock. Rock has penetrated your body; just your body is there. But your body goes through the lots of procedures: using boots, using a rope, et cetera. Your body [isn’t confused], because mind is there, rock is there. But all are penetrated and melted away, so the whole body is rock, the whole body is the mountain. 
+
+And then, how do we know? Just climb. The activity of climbing; the perpetual flow of activity called climbing, from moment to moment. That’s it.
+
+Buddha’s teaching is always talking about this [point]; [seeing] human beings from that point of view. That’s why it’s a little difficult. That’s why Dōgen Zenji brings up first [that] you should see the world in terms of Buddha’s eye. 
 
 #### 1:03:30
 
 This last [part], 
 
-> when you witness one side, one side is obscure.
+> when you witness one side, one side is obscure
 
-This is a crucial point of Buddha’s practice. If you explain this point, then the teaching of egolessness, interconnection, interpenetration, interdependent co-origination, comes up. But “when you witness one side, the other side is obscure” [means] the whole world is penetrated to you. At that time, your life becomes very secure, very secure. Stand up and walk. Gassho becomes gassho; gassho settles in gassho, exactly. Because the whole world is gassho; the whole world is walking. 
+... this is a crucial point of Buddha’s practice. If you explain this point, then the teaching of egolessness, interconnection, interpenetration, interdependent co-origination, comes up. “When you witness one side, the other side is obscure” [means] the whole world is penetrated to you. At that time, your life becomes very secure, very secure. Stand up and walk. Gassho becomes gassho; gassho settles in gassho, exactly. Because the whole world is gassho. The whole world is walking. 
 
 That’s why Dōgen Zenji says, “the mountain walks.” Intellectually, you cannot believe it, but from this point of view, the mountain walks. How do you know? You just walk; and then, the whole mountain walks. The same applies to sports, and everything. Without this, you cannot taste the profundity of sports, the profundity of arts, the profundity of physics. No. 
 
-So, this is a key point. And then, the rest of [the sections are] explaining about this in a concrete way. I don’t know if we have enough time [to discuss them].
+So, this is a key point. And then, the rest of [the sections are] explaining about this in a concrete way. I don’t have enough time [to discuss them].
 
-So please remember, the last sentence of this chapter is the conclusion. What is the point? What is the advantage of practice? [Someone] asked me a couple of days ago, what is the advantage of practice for human being? It is to turn the earth into gold. It means, regardless of whatever happens in the world – fighting, killing each other – all we have to do is, from the beginning to the end, even one person, let’s turn the earth into gold. That is what you can do. If you do it, that is called the way to turn alayavijñāna into tathāgatagarbha. That is called the world becomes Buddha. That is the actual practice to build up Buddha’s world. 
+#### 1:05:37
 
-But most people understand the world in the light of conceptualization. That’s why when you see the world is miserable, then you say, “Terrible; no chance to build up peace.” But that is still that you are playing with the world of conceptualization. It’s just a game. No. The world is not a game. The world is very close to you, and helping, and also [strict]. You have to do it, otherwise, you will die. You know? You will suffocate. 
+So please remember, the last sentence of this chapter is the conclusion. What is the point? What is the advantage of practice? 
 
-If you don’t do anything like the Buddha’s and ancestors’ suggestions like this, then there is no way to build up a peaceful world. So, remember this is a key point. If you teach this point philosophically, that is called *egolessness*. Egolessness, interdependent co-origination; lots of teachings coming up. But the point is, regardless of whether you understand egolessness or not, there is a unique way to practice for everyone. Everyone can do it.
+[Someone] asked me a couple of days ago, what is the advantage of practice for a human being? It is to turn the earth into gold. It means, regardless of whatever happens in the world – fighting, killing each other – all we have to do is, from the beginning to the end, even one person, let’s turn the earth into gold. That is what you can do. If you do it, that is called the way to turn alayavijñāna into tathāgatagarbha. That is called the world becomes Buddha. That is the actual practice to build up Buddha’s world. 
+
+But most people understand the world in the light of conceptualization. That’s why when you see the world is miserable, then you say, “Terrible; no chance to build up peace.” But that is still that you are playing with the world of conceptualization. It’s just a game. No: the world is not a game. The world is very close to you, and helping, and also strict. You have to do it, otherwise, you’ll die. You know? You will suffocate. 
+
+If you don’t do anything like the Buddha’s and ancestors’ suggestions like this, then there is no way to build up a peaceful world. So, remember this is a key point. If you teach this point philosophically, that is called *egolessness*. Egolessness, interdependent co-origination; lots of teachings coming up. But the point is, regardless of whether you understand egolessness or not, there is a unique way to practice. For everyone. Everyone can do it.
 
 Okay, do you have questions? I’m sorry I didn’t finish.
 
 #### 1:08:22
 
-**Question:** Could you go back to this last point, “When you witness one side, the other side is obscure”? I didn’t understand...
+**Question:** Could you go back to just this last point, “When you witness one side, the other side is obscure”? I didn’t understand...
 
-**Katagiri Roshi:** Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he mentions about the expert mountaineers and rock climbers, et cetera. They talk about the oneness with the rock face and the climber’s body and mind. He or she doesn’t feel any tiredness or consciousness; just the flow of experience, that’s it. 
+**Katagiri Roshi:** Okay, first, I recommended a book, *Beyond Boredom and Anxiety*. In this book, I think he talks about the expert mountaineers and rock climbers, et cetera. They always talk about the oneness with the rock face and the climber’s body and mind. He or she doesn’t feel any tiredness and consciousness; just a flow of experience, that’s it. 
 
 (*Transcriber’s Note:* The book *Beyond Boredom and Anxiety: Experiencing Flow in Work and Play*, 25th Anniversary Edition, by Mihaly Csikszentmihalyi, is available but expensive. The more recent update by the same author, *Flow: The Psychology of Optimal Experience*, is a popular mainstream book. It is well worth checking out.)
 
-What do I mean, just the flow of experience? “Just the flow of activity when you climb the mountain” – what is that? Just the flow of activities called “climbing the mountain” – at that time, where are they, what are they? Right in the middle of the perpetual flow of activities, there is rock, mountain, trees, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called *perpetual flow of activities*, called *climbing the mountain*. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscured.” *The other side* means the rest of the existence. The whole world comes into you. 
+What do I mean, just the flow of experience? “Just the flow of activity when you climb the mountain” – what is that? Just the flow of activities called “climbing the mountain” – at that time, where are they, what are they? Right in the middle of the perpetual flow of activities, there is rock, mountain, trees, your consciousness, feelings, past, present, future; all things come together. And then, this is temporarily called *perpetual flow of activities*, called *climbing the mountain*. Without all sentient beings, you cannot climb. That’s why “one side is manifested, and the other side is obscure.” *The other side* means the rest of the existence. The whole world comes into you. 
 
-That is what? Just practice. The total manifestation of perpetual flow of activities. And then, if you explain it philosophically, [etymologically] speaking, that is Buddhist psychology, Buddhist philosophy. And that makes you confused, in a sense. *[He chuckles.]* But it helps.
+That’s what it means. Alright?
+
+That is what? Just practice. Just practice, the total manifestation of perpetual flow of activities. 
+
+And then, if you explain it philosophically, [etymologically] speaking, that is Buddhist psychology, Buddhist philosophy. And that makes you confused, in a sense. *[He chuckles.]* But it helps.
 
 #### 1:10:42
 
@@ -286,9 +300,11 @@ That is what? Just practice. The total manifestation of perpetual flow of activi
 
 **Katagiri Roshi:** Yes. In other words, all sentient beings are *behind* you, always supporting. 
 
-We are always going in front. But we have a back. But we don’t see the back, you know? We always see the front, what’s going on. We always ignore the back. [But] the back is huge. So, “the other sentient beings are obscure” means “with a back” – in other words, behind you, and then supporting. Even though you don’t like [it]. [We are] crying, “go ahead, go ahead,” in many ways, you know? *[Laughter.]*
+We are always going in front. But we have a back. But we don’t see the back, you know? We always see the front, what’s going on. *[He laughs.]* We always ignore the back. The back is huge! 
 
-If you become a spiritual teacher, you must be like that. You cannot be a *front* person. If you become a person in front, it’s making trouble. So if you become a spiritual teacher, you must be always a person of behind. But, it really helps.
+So, “the other sentient beings are obscure” means “with a back” – in other words, behind you, and then supporting. Even if you don’t like it – crying, “Go ahead, go ahead.” *[Laughter.]* In many ways, you know? *[Laughter.]*
+
+If you become a spiritual teacher, you must be like that. You cannot be a *front* [person]. If you become a person in front, it’s a trouble maker. So if you become a spiritual teacher, you must be always a person of behind. But, it really helps.
 
 #### 1:12:06 end of recording
 
