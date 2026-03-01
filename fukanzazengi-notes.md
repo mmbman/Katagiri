@@ -82,7 +82,7 @@ clean?
 
 - See also Katagiri Roshi’s commentary in [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1”](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1) at [30:00](1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000) (and note the historical shift in the assignment of “sudden” and “gradual”): “Zen history says Sōtō Zen is ‘gradual enlightenment,’ Rinzai Zen is ‘sudden enlightenment.’ It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much.”
 
-- For a deeper dive into the meaning of *mirror* in Zen, see Katagiri Roshi’s commentary in [“*Shōbōgenzō Kokyō*: Form and Mirror”](kokyo).
+- For a deeper dive into the meaning of *mirror* in Zen, see Katagiri Roshi’s commentary in [“*Kokyō*: The Ancient Mirror”](kokyo).
 
 ##### 5
 
