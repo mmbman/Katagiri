@@ -132,73 +132,81 @@ And then next, the last sentence (in this section) says,
 
 > Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
 
-Yesterday, Shoken Floyd Winecoff asked me [...] about sadness. Religiously speaking, if you see your karmic life, there is some deep sadness there. For instance, if I look at myself, there is a deep sadness there, because I cannot control it. You cannot control it in the usual way; it can be controlled, but not in the usual way. That’s why it’s very difficult. So in a sense, [there is] deep sadness there. 
+Yesterday, Shoken Floyd Winecoff asked me about sadness. Religiously speaking, if you see your karmic life, there is some deep sadness there. For instance, if I look at myself, there is a deep sadness there, because I cannot control [karmic life]. It can be controlled, but not in the usual way; that’s why it’s very difficult. So in a sense, [there is] deep sadness there. 
 
-*Deep sadness* means, completely beyond speculation, when you see something, you feel sad, you feel pensive. So when the flower falls, you feel pensive, and you say, “Please, stay on the branch,” you know? When weeds grow, you *hate* it. I’ve really experienced this hatred in the everyday cleaning my temple yard. *[He chuckles.]* Picking up [the] big temple yard by myself. I didn’t have a big machine, or chemicals to kill the weeds, so I had to pick up weeds every day when I saw them, you know? It’s really questionable. I always asked [myself], “What [am I] doing here? This is my lifestyle, picking up grasses like this? This is the purpose of a monk’s life?” *[Laughter.]* So I thought, “Oh, [this was a] big mistake.” *[Laughter.]* “Why did I become a monk?” *[Laughter.]* But I had no choice, so I always did it, you know? 
+*Deep sadness* means completely beyond speculation, when you see something you feel sad, you feel pensive. So when the flower falls, you feel pensive, and you say, “Please, stay on the branch,” you know? When weeds grow, you *hate* it. *[Laughter.]*
 
-That’s really hatred coming up. Flowers bloom and weeds grow beyond your hatred or love. Before, or in advance, it’s blooming. Do you understand? Your life is already blooming, in the same way as the blooming of a flower. So your life is what? Just a blooming flower. Your life is what? Growth of the weeds. Just the same things. But when you see the weed, you separate it, and then you hate it. But basically, weeds grow in the same way as your presence. Before you poke your head into it, it already grows, the flower blooms. 
+I’ve really experienced this hatred in the everyday cleaning my temple yard. *[He chuckles.]* Picking up [the] big temple yard by myself: I didn’t have a big machine, or chemicals to kill the weeds, so I had to pick up weeds every day. And when you see them, you know, it’s really questionable. I always asked [myself], “What am I doing here? This is my lifestyle, picking up grasses like this? This is the purpose of a monk’s life?” *[Laughter.]* So I thought, “Oh, [this was a] big mistake.” *[Laughter.]* “Why did I become a monk?” *[Laughter.]* But I had no choice, so I always did it, you know? 
 
-But on the other hand, you cannot ignore that feeling. So Dōgen Zenji says let’s come back to everyday life as a human being. [...] What do you feel [about] flowers or weeds? Do you feel love? Do you feel you love the weeds? Are you *sure* you love the weeds? We always cut the grass, and then some people say, “don’t cut the grass,” you know? Are you sure you love the weeds? Are you sure you love the insects and the mosquitos? Are you sure? But – do you hate them? Are you sure? You don’t hate, you don’t love; [you] don’t know. 
+So it’s really hatred coming up. [But] flowers bloom and weeds grow beyond your hatred or love. Before, or in advance, it’s blooming. Do you understand? Your life is already blooming, in the same way as the blooming of a flower. So your life is what? Just a blooming flower. Your life is what? Growth of the weeds. Just the same things. But when you see the weed, you separate it, and then you hate it. But basically, weeds grow in the same way as your presence. Before you poke your head into it, it already grows, the flower blooms. 
 
-But, it is a fact [that] you feel hatred or you feel love. This is a fact. Very straightforwardly, look at your human life. Your feeling, hatred or love, is not the usual sense of love or hatred you have thought for a long time. Let’s see it a different way, okay? That’s why Dōgen Zenji says the last sentence. He says [to] first bring up the Buddha’s world [as] how to see the human world. You should see the world in terms of Buddha’s eye. If so, should you hate the samsaric world? No. Come back, please come back – to the human life which exists day by day; with feelings, emotions; hatred, anger, et cetera. 
+But on the other hand, you cannot ignore that feeling! So Dōgen Zenji says, let’s come back to everyday life as a human being. What do you feel about flowers or weeds? Do you feel love? Do you feel you love the weeds? Are you *sure* you love the weeds? We always cut the grass, and then some people say, “don’t cut the grass,” you know? Are you sure you love the weeds? Are you sure you love the insects and the mosquitos? Are you sure? But – do you hate them? Are you sure? You don’t hate, you don’t love; I don’t know. 
 
-That’s why yesterday I mentioned that I think instead of always handling a feeling of sadness, we should go back to the important point: how to live, how to see the world; in other words, your basic attitude toward human life. So let the different way you should see the world, from the Buddha’s eye. That is our practice. Because feelings, sadness, always appear just like bubbles coming up. You love feelings so much, but next moment they disappear, and love turns into hatred. So it’s always very uneasy. But you cannot ignore it; that’s why Dōgen Zenji brings it up. Don’t ignore this one. But that feeling – sadness, hatred – is not something you should hate or you should love. You should take care of hatred or love as the Buddha’s world, as a decoration of the Buddhas’ land. 
+But, it is a fact [that] you feel hatred or you feel love. This is a fact. Very straightforwardly, look at your human life. But your feeling, hatred or love, is not the usual sense of love or hatred you have thought for a long time. Let’s see it a different way, okay? That’s why Dōgen Zenji says the last sentence. He says [to] first bring up the Buddha’s world [as] how to see the human world. You should see the world in terms of Buddha’s eye. If so, should you hate the samsaric world? No. Come back, please come back – to the human life which exists day by day; with feelings, emotions; hatred, anger, et cetera. 
 
-So if you do it, how do you decorate the human world with hatred, with sadness? That is our practice. Actually deal with it: calm your mind, calm your six senses, and then deal with your life; sadness, hatred, et cetera. It means, deal with life as [it] truly is.
+That’s why yesterday I said that I think instead of always handling a feeling of sadness, we should go back [a little bit] to the important point: how to live, how to see the world. In other words, your basic attitude toward human life: a little different way you should see the world, from the Buddha’s eye. That is our practice. Because feelings, like sadness, always appear just like bubbles coming up. You love feelings so much, but next moment they disappear, and love turns into hatred. So it’s always very uneasy. But you cannot ignore it; that’s why Dōgen Zenji brings it up: don’t ignore this one. But those feeling – sadness, hatred – are not something you should hate or you should love. You should take care of hatred or love as the Buddha’s world – as a decoration of the Buddhas’ land. 
+
+So if you do it, how do you decorate the human world with hatred, with sadness? That is our practice. Actually deal with it: calm your mind, calm your six senses, and then deal with your life; sadness, hatred, et cetera. It means, deal with [wrath] as [it] truly is.
 
 #### 42:42
 
-And then, I think the next paragraph is the contents of all sentient beings. What is the contents of all sentient beings?
+And then, the next paragraph is the contents of all sentient beings. What is the contents of all sentient beings?
 
-> Acting on and witnessing myriad things with the burden of oneself is “delusion.”
+> Acting on and witnessing myriad things with the burden of oneself is “delusion.” Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
 
-[That] means cultivating practice and verifying myriad things *by conveying oneself to them* is delusion. 
+“Acting on and witnessing myriad things” means cultivating practice and verifying myriad things *by conveying oneself to them* is delusion. 
 
-In other words, first we try to move toward nature and create the poem. By creating a poem, you can verify the existence of nature, how wonderful it is. [...] But, he says, it is delusion. Yes, it is delusion, because you see the world in terms of your eyes, your feelings; [that is] delusion. But is it real delusion? No, no way; that [would be] a little bit narrow understanding. That delusion is going in the Buddha’s land, supported by all sentient beings. Because there is no other way! No other way.
+[For example,] first we try to move toward nature and create a poem. By creating a poem, we can verify the existence of nature, how wonderful it is. [...] But it *is* delusion; he says it is delusion. Yes, it is a delusion: because you see the world in terms of *your* eyes, *your* feelings. [That is] delusion. But is it [really] delusion? No, no way; that [would be] a little bit narrow understanding. That delusion is going [on] in the Buddha’s land, supported by all sentient beings. Because there is no other way! No other way.
 
-If it is delusion, which you should hate – at that time, [is] all sentient nature coming to you and helping you? In the 1960’s and 70’s, the hippies always said something like, “I don’t know where I am going. The Universe takes care of me.” Can you say that? *[He chuckles.]* No way. If you do it, your life becomes a *mess*. 
+If it is delusion, which you should hate – at that time, [is] all of nature coming to you and helping you? In the 1960’s and 70’s, the hippies always said something like, “I don’t know where I am going; the Universe takes care of me.” Something like that. Can you say so? *[He chuckles.]* No way. If you do it, your life becomes a *mess*!
 
-So first of all, you have to move toward nature, toward the world, and take care of it. And then, at that time, you can verify the presence of the world with you. That’s why we have to do it. But, it is delusion. We say, “It is right; it is Enlightenment;” [but] I don’t think it is. [That is] prejudice; ego. That’s why if you see the very energetic businessmen and politicians – whoever they are – you really respect them, because they are always acting positively, creating something; [you think] they are wonderful people. But I don’t think it’s wonderful. *[He chuckles.]* It is a delusion. 
+So first of all, you have to move toward nature, toward the world, and take care of it. And then at that time, you can verify the presence of the world, with you. That’s why we have to do it. 
 
-But the point is, there is no other way *except* the deluded way, in order to reach whole world. So the important point is, don’t be stuck in the delusion. You can use delusion properly. How? Simply deal with delusions; as simply as you can. There is no reason you should be stuck, or you should be proud of yourself; no matter [whether] you are successful in business, or politics, et cetera. Even if I become a saint, there is no reason I should be proud of myself. No way. Because it is delusion. That is my karmic life. 
+But, it is a delusion. We say, “It is *right*; it is *enlightenment*.” I don’t think it is. [That is] prejudice; ego. 
 
-It is something like [that] an owl can see everything at night. “By practice, I became a saint” – is this wonderful? No, it’s not wonderful. It is just like an owl...
+That’s why if you see the very energetic businessmen and politicians – whoever they are – you really respect them, because they are always acting positively, creating something. [You think,] “He is a wonderful person.” But I don’t think it’s *wonderful*. *[He chuckles.]* It is delusions. 
+
+But the point is, there is no other way *except* the deluded way in order to reach the whole world. So the important point is, don’t be stuck in the delusions. You can use delusion properly. *How?* Simply deal with delusions; as simply as you can. There is no reason you should be stuck, or you should be proud of yourself; no matter [whether] you are successful in business, or politics, et cetera. Even if I become a saint, there is no reason I should be proud of myself. No way! Because it is delusion. 
+
+That is my karmic life. It is just like [that] an owl can see everything at night. “By practice, I became a saint” – is this wonderful? No, it’s not wonderful...
 
 *[Tape change.]*
 
-... because I create it. 
+[...]
 
-But on the other hand, if so, it is wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. So, don’t get stuck with delusion; please use delusion in universal perspective. That is the bodhisattva practice. That’s why bodhisattvas suffer from their life, and also from [other] people’s life, all sentient beings’ life – how to help all sentient beings.
+But on the other hand, if so, is it wrong? No, it’s not wrong. Behind this delusion, a huge, expansive world is there, by which your delusion is supported. 
 
-#### 48:01
+So don’t be stuck with the delusion; please use the delusion in the universal perspective. That is a bodhisattva practice. That’s why bodhisattvas suffer from their life and also from [ordinairy] people’s life, all sentient beings’ life – how to help all sentient beings.
 
-And then, that’s why next he says, 
+That’s why next he says, 
 
 > Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
 
-So your life, your delusion is already manifested in the advent of myriad things. That is your way of life. That is a unique way to approach [knowing] the total picture of life, the human world. 
+So your life, your delusion is already manifested in the advent of myriad, myriad things. That is your way of life. That is a unique way to approach [knowing] the total picture of life, the human world. 
 
-So, delusion and enlightenment work together. That’s why a bodhisattva is always characterized by walking with all sentient beings hand in hand, instead of getting into Buddha’s position, becoming Buddha. They don’t want that! So, [they are] always walking. But behind the bodhisattva’s delusion, there is a Buddha there; so-called enlightenment. That’s why, if you read scriptures, always the bodhisattva appears in front, and behind [there are] Buddhas. Always the Buddha is behind the bodhisattva, supporting. 
+So, delusion and enlightenment work together. That’s why a bodhisattva is always characterized by walking with all sentient beings hand in hand, instead of getting into Buddha’s position. Becoming Buddha – they don’t want that! So, [they are] always walking. But behind the bodhisattva’s delusion, there is a buddha there; so-called enlightenment. That’s why if you read scriptures, always the bodhisattva appears in front, and behind [is the] buddha. Always the buddha is behind the bodhisattva, supporting. 
 
 So if you read the scriptures, there is always something very quiet, silent, beyond a bodhisattva’s activities in the front. There is some quietness. That quietness is described sometimes as *emptiness*.
 
-It’s very interesting: if you sit down quietly and read scriptures, very naturally, you can see first the bodhisattva’s activities and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
+It’s very interesting: if you sit down quietly and read scriptures, very naturally you can see first the bodhisattva’s activities and dynamism, in the front of the existence. But behind, always there is something there, which is quiet and supportive.
 
 #### 50:17
 
-Next,
+So next,
 
 > Great enlightenment about delusion is Buddhas;  ...
 
 You should know what delusion is: that is called Buddha. Delusion is not something you should hate or keep away from. So you should have great enlightenment about delusion; then you become a bodhisattva. And then you can help, you can share. 
 
-For instance, [if] you always try to help, but people don’t accept you. This is suffering. But suffering is okay... [Well,] not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people, whatever happens, accepting or not accepting. Anyway you should continually consider carefully how to help. That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is [being] a bodhisattva. 
+For instance, [if] you always try to help, but people don’t accept you. This is suffering. But suffering is okay... [Well,] not okay, but there is no other way. So, if the help is good, you have to consider again and again how to help people, all kinds of people. Whatever happens, accepting or not accepting, you should continually consider carefully how to help. 
+
+That is really delusion. Don’t you think so? It’s delusion, by which you suffer. But this is [being] a bodhisattva. 
 
 That delusion is really supported by enlightenment. That’s why the next sentence says, 
 
 > great delusion about enlightenment is sentient beings. 
 
-That is called *you*. Ordinary people. Ordinary people are persons who have attained [...] really deeply [...] what delusion is. Then, this is called all sentient beings.
+That is called *you*; ordinary people. Ordinary people are persons who have attained [...] really deeply [...] what delusion is. Then this is called all sentient beings.
 
 #### 52:17
 
@@ -208,11 +216,9 @@ What you have to do is, you are always acting and helping all sentient beings as
 
 #### 53:10
 
-In the saying, 
-
 > When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood, Buddhas go on realizing.
 
-That’s why [we ask,] “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri mentions this, Buddha mentions this, ancestors mention this. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
+[Because we ask,] “What is this? How do you know this? How you feel stable? Please give me the stability and faith and the strength by practicing this. Katagiri [talks about] this, Buddha [talks about] this, ancestors [talks about] this. Please give me something!” But, no way. I don’t know. I don’t have anything to give you. So all you have to do is, just do it. If you just do it – participate directly in the perpetual flow of energy – at that time, there is no way to know. But, it is [that] you can realize it.
 
 So, it’s just like your body soaks in the stream, and then your whole body is wet, but we always scoop the water into our bodies. If you feel thirst, you always scoop the water and you drink, and then you feel good; then next moment, some thirst comes again. So to really quench your thirst, you jump into the water; you soak your body and mind in the river. And then, the river water soaks through your huge pores. Your body is just like a bamboo basket. Do you understand? Like the pores. But you don’t believe it. If you soak [your body], then water falls through there, lots of [...] holes, the pores. *[He chuckles.]*
 
