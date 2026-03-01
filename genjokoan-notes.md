@@ -148,12 +148,14 @@ growing when we despise them.”
 ###### 5.1
 
 > [TC] When people first seek the Teaching, they are far from the bounds of the Teaching. Once the Teaching is properly conveyed in oneself, already one is the original human being.
+>
+> [KR] When the people first seek the dharma, they are far from the bounds of the dharma. Once the dharma is always conveyed in oneself, immediately original nature of the self is manifested.
+
+- [“Manas: Spontaneous, Perpetual, Homogeneous” at 26:10](1987-06-20-Manas#2610)
 
 ###### 5.2
 
 > [TC] When someone rides in a boat, as he looks at the shore he has the illusion that the shore is moving. When he looks at the boat under him, he realizes the boat is moving. In the same way, when one takes things for granted with confused ideas of body-mind, one has the illusion that one’s own mind and own nature are permanent; but if one pays close attention to one’s own actions, the truth that things are not self will be clear.
-
-- [“Manas: Spontaneous, Perpetual, Homogeneous” at 26:10](1987-06-20-Manas#2610)
 
 ##### 6
 
