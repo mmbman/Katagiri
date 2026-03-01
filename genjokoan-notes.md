@@ -4,7 +4,7 @@ title: "Notes on Genjōkōan"
 
 #### by Kikan Michael Howard
 
-#### Updated February 27, 2026
+#### Updated March 1, 2026
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Genjōkōan*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
@@ -24,7 +24,9 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [“*Gabyō*: Painting of a Rice Cake – Talk 1” at 43:27](1986-12-01-Gabyo-Talk-1#4327): discussion of the term *genjō* as actualization or manifestation in the immediate present, or “subjectivity”.
 
-##### 1.1
+##### 1
+
+###### 1.1
 
 > 諸法の佛法なる時節、すなはち迷悟あり、修行あり、生あり、死あり、諸佛あり、衆生あり。  
 > 
@@ -40,9 +42,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6) “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist” – discussion here related to whether objects are “actual” and the meaning of “all sentient beings.”
 
-
-
-##### 1.2
+###### 1.2
 
 > 萬法ともにわれにあらざる時節、まどひなく、さとりなく、諸佛なく、衆生なく、生なく、滅なし。
 >
@@ -54,7 +54,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [“A, B, and C Worlds”](1987-06-27-A-B-and-C-Worlds)
 
-##### 1.3
+###### 1.3
 
 > 佛道もとより豊倹より跳出せるゆえに、生滅あり、迷悟あり、生佛あり。  
 > 
@@ -68,7 +68,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “The Buddha Way is completely beyond the concept of being or not-being, that’s why there are human beings and buddhas, life and death, delusion and enlightenment.” [KR]
 
-##### 1.4
+###### 1.4
 
 > しかもかくのごとくなりといへども、花は愛惜にちり、草は棄嫌におふるのみなり。
 >
@@ -81,31 +81,33 @@ growing when we despise them.”
 
 - [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “Nevertheless, flowers fall with human attachment, weeds grow with hatred.” The connection with karma, and specifically “taking care of karma,” is mentioned.
 
-##### 2.1
+##### 2
+
+###### 2.1
 
 > [TC] Acting on and witnessing myriad things with the burden of oneself is "delusion." 
 
 - [“*Genjōkōan*: Talk 3” at 42:42](1987-06-07-Genjokoan-Talk-3#4242)
 
-##### 2.2
+###### 2.2
 
 > [TC] Acting on and witnessing oneself in the advent of myriad things is enlightenment. 
 
 - [“*Genjōkōan*: Talk 3” at 48:01](1987-06-07-Genjokoan-Talk-3#4801)
 
-##### 2.3
+###### 2.3
 
 > [TC] Great enlightenment about delusion is Buddhas; great delusion about enlightenment is sentient beings. 
 
 - [“*Genjōkōan*: Talk 3” at 50:17](1987-06-07-Genjokoan-Talk-3#5017)
 
-##### 2.4
+###### 2.4
 
 > [TC] There are also those who attain enlightenment on top of enlightenment, and there are those who are further deluded in the midst of delusion. 
 
 - [“*Genjōkōan*: Talk 3” at 52:17](1987-06-07-Genjokoan-Talk-3#5217)
 
-##### 2.5
+###### 2.5
 
 > [TC] When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood — Buddhas go on realizing.
 
@@ -167,17 +169,19 @@ growing when we despise them.”
 
 > [TC] Under these circumstances, if there were birds or fish who attempted to traverse the waters or the sky after having found the limits of the water or sky, they wouldn’t find a path in the water or the sky — they won’t find any place. When one finds this place, this action accordingly manifests as the issue at hand; when one finds this path, this action accordingly manifests as the issue at hand. This path, this place, is not big or small, not self or other, not preexistent, not now appearing — therefore it exists in this way. In this way, if someone cultivates and realizes the Buddha Way, it is *attaining a principle, mastering the principle*; it is *encountering a practice, cultivating the practice*. In this there is a place where the path has been accomplished, hence the unknowability of the known boundary is born together and studies along with the thorough investigation of the Buddha Teaching of this knowing—therefore it is thus. Don’t get the idea that the attainment necessarily becomes one’s own knowledge and view, that it would be known by discursive knowledge. Though realizational comprehension already takes place, implicit being is not necessarily obvious — why necessarily is there obvious becoming?
 
-##### 11.1
+##### 11
+
+###### 11.1
 
 > [TC] Zen Master Hotetsu of Mt. Mayoku was using a fan. A monk asked him about this: ‘‘The nature of wind is eternal and all-pervasive —why then do you use a fan? The master said, "You only know the nature of wind is eternal, but do not yet know the principle of its omnipresence.” The monk asked, "What is the principle of its omnipresence?” The master just fanned. The monk bowed.
 
 - This example is briefly mentioned in [“*The Awakening of Faith* – Talk 36”](1986-04-11-Awakening-of-Faith-Talk-36).
 
-##### 11.2
+###### 11.2
 
 > [TC] The experience of the Buddha Teaching, the living road of right transmission, is like this. To say that since (the nature of wind) is permanent one should not use a fan, and that one should feel the breeze even when not using a fan, is not knowing permanence and not knowing the nature of the wind either. 
 
-##### 11.3 
+###### 11.3 
 
 > 風性は常住なるがゆえに、佛家の風は、大地の黄金なるを現成せしめ、長河の蘇酪を参熟せり。
 
