@@ -127,7 +127,17 @@ growing when we despise them.”
 
 ##### 4
 
-> [TC] Studying the Buddha Way is studying oneself. Studying oneself is forgetting oneself. Forgetting oneself is being enlightened by all things. Being enlightened by all things is causing the body-mind of oneself and the body-mind of others to be shed. There is ceasing the traces of enlightenment, which causes 
+> [TC] Studying the Buddha Way is studying oneself. Studying oneself is forgetting oneself. Forgetting oneself is being enlightened by all things. Being enlightened by all things is causing the body-mind of oneself and the body-mind of others to be shed. There is ceasing the traces of enlightenment, which causes one to forever leave the traces of enlightenment which is cessation.
+> 
+> [KR] To study Buddhism is to learn the self. To learn the self is to forget the self. To forget the self is to be confirmed by all sentient beings ...
+
+- The first three lines are, of course, one of the most well-known sayings in Buddhism. Katagiri Roshi usually says “learn the self” instead of “study the self” or “studying oneself.” References to the general concept are probably too numerous to cite, but here are some specific examples:
+- [“Karmic Retribution in Present Life” after 0:00](1980-07-10-Karmic-Retribution-in-Present-Life#000): “Buddhist teaching is always aiming at the original nature of human being, which is constantly free, and not belonging to a certain teaching...”
+- [“*Blue Cliff Record* Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 2” at 39:10](1981-11-22-Blue-Cliff-Record-Case-25-Talk-2#3910) : “‘To learn Buddhism is to learn the self’ is not the individual self. It is the universal self.”
+- “Gatha of Closing the Sutra” – a brief reference
+- [“*Kokyō*: The Ancient Mirror – Talk 1” at 33:34](#3334) : “But in order to learn the self and your life, it’s very difficult to learn the essential nature of human existence in public, in the universe, because we have lots of prejudice ... So, one by one, we have to take off those prejudices. ”
+- “Tiantai Buddhism: Outline of 4-Fold Teaching (2 of 2)”
+- [“*Platform Sutra* – Talk 3” at 7:16](1987-03-27-Platform-Sutra-Talk-3#716) : “If [...] you learn the self, [it] is to learn the world. If you learn the sublimity of human life, it is simultaneously to learn the sublimity of the trees, and the birds, all living beings. The one truth is *all* truth.  Because it is universal; wisdom is characterized by *maha*: vastness, boundlessness.”
 
 ##### 5
 
