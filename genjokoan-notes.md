@@ -38,9 +38,9 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [“A, B, and C Worlds”](1987-06-27-A-B-and-C-Worlds)
 
-- [“*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2” at 46:44](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2#4644) “When all dharmas are buddha-dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” This appears perhaps to be Katagiri Roshi’s somewhat off-the-cuff translation. Here there is a short but important discussion of this line in terms of “seeing the human world, human beings, with the eyes of the path” and “[accepting] totally all sentient beings as equal entities.” *Faith* is “[to] totally accept and receive.”
+- [“*Blue Cliff Record* Case 46: Ching Ch’ing’s Sound of Raindrops, Talk 2” at 46:44](1983-08-24-Blue-Cliff-Record-Case-46-Talk-2#4644): “When all dharmas are buddha-dharma, there is enlightenment and delusion, practice, life and death, buddhas and creatures.” This appears to be Katagiri Roshi’s perhaps off-the-cuff translation. Here there is a short but important discussion of this line in terms of “seeing the human world, human beings, with the eyes of the path” and “[accepting] totally all sentient beings as equal entities.” *Faith* is to “totally accept and receive.”
 
-- [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6) “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist” – discussion here related to whether objects are “actual” and the meaning of “all sentient beings.”
+- [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6): “When all things become buddha-dharma, then there are human beings, buddhas, enlightenment, delusions, and all sentient beings exist” – discussion here related to whether objects are “actual” and the meaning of “all sentient beings.”
 
 ###### 1.2
 
@@ -66,7 +66,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - [“A, B, and C Worlds”](1987-06-27-A-B-and-C-Worlds)
 
-- [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “The Buddha Way is completely beyond the concept of being or not-being, that’s why there are human beings and buddhas, life and death, delusion and enlightenment.” [KR]
+- [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “The Buddha Way is completely beyond the concept of being or not-being, that’s why there are human beings and buddhas, life and death, delusion and enlightenment.”
 
 ###### 1.4
 
@@ -145,7 +145,11 @@ growing when we despise them.”
 
 ##### 5
 
+###### 5.1
+
 > [TC] When people first seek the Teaching, they are far from the bounds of the Teaching. Once the Teaching is properly conveyed in oneself, already one is the original human being.
+
+###### 5.2
 
 > [TC] When someone rides in a boat, as he looks at the shore he has the illusion that the shore is moving. When he looks at the boat under him, he realizes the boat is moving. In the same way, when one takes things for granted with confused ideas of body-mind, one has the illusion that one’s own mind and own nature are permanent; but if one pays close attention to one’s own actions, the truth that things are not self will be clear.
 
