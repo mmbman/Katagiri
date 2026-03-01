@@ -348,8 +348,8 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. *Hosshō*: Dharma Nature – Talk 12
 1. *Hosshō*: Dharma Nature – Talk 13
 
-1. [*Kokyō*: Form and Mirror – Talk 1](1986-10-18-Kokyo-Talk-1)
-1. [*Kokyō*: Form and Mirror – Talk 2](1986-10-19-Kokyo-Talk-2)
+1. [*Kokyō*: The Ancient Mirror – Talk 1](1986-10-18-Kokyo-Talk-1)
+1. [*Kokyō*: The Ancient Mirror – Talk 2](1986-10-19-Kokyo-Talk-2)
 
 1. [Tiantai Buddhism: Historical Background](1986-10-31-Tiantai-Buddhism-Talk-1)
 

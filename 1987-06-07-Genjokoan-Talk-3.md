@@ -59,48 +59,50 @@ The last sentence is a conclusion. The last sentence says:
 
 “Into butter”: Sweet butter, sweet milk, wonderful milk. That means Buddha’s world; [a] peaceful, harmonious world. 
  
-So, what is the responsibility for us, what is the *duty* for us, if you want to be present in this world as a human being – that is, a human being who has the great refined lifestyle of Buddha’s family. What is the duty? Our duty is to turn the earth – alayavijñāna, alaya world, karmic life – into gold – which means tathāgatagarbha, Buddha’s world. How? You should participate in it directly. Regardless of whether you judge yourself, “I am enlightened,” or “I am unenlightened,” it doesn’t matter. All you have to do is you should participate in this practice directly, day by day, and then at that time your life ripens, very naturally. So you can develop the long river: your whole life, including past, present, and future, into butter, sweet butter – that means into the peaceful, harmonious world. That is your total personality coming up.
+So, what is the responsibility for us, what is the *duty* for us, if you want to be present in this world as a human being [...] who has [this] great refined lifestyle of Buddha’s family. What is the duty? Our duty is to turn the earth – alayavijñāna, *alaya* world, karmic life – into gold – which means tathāgatagarbha, Buddha’s world. How? You should participate in it directly. Regardless of whether you judge yourself, “I am enlightened,” or “I am unenlightened,” it doesn’t matter. All you have to do is you should participate in this practice directly, day by day, and then at that time your life ripens, very naturally. So you can develop the long river: your whole life, including past, present, and future, into butter, sweet butter – that means into the peaceful, harmonious world. That is your total personality coming up.
 
-How do you develop the whole personality? It’s not your business. Your business is just to participate in this practice. That’s it! And then the whole personality is coming up, just like water under the ground coming up. If your pipe touches the water [line], naturally water – *[shoop!]* – comes up. 
+How do you develop the whole personality? It’s not your business. Your business is just to participate in this practice. That’s it! And then the whole personality is coming up, just like water [...] if your pipe touches a water vein, naturally water – *[shoop!]* – comes up. 
 
-When you see the water coming up from the ground, it is called *whole personality*. By which people are really impressed, and people really want to see such a person. It is necessary for us; and we have such a capability. So, finally, our purpose is just like this. That’s why it is the conclusion of *Genjōkōan*.
+When you see the water coming up from the ground, it is called *whole personality*, by which people are really impressed, and people really want to see such a person. It is necessary for us, and we have such a capability. 
 
-So, what is the practice for us? *[He chuckles.]* Well, we always say, “We want to attain enlightenment, we want to be an enlightened person,” et cetera. We are always “juggling” in the realm of *samsara*: “You are wrong; I am right,” you know? “I practiced for ten years, with this person”; “You are always lazy; you are not Buddhist.” And always, “I love him, so he is my teacher.” It’s ridiculous! *[He laughs, and there is some laughter.]* And then sometimes someone tells you bitter things: “Oh, I don’t like him. He is not my teacher.” Something like that. We’re always juggling like this. How do you understand? How do you share your life with all sentient beings in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, [and] shaking hands – actually, practically, you never built up a peaceful world from day to day. No way. Always you are fighting; suffering. That’s why Dōgen Zenji [teaches] like this.
+So finally, our purpose is just like this. That’s why it is the conclusion of *Genjōkōan*.
 
-What is our practice? Whoever you are, what you have to do is try to turn alayavijñāna into tathāgatagarbha – turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is what *Genjōkōan* explains.
+So, what is the practice for us? *[He chuckles.]* Well, we always say, “We want to attain enlightenment, we want to be an enlightened person,” et cetera. We are always “juggling” in the realm of *samsara*: “You are wrong! I am right!” you know? “I practiced for ten years, with this person”; “You are always lazy; you are not Buddhist,” always. “I love him, so he is my teacher.” It’s ridiculous! *[He laughs, and there is some laughter.]* And then sometimes someone tells you bitter things: “Oh, I don’t like him. He is not my teacher.” Something like that. We’re always juggling like this. How do you understand? How do you share your life with all sentient beings in peace and harmony? No matter how long you talk about compassion, wisdom, kindness, friendliness, [and] shaking hands – actually, practically, you never built up a peaceful world from day to day. No way. Always you are fighting; suffering. That’s why Dōgen Zenji [teaches] like this.
+
+What is our practice? Whoever you are, what you have to do is try to turn alayavijñāna into tathāgatagarbha – turn our earth, the human world, into gold, Buddha’s world. You should participate in it! You can do it. How? That is [what *Genjōkōan* explains].
 
 #### 17:56
 
-Let’s go back to the first paragraph, [and] divide *Genjōkōan* into eleven sections... 
+So let’s go back to the beginning. Let’s divide *Genjōkōan* into eleven sections... 
 
 (*Transcriber’s Note:* From 18:20 to 21:05, Katagiri Roshi divides the text into sections, mostly lining up with the paragraphs in the Thomas Clearly translation but with some differences. I follow these section numbers in the [Notes on Genjokoan](genjokoan-notes).)
 
-*(He has someone read the first section:)*
+*(He has someone read the first section.)*
 
-> When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
-> When myriad things are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
-> Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas.  
+Okay. The first section is divided into four sentences:
+
+> When all things are Buddha-teachings, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings. 
+> When myriad things are all not self, there is no delusion, no enlightenment, no Buddhas, no sentient beings, no birth, no death. 
+> Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and Buddhas.  
 > Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
-
-Okay. The first section is divided into four sentences. The first one is:
 
 #### 22:28
 
-> When all things are Buddha’s teaching, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are buddhas, there are sentient beings.  
+> When all things are Buddha-teachings, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings. 
 
-[The translator] says “Buddha’s teachings”; I think originally [Dōgen] said *Buddha-dharma*. Buddha-dharma means the whole universe. *Whole universe* is not like a huge avocado seed, okay? In other words, the universe is not a huge lump of the earth body. Buddha-dharma means, I told you already, a perpetual flow of energies, always going, and acting. And it’s quiet. But it’s dynamic; it’s always going. [It] is huge; boundless. There are no boundaries; always huge, huge. That’s why I sometimes use [the expression] “vast expanse of existence.” It’s vast. It’s really vastness. 
+[The translator] says “Buddha-teachings”; I think originally [Dōgen] said *buddha-dharma*. Buddha-dharma means the whole universe. The “whole universe” is not like a huge avocado seed, okay? In other words, the universe is not a huge lump of the [earth] body. Buddha-dharma means, I told you already, a perpetual flow of energies, always going, and acting. And it’s quiet, but it’s dynamic; it’s always going. [It] is huge; boundless. There are no boundaries; always huge, huge. That’s why I sometimes use [the expression] “vast expanse of existence.” It’s vast. It’s really vastness. 
 
-The first section is talking about the outlook on the world: how you should see the world, how you understand the human world. So first of all, you have to see the world in terms of Buddha’s eye. Yesterday I mentioned, if you see the human world in terms of ordinary people’s eyes, so call alayavijñāna, the world becomes always alayavijñāna, never Buddha’s world. If you see the world in terms of Buddha’s eye, the whole world become Buddha’s world. 
+[...] The first section is talking about the outlook on the world: how you should see the world, how you understand the human world. So first of all, you have to see the world in terms of Buddha’s eye. Yesterday I mentioned, if you see the human world in terms of ordinary people’s eyes, so-called alayavijñāna, the world becomes always alayavijñāna, never Buddha’s world. If you see the world in terms of Buddha’s eye, the whole world become Buddha’s world. 
 
-Alayavijñāna means karmic life. If you see karmic life through meditation, you taste it, karmic life, but that karmic life you have tasted is still conceptualized. If you go beyond conceptualization of karmic life, it is nothing but perpetual flow of energies. That’s it. Because, karmic life has been going from the past, present, future, from every direction. So we don’t know what it is. But it’s [actively] working, anyway. So that’s why it’s very difficult to be free from the understanding of karmic life. Because every day you can see and taste karmic life, so it’s very easy for us to be stuck in karmic life. But originally, karmic life is what? It’s going. Dynamically, from the past, to the present, to the future.
+*Alayavijñāna* means karmic life. If you see karmic life through meditation, you taste it, karmic life, but still that karmic life you have tasted is conceptualized. If you go beyond conceptualization of karmic life, it is nothing but perpetual flow of energies; that’s it. Because, karmic life has been going from the past, present, future, from every direction; so we don’t know what it is. But it’s [actually] working, anyway. So that’s why it’s very difficult to be free from the understanding of karmic life; because every day you can see and taste karmic life, so it’s very easy for us to be stuck in karmic life. But originally, karmic life is what? It’s *going*; dynamically, from the past, to the present, to the future.
 
 If you go beyond, free from conceptualization of karmic life, at that time you really participate directly in alayavijñāna, which means tathāgatagarbha. Only when you participate in it, in deep understanding, the profound taste of alayavijñāna, then alayavijñāna turns into Buddha’s world, tathāgatagarbha.
 
-Yesterday I mentioned, [all of] space, *kokū*, falls down to the earth and is *crushed*, and then that is the time when an oak tree becomes Buddha. We are always separated. When the whole sky, whole worlds are crushed, we must be Buddha. When do you become Buddha? When the whole world is crushed; [when there is] nothing to compare. What do I mean? Just energy, working; and then, you become Buddha. When you become Buddha, that is the time when the whole earth is crushed. That is direct participation in alayavijñāna, instead of understanding human life in the world of conceptualization. That is very tricky. It’s very difficult to participate in the alayavijñāna directly and turn it into tathāgatagarbha. It’s *very* difficult. Because our head is very strong, stubborn.
+Yesterday I mentioned, [all of] space, *kokū*, falls down to the earth and is *crushed*, and then that is the time when the oak tree becomes Buddha. We are always separated; when the whole sky, the whole world is crushed, we must be Buddha. When do we become Buddha? When the whole world is crushed; [when there is] nothing to compare. What do I mean? Just energy, working; and then you become Buddha. When you become Buddha, that is the time when the whole earth is crushed. That is the direct participation in alayavijñāna, instead of understanding human life in the world of conceptualization. That is very tricky. It’s very difficult to participate in the alayavijñāna directly and turn it into tathāgatagarbha. It’s *very* difficult; because our head is very strong, stubborn.
 
-That’s why immediately Dōgen Zenji [says that] *all things* are not the all things you have thought; all are Buddhas. You should deal with this. At that time, see the world, see yourself: do you live alone? No; you are there with all sentient beings. That’s why delusion and enlightenment, cultivation of practice, and birth and death, and buddhas and all sentient beings, exist simultaneously. This is true reality. 
+That’s why immediately Dōgen Zenji [says that] *all things* are not the all things you have thought; all are Buddhas. You should deal with this. At that time, [look at] the world, [look at] yourself: do you live alone? No; you are there with all sentient beings. That’s why delusion and enlightenment, cultivation of practice, birth and death, and buddhas and all sentient beings, exist simultaneously. This is true reality. 
 
-What is this (true reality)? Is this your world, created by you? No. Is this the world created by your life in the past? No. It is something more than that. It’s really expansive, the existence of the world. That’s why [it says this]. 
+What is this [true reality]? Is this your world, created by you? No. Is this the world created by your life in the past? No. It is something more than that. It’s really expansive; the existence of the world. That’s why [it says this]. 
 
 #### 30:30
 
@@ -108,23 +110,25 @@ And then, next:
 
 > When the myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.  
 
-(*Transcriber’s Note:* The Cleary translation uses “things” to translate “dharmas.” Here Katagiri Roshi says *dharmas*.)
+(*Transcriber’s Note:* The Cleary translation uses “things” to translate “dharmas.” Here Katagiri Roshi says “dharmas.”)
 
-Then at that time, you are you, but you are not you – you are all sentient beings. You are supported by all sentient beings. So you shouldn’t always attach to yourself: “I am great.” I don’t think so; that is really egoistic! If you become *really* great, in other words if you really become mature, you don’t know this maturity. Real maturity is some energy which makes you go smoothly, like a stream of water; people just participate in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It’s not a stream of water, so [there is] always bumping. Lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we *[unintelligible]*.
+Then at that time, you are you, but you are not you – you are all sentient beings. You are supported by all sentient beings. So you shouldn’t always attach to yourself: “I am great.” I don’t think so; that is really egoistic! If you become *really* great, in other words if you really become mature, you don’t [notice] maturity. Real maturity is some energy which makes you go smoothly, like a stream of water; people just participate in that stream of water, just like a boat. But if you attach to maturity, this maturity becomes very strict. It’s not a stream of water, so [there is] always bumping. Lots of maturity there: your maturity, my maturity – *[laughter]* – always bumping, and creating a creaking sound. Do you understand? That is the human world that we [always say].
 
-That’s why “when myriad dharmas are all not self...” When you see the world in universal perspective, all [doesn’t] have its own ego-sense. No; it’s exactly the flow of energy, nothing but the flow of energy; penetrating, exchanging their own position with somebody else. I change my position with somebody’s position. In other words, I can talk with a bird, I can talk with a rock. I can talk with an Indian elephant. The elephant can shake hands with the Indian monkey. Do you understand that one? Intellectually you don’t understand this, but this is the Buddha’s world. Buddha’s world is shaking hands: if you pick up this one, the whole world picks it up. You don’t believe it, but this is really true. This is the outlook on the human world in terms of Buddha’s eye. Because you live with all sentient beings. Without all sentient beings, how can you survive? There is no possibility.
+That’s why “when the myriad dharmas are all not self...” When you see the world in universal perspective, all [doesn’t] have its own ego-sense. It’s exactly the flow of energy, nothing but the flow of energy; penetrating, exchanging their own position with somebody else. I change my position with somebody’s position. In other words, I can talk with a bird, I can talk with a rock. I can talk with an Indian elephant. The elephant can shake hands with the monkey. Do you understand that one? Intellectually you don’t understand this, but this is the Buddha’s world. Buddha’s world is shaking hands: if you pick up this one, the whole world [is picked up]. You don’t believe it, but this is really true. This is the outlook on the human world in terms of Buddha’s eye. Because you live with all sentient beings. Without all sentient beings, how can you survive? There is no possibility.
 
 #### 33:40
 
 And then next: if so, what is true reality? He said:
 
-> Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and buddhas.  
+> Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and Buddhas.  
 
-What are the *all sentient beings* you can see with your naked eye? They are not *all sentient beings* seen with your naked eye; [they are] something more than abundance and paucity, being or not being; completely beyond this. What is that? Buddha? I can see the trees, I can see the birds, but the birds don’t have their own ego, a tree doesn’t have its own ego. And then that is a true picture of the trees and birds. [...] going beyond being and not being, like or dislike, paucity and abundance. That is the true reality, of everything. So, a completely different world is coming up. 
+What are the *all sentient beings* you can see with your naked eye? They are not *all sentient beings* seen with your naked eye; [they are] something more than abundance and paucity, being or not being; completely beyond this. What is that? Buddha? I can see the trees, I can see the birds, but the birds don’t have their own ego, a tree doesn’t have its own ego. And then that is a true picture of the trees and birds. [...] Going beyond being and not being, like or dislike, paucity and abundance. That is the true reality, of everything. 
+
+So a completely different world is coming up. 
 
 #### 35:12
 
-Next, the last sentence (in this section) says, 
+And then next, the last sentence (in this section) says, 
 
 > Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.  
 
