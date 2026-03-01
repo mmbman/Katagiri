@@ -8,7 +8,7 @@ title: "Notes on Genjōkōan"
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Genjōkōan*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen*, which Katagiri Roshi used in some talks in 1986 and 1987.
+[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen*, which Katagiri Roshi used in some talks in 1986 and 1987. [KR] indicates translations that might be by Katagiri Roshi.
 
 ----
 
@@ -76,6 +76,8 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 growing when we despise them.”
 >
 > [TC] Moreover, though this is so, flowers fall when we cling to them, and weeds only grow when we dislike them.
+>
+> [KR] Nevertheless, flowers fall with human attachment, weeds grow with hatred.
 
 - [“*Genjōkōan*: Talk 3” at 35:12](1987-06-07-Genjokoan-Talk-3#3512)
 
@@ -110,6 +112,8 @@ growing when we despise them.”
 ###### 2.5
 
 > [TC] When the Buddhas are indeed the Buddhas, there is no need to be self-conscious of being Buddhas; nevertheless it is realizing buddhahood — Buddhas go on realizing.
+>
+> [KR] When Buddhas are genuinely Buddhas, there is no need for them to be conscious that they are Buddhas; yet they are realized Buddhas, and they continue to realize Buddhas.
 
 - [“*Genjōkōan*: Talk 3” at 53:10](1987-06-07-Genjokoan-Talk-3#5310)
 
