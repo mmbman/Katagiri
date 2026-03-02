@@ -9,7 +9,7 @@ title: "A, B, and C Worlds"
 
 *(Archive issue: The conclusion of this talk seems to be missing.)*
 
-#### [Listen to this talk] (https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds)
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds)
 
 #### 0:00
 
