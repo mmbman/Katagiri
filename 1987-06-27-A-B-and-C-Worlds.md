@@ -7,16 +7,13 @@ title: "A, B, and C Worlds"
 
 ### Transcript
 
-**This transcript is in rough draft stage.**
-
 *(Archive issue: The conclusion of this talk seems to be missing.)*
-
 
 #### [Listen to this talk] (https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/a-b-and-c-worlds)
 
 #### 0:00
 
-**Katagiri Roshi:** \[At the beginning of] *Shōbōgenzō* *Genjōkōan* [it says]:
+**Katagiri Roshi:** [At the beginning of] *Shōbōgenzō Genjōkōan* [it says]:
 
 > When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.
 
@@ -28,71 +25,81 @@ Next he says,
 
 > Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and Buddhas.
 >
-> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, with some change.)
+> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, with some changes.)
 
-Three sentences here. Let’s say [...] the first one, according to my terms, [refers to] the *A world*. *A world*, *B world*, *C world*; the first sentence is *A world*. That is, Dōgen Zenji says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, the seen world, that is the *A world*, the mundane world, simply speaking.
+Three sentences here. Let’s see it simply. The first one, according to my term, [refers to] the *A* world. *A* world, *B* world, *C* world; the first sentence is *A* world. That is, Dōgen Zenji says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of practice, there is birth, there is death, there are Buddhas, there are sentient beings.” So first, in our common sense, [we see the] world, that is *A* world, the mundane world – simply speaking.
 
-Then second is *B world*. Dōgen says, “When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.” *B world* is the spiritual world, simply speaking. 
+Then second is *B* world. Dōgen says, “When myriad dharmas are all not self, there is no delusion, no enlightenment, no buddhas, no sentient beings, no birth, no death.” *B* world is the spiritual world, simply speaking. 
 
-So there are two worlds we are always confronted with: *A world*, the mundane world, and *B world*, the spiritual world. In terms of the spiritual world, *B world*, the mundane world (*A world*) is something *impure*. So very naturally, in the spiritual world, [there is] no mundane world, so [there is] no birth, no death. According to Nāgārjuna, this is called *emptiness*, we say. 
+So there are two worlds we are always confronted with: *A* world, the mundane world, and *B* world, the spiritual world. In terms of the spiritual world, *B* world, the mundane world is something impure. So very naturally, in the spiritual world [there is] no mundane world. So [there is] no birth, no death. According to Nāgārjuna, this is called *emptiness*, we say. 
 
-Is that clear? *A world*, *B world*. Very naturally, everyone sees two worlds in their lives: the mundane world as *A*, and the spiritual world as *B*, which is pure.
+Is that clear? *A* world, *B* world. Very naturally, everyone sees two worlds in their lives: the mundane world as *A*, and the spiritual world as *B*, which is pure.
 
-In the spiritual world, there are lots of terms: *Buddhas*, and *enlightenment*, and *God*, and *godhead*, and... well, we try to use a lot of terms to explain the pure spiritual world, which is quite different from the mundane *A world*. Very naturally we always see the two things separately. That makes you confused. Very confused. So always we have the see-saw game: *this way*, *that way*, *this way*, *that way*, always.
+In the spiritual world, there are lots of terms: *Buddhas*, and *enlightenment*, and *God*, and *godhead*, and... well, we try to use a lot of terms to explain the pure spiritual world, which is quite different from the mundane *A* world. So very naturally we always see the two things separately. That makes you confused – *very* confused. So always we have play the see-saw game: *this way*, *that way*, *this way*, *that way*, always.
 
 #### 5:00
 
 But as you know pretty well, Buddhism says that the world, or human life, or myriad, myriad things, or every single thing, are produced by the truth of *interdependent co-origination*. In other words, there is nothing which is produced by its own *being*, it’s own nature, it’s own substance. 
 
-In other words, according to the senses, the table exists by its nature, by its own energy, by its own substance. In philosophy we say the earth, [wind], water and fire, the four elements. The world is produced by the five elements, then the table has five elements. That is its own energy and power or substance to produce itself. That is a very common [belief].
+In other words, according to the senses, the table exists *by its nature*, by its own energy, by its own substance. In philosophy we say the earth, [wind], water, and fire – the four elements. The world is produced by the five elements (including *space*), then the table has five elements: that is its own energy or power or substance to produce itself. That is a very common [belief].
 
 But Buddhism talks about the teaching of the truth of interdependent co-origination, which means that there is nothing which every single being is produced by its own energy or nature or substance, but by myriad, myriad conditions, going and coming together at super-speed. So we don’t know! The table doesn’t have its own nature, its own power. Even a seed, a pumpkin seed or poppy seed, doesn’t have its own nature to produce. But a seed grows by... well, its own power, but on the other hand, [by] lots of energies around.
 
-So, Buddhism always says something appears [or] something is produced by myriad conditioned elements. So from this point, in the truth of interdependent co-origination, there is nothing particular you can pin down [as] *this is substance* or *this is the cause by which it is produced*. Nothing, because [it is] always interdependent, so there is nothing to separate. If you separate, there is the *A world* and *B world* [...] and then you can go to the *A*, and you can leave the *A* and go the *B*. In the truth of interdependent co-origination, there is no reason to separate everything. Always there it is, as it is. What is [is] just as it is, beyond your speculation, before you poke your head into it, because everything is constantly interconnected, interpenetrated. This is the world you can see: the winter, spring, and summer, you can see through. 
+So, Buddhism always says something appears [or] something is produced by myriad, myriad conditioned elements. So from this point, in the truth of interdependent co-origination, there is nothing particular you can pin down, [as] *this is substance* or *this is the cause by which it is produced*. Nothing, because [it is] always interdependent. 
+
+So there is nothing to separate. If you separate, there is the *A* world and *B* world [...] and then you can go to the *A*, and you can leave the *A* and go the *B*. In the truth of interdependent co-origination, there is no reason to separate everything. Always there it is, as it is. What is [is] just as it is, beyond your speculation, before you poke your head into it, because everything is constantly interconnected, interpenetrated. This is the world you can see: the winter, spring, and summer, you can see through. 
 
 #### 9:48
 
-So, usually, *A world* is always something separate from the *B world*, [and we think] “I don’t want it.” If we see the Spring, you love it, because you don’t like Winter. Always separations. But that is human speculation, the so-called *A world*, and then you want to go to the *B world*, the so-called spiritual world. That is always a cause of confusion. Buddhism always says *A world* and *B world* come together, and [are] interdependent, interconnected, interpenetrated constantly, and produce something. This is the total picture of winter. So what is winter, beyond your speculation?
+So usually, *A* world is always something separate from the *B* world, [and we think] “I don’t want it.” If we see the Spring, you love it, because you don’t like Winter. Always separations. But that is human speculation, the so-called *A* world – and then you want to go to the *B* world, the so-called spiritual world. That is always a cause of confusion. Buddhism always says *A* world and *B* world come together, and [are] interdependent, interconnected, interpenetrated constantly, and produce something. This is the total picture of winter. So what is winter, beyond your speculation?
 
-That’s why in the first sentence Dōgen Zenji says, “When all things are buddha-dharma.” So *all things* are not the *all things* you can see; *all things* are already all things seen from the truth of interdependent co-origination. It’s a big [world], the bigger scale of the word *dharma*, the world you can see; that is what we call buddha-dharma. That’s why here it says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of the practice, there is birth, there is death, there are buddhas, there are sentient beings.” 
+That’s why in the first sentence Dōgen Zenji says, “When all things are buddha-dharma.” So *all things* are not the *all things* you can see; *all things* are already all things seen from the truth of interdependent co-origination, so that is called *buddha-dharma*. It’s a big [word], the bigger scale of the word *dharma*, the world you can see; that is what we call *buddha-dharma*. That’s why here it says, “When all things are buddha-dharma, then there is delusion and enlightenment, there is cultivation of the practice, there is birth, there is death, there are buddhas, there are sentient beings.” 
 
-So [it’s] a little bit different than I said, I explained it simply. [It is] not *A world*; *A world* is *A world*, but *A world* is not *A world* in the usual sense, but *A world* interconnected, interpenetrated with *B world*. That is the total picture of *A world*. 
+So [it’s] a little bit different than I said; I explained it simply. [It is] not *A* world; *A* world is *A* world, but *A* world is not *A* world\ in the usual sense, but *A* world interconnected, interpenetrated with the *B* world. That is the total picture of the *A* world. 
 
-So, what is the *A world*? We can say *B world*. But the same applies to the *B world*: what is the *B world*? Should you escape from *A world* and then you can get to *B world*? No, because *B world* is *B world* interpenetrated, interconnected with the *A world*, then this is the *B world*. So what is the *B world*? We don’t know how to put a name on it. That is the total picture of the *B world*, the so-called spiritual world. 
+So, what is the *A* world? We can say “*B* world.” But the same applies to the *B* world: what is the *B* world? Should you escape from *A* world and then you can get the *B* world? No; because *B* world is *B* world interpenetrated, interconnected with the *A* world, then this is the *B* world. So what is the *B* world? We don’t know how to put a name on it. That is the total picture of the *B* world, the so-called spiritual world. 
 
-And then, where do you live? What is the true reality you live in every day? Do you live in the *A world*? Do you live in the *B world*? Yes or no. *Yes or no* means completely there is nothing to pin down. 
+And then, where do you live? What is the true reality you live every day? Do you live in the *A* world? Do you live in the *B* world? Yes or no. 
 
-So that is the total picture of the mundane (*A*) world [and] the total picture of the *B world* as the spiritual world that you are seeking for. But true things are completely something produced by *A world* and *B world*. That is called *C world*, I say. 
+“Yes or no” means completely there is nothing to pin down. So that is the total picture of the mundane (*A*) world [and] the total picture of the *B* world as the spiritual world that you are seeking for. But true things are completely something produced by *A* world and *B* world. That is called “*C* world,” I say. 
 
-So *C world* is the world where you live now. What is the *C world*? Is *C world* named by something? *A* or *B*? No. We cannot even say “C”. But temporarily, I say *C world*. 
+So *C* world is the world where you live now. What is the *C* world? Is *C* world named by something, [like] *A* or *B*? No. We cannot even say “C”. But temporarily, I say “*C* world.” 
 
-The *C world* is the true reality you live in. We live there, but usually we don’t see it; we [...] ignore it, and attach to *A* or *B*. That’s why your life is going *far* from the true reality you live in day to day; that’s why you create a big gap. So you are very confused. 
+So the *C* world is the true reality you live in. We live there, but usually we don’t see it; we always ignore it, and attach to *A* or *B*. That’s why your life is going *far* from the true reality you live day to day; that’s why you create a big gap. So you are very confused. 
 
 #### 14:50
 
-That’s why next Dōgen Zenji says, “Because the Buddha Way originally sprang forth from abundance and paucity” – Is that translation clear? I don’t know if you understand this or not. 
+That’s why next Dōgen Zenji says, 
+
+> Because the Buddha Way originally sprang forth from abundance and paucity... 
+
+Is that translation clear? I don’t know if you understand this or not. 
 
 “The Buddha Way” means *true reality*. Practically, or truly, you live there, which is a bigger scale of the world than you have thought. That is the Buddha Way. 
 
-“Abundance and paucity” means: Does the table exist? Yes, it is *being*. But on the other hand, table is *no being*. 
+“Abundance and paucity” means: Does the table exist? Yes, it is *being*; but on the other hand, table is *no being*. So what is the true reality of the table? [It is] beyond being or not being, abundance or paucity. This is a *total* picture of table’s existence. 
 
-So what is the true reality of the table, beyond being or not being, abundance or paucity? This is the *total* picture of the table’s existence. 
+That is “the Buddha Way originally sprang forth from abundance and paucity.” And then next he says, [because of that,] 
 
-That is “the Buddha Way originally sprang forth from abundance and paucity.” And then next he says, [because of that], “there is birth and death, delusion and enlightenment, sentient beings and Buddhas.” 
+> ... there is birth and death, delusion and enlightenment, sentient beings and Buddhas.
 
-This is very important: we exist. I am thinking, therefore I exist, you can say. *[He chuckles.]* Or my five *skandhas*, including thinking. And with you, all sentient beings exist. That existence – my life and your life – is completely beyond your speculation or evaluation. So should your life be viewed in terms of emptiness, so-called *no birth*? Yes or no. And is your life is seen from the mundane view? Yes or no.
+This is very important. We exist. “I am thinking, therefore I exist,” *[he chuckles]* – you can say.  [Well,] including thinking, or my five *skandhas*, and with you, all sentient beings... exist. Is that existence – my life and your life – completely beyond your speculation or evaluation? So should your life be viewed in terms of emptiness, so-called *no birth*? Yes or no. And is your life is seen from the mundane view? Yes or no.
 
-In the *Madhyamaka*, Nāgārjuna constantly tries to correct people’s misunderstanding of Buddha’s teaching, emphasizing constantly the true meaning of emptiness. So finally, everything is based on emptiness. Emptiness means the truth. But I don’t think this is really true, so still people don’t understand it, because we cannot ignore the mundane world. So very naturally in the history, *[unintelligible]* consciousness develops, the conscious psychological world is developed. At that time, in the Buddhist psychology, I think, of course, the reality is beyond abundance and paucity, because it is based on emptiness. And then the question comes up: the world that you see out there, is what? It should be negated? It should be affirmed? No. Whichever you say, no.
+In the *Madhyamaka*, Nāgārjuna constantly tries to correct people’s misunderstanding of Buddha’s teaching, emphasizing constantly the true meaning of emptiness. So finally, everything is based on emptiness. “Emptiness” means the truth. But I don’t think this is really true. Still people don’t understand it, because we cannot ignore the mundane world. So very naturally in history, “Merely Consciousness” develops. (*Transcriber’s Note:* *Vijñānavāda*, the *Discourse on Merely Consciousness*; that is, Yogachara.) The conscious psychological world is developed. At that time in the Buddhist psychology, I think, of course, the reality is “beyond abundance and paucity,” because it is based on emptiness. And then the question comes up: the world that you see out there is what? It should be negated? It should be affirmed? No. Whichever you say, no.
 
-So beyond your “yes” or “no”: *yes*. That is called *C world*, according to my term, and in Buddhism we say pure *dharmadhātu nisyanda* in Sanskrit. 
+So beyond your “yes” or “no”: *yes*. (Katagiri Roshi draws out the word “yes”.) That is called *C* world, according to my term. And in Buddhism we say pure *dharmadhātu nisyanda* in Sanskrit. 
 
-In English we say *dharma world*; in Sanskrit we say *dharmadhātu*. *Dhātu* is a vein of ore. *Dharma* is the truth, and also phenomena, all beings – you can see the form of all things – and also teaching. So we call [it] *dharma*, including three of [those]. So dharmadhātu means something is *mined* from interdependence and interpenetration of myriad dharmas, myriad conditioned elements, and then that is so-called dharmadhātu. So dharmadhātu is the dharma world; *buddha-dharma*, we say, or Buddha’s world. And *nisyanda* means *throwing into* or *necessary result*. [...] So it means that the truth is mined from there, the real reality beyond *A* and *B world*, and throws into the worldly affair. And this is the necessary result of dharmadhātu. 
+In English we say “dharma world”; in Sanskrit we say *dharmadhātu*. *Dhātu* is a vein of ore. *Dharma* is the truth, and also phenomena, all beings – you can see the form of all things – and also teaching. So we say *dharma*, including [those three]. So *dharmadhātu* means something is *mined* from interdependence and interpenetration of myriad, myriad dharmas, myriad, myriad conditioned elements, and then that is so-called dharmadhātu. So dharmadhātu is the dharma world; *buddha-dharma*, we say. Buddha’s world. 
 
-So dharmadhātu – in other words truth, absolute truth, absolute reality, or whatever you say – is not something separate from you. If what the absolute God, Buddha, or true reality, or whatever *is* is something separate from you, it is nothing but conceptions. Which is pretty cold. It doesn’t make sense.
+And *nisyanda* means “throwing into” or “necessary result.” [...] So *nisyanda* means that the truth is mined from there – the real reality beyond the *A* and *B* world – and throws into the worldly affair, and this is the necessary result of *dharmadhātu*. 
 
-So, if it is separate from us, what are you seeking for? Even if you see the truth, [if it is] separate from your life it doesn’t make sense for us. So I think truth is always “throwing into the worldly affairs, and that is the necessary result of the truth or dharma.” That is called *nisyanda*. 
+So *dharmadhātu* – in other words truth, absolute truth, absolute reality, or whatever you say – is not something separate from *you*. If the Absolute, God, Buddha, or whatever true reality *is*, is something separate from you, it is nothing but conceptions. Which is pretty cold. It doesn’t make sense.
 
-So Buddha’s teaching, or the teaching of human life or the human world, is *dharmadhātu nisyanda*. In other words, you are *C world*, beyond *A* or *B*. This is your reality.
+So, if it is separate from us, what are you seeking for? Even if you see the truth, [if it is] separate from your life, it doesn’t make sense for us. 
+
+So I think the truth is always “throwing into the worldly affairs, and that is the necessary result of the truth or dharma.” That is called *nisyanda*. So Buddha’s teaching, or the teaching of human life or the human world, is *dharmadhātu nisyanda*. 
+
+In other words, you are *C* world, beyond *A* or *B*. This is your reality.
 
 #### 24:49
 

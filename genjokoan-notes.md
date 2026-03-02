@@ -63,12 +63,14 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 > [SZ] Because, from the start, the way of the buddhas has jumped out from abundance and scarcity, there are arising and ceasing, there are delusion and awakening, there are living beings and buddhas.
 >
 > [TC] Because the Buddha Way originally sprang forth from abundance and paucity, there is birth and death, delusion and enlightenment, sentient beings and Buddhas.
+> 
+> [KR] (paraphrasing) The Buddha Way is completely beyond the concept of being or not-being, that’s why there are human beings and buddhas, life and death, delusion and enlightenment.
 
 - [“*Genjōkōan*: Talk 3” at 33:40](1987-06-07-Genjokoan-Talk-3#3340)
 
-- [“A, B, and C Worlds”](1987-06-27-A-B-and-C-Worlds)
+- [“A, B, and C Worlds” at 14:50](1987-06-27-A-B-and-C-Worlds#1450)
 
-- [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005): “The Buddha Way is completely beyond the concept of being or not-being, that’s why there are human beings and buddhas, life and death, delusion and enlightenment.”
+- [“Taking Care of Karma” at 1:00:05](1980-07-04-Karma-Taking-Care-of-Karma#10005)
 
 ###### 1.4
 
