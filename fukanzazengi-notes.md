@@ -4,7 +4,7 @@ title: "Notes on Fukanzazengi"
 
 #### by Kikan Michael Howard
 
-#### Updated March 2, 2026
+#### Updated March 3, 2026
 
 Katagiri Roshi discussed *Fukanzazengi*, Zen Master Dōgen’s “Universal Recommendation for Zazen,” in many of his talks. On this page, I go through *Fukanzazengi* line-by-line and add notes and links to talks where Katagiri Roshi discussed the line or lines in question. This document is a work in progress. I will update this page as I transcribe talks and find additional references.
 
@@ -69,8 +69,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 >  
 > [SZ] Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? 
 > 
-> [EB] Indeed, the Whole Body is far beyond the world’s dust. Who could believe in a means to brush it
-clean? 
+> [EB] Indeed, the Whole Body is far beyond the world’s dust. Who could believe in a means to brush it clean? 
 
 - “Dust,” “brush it clean,” etc. is a reference to [*The Platform Sutra*](platform-sutra) and the well-known story of the “poetry contest,” which is considered a foundational story in Chinese Buddhism. In the story, the top student Shen Hsiu (Japanese: Jinshū) writes a verse comparing Buddhist practice to brushing dust from a mirror to keep it clean, and the student Hui Neng (Japanese: Daikan Enō), who becomes the Sixth Ancestor, composes a responding verse. For the story and its interpretation, see [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1). 
 
@@ -186,7 +185,10 @@ clean?
 >  
 > [SZ] If you want to realize such, get to work on such right now.
 
-- A better translation might be, “If you want to realize *suchness*, practice suchness immediately.” To “get to work on” something generally implies that there is a goal.
+- A better translation might be: “If you want to realize *suchness*, practice suchness immediately.” This is close to the translation used at Confluence Zen Center ([external link](https://www.confluencezen.org/fukanzazengi/)), and also close to that used by Zenkatsu Norman Fischer ([external link](https://everydayzen.org/teachings/fukanzazengi-2/)). Some justification for this idea follows below.
+- *Renme* (恁麼) is *inmo* (いんも) in Japanese. Note that there is a whole chapter of *Shōbōgenzō* on the subject of *inmo*, titled “*Inmo*”. Essentially it is an informal expression of *nyoze* (如是), Sanskrit *tathā*, as in *tathāgata*. (Source: Sōtōshū translation of *Shōbōgenzō*, “*Inmo*”.)
+- According to Google, “In Traditional Chinese, 事 (shì) as a suffix generally means "matter," "affair," "thing," "business," or "work". When appended to other characters, it transforms a concept, action, or subject into a concrete, abstract, or professional matter.” (Source: Google, “meaning of 事 in traditional chinese as a suffix”.)
+- *Jíwù* 急務 means something like “urgent task” or “pressing matter.” “Get to work,” although a logical translation, seems to carry some heavy extra “baggage.”
 
 ##### 14
 
