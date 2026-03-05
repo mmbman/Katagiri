@@ -187,7 +187,7 @@ could you be hindered by nodes in bamboo or knots in wood?
 > [EB] In addition, I proceeded to great Sung China, where I visited some of the leading priests of Liang-che, and learned of the different characteristics of the Five Gates. Ultimately, I went to Tai-pai peak and engaged in religious practice under the Zen master Ju-ching, until I had resolved the one great matter of Zen practice for my entire life.
 
 - Regarding the last part of the last sentence: *Isshō* (一生) is “whole life.”  *Gaku* (學) is “study” or “learn.” *Daiji* (大事) is “great matter.” 
-- Regarding this same *isshō* “whole life,” Katagiri Roshi says in [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1): “This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life.”
+- Regarding this same *isshō*, “whole life,” Katagiri Roshi says in [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1): “This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life.”
 
 ##### 2.2
 
@@ -199,9 +199,7 @@ could you be hindered by nodes in bamboo or knots in wood?
 
 ##### 2.4.1
 
-[EB] At the assembly on Vulture Peak the great teacher Sakyamuni Buddha imparted to Mahakasyapa the Dharma which has sinoe been rightly transmitted from patriarch to patriarch, finally reaching Bodhidharma. Bodhidharma went to China and there imparted the Dharma to Hui-k’o. This was the initial transmission of the Buddha Dharma to an eastern land [i.e. China]. In direct, personal transmission, it was thus handed down to the sixth patriarch Ta-chien. At that time, the genuine Buddha Dharma, beyond doubt, actually
-had spread extensively in China, where it appeared in its essence, unaffected by ramifying doctrinal formulations. The sixth patriarch had two superior disciples, Huai-jang of Nan-yiieh and Hsing-ssu of Ch’ing-yüan. Together they possessed and transmitted the Buddha-seal, masters both for men and for
-devas. As their two schools spread, they developed into the Five Gates; the Fa-yen, Kuei-yang, Ts‘ao-tung, Yun-men and Lin-chi schools. At present in the empire of the great Sung, only the Lin-chi school is found throughout the country. Though each of their Five Gates has its own peculiarities, they are all reducible to one Buddha-mind seal.
+[EB] At the assembly on Vulture Peak the great teacher Sakyamuni Buddha imparted to Mahakasyapa the Dharma which has sinoe been rightly transmitted from patriarch to patriarch, finally reaching Bodhidharma. Bodhidharma went to China and there imparted the Dharma to Hui-k’o. This was the initial transmission of the Buddha Dharma to an eastern land [i.e. China]. In direct, personal transmission, it was thus handed down to the sixth patriarch Ta-chien. At that time, the genuine Buddha Dharma, beyond doubt, actually had spread extensively in China, where it appeared in its essence, unaffected by ramifying doctrinal formulations. The sixth patriarch had two superior disciples, Huai-jang of Nan-yiieh and Hsing-ssu of Ch’ing-yüan. Together they possessed and transmitted the Buddha-seal, masters both for men and for devas. As their two schools spread, they developed into the Five Gates; the Fa-yen, Kuei-yang, Ts‘ao-tung, Yun-men and Lin-chi schools. At present in the empire of the great Sung, only the Lin-chi school is found throughout the country. Though each of their Five Gates has its own peculiarities, they are all reducible to one Buddha-mind seal.
 
 - Katagiri Roshi comments on this section in [“*Kuge*: Flowers in the Sky – Talk 2”](1988-08-25-Kuge-Talk-2).
 
