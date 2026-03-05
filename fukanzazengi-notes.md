@@ -185,9 +185,9 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 >  
 > [SZ] If you want to realize such, get to work on such right now.
 
-- *Renme* (恁麼) is *inmo* (いんも) in Japanese, in English “such” or “suchness.” Note that there is a whole chapter of *Shōbōgenzō* on the subject of *inmo*, titled “*Inmo*”. Essentially *renme* or *inmo* is an informal expression of *nyoze* (如是), which is from the Sanskrit *tathā* (तथा) , as in *tathātā* (“suchness”, “thusness”)  or *tathāgata* (“one who is thus coming and going”; another title of a buddha). (Source: Sōtōshū translation of *Shōbōgenzō*, “*Inmo*”.)
-- *Jíwù* 急務 means something like “urgent task” or “pressing matter.” “Get to work” may be a logical translation of *Jíwù shì* (急務事) but might also carry some unnecessary “baggage” or heaviness.
-- Overall, a better translation might be: “If you want to attain *suchness*, practice suchness immediately.” This is close to the translation used at Confluence Zen Center ([external link](https://www.confluencezen.org/fukanzazengi/)), and also close to that used by Zenkatsu Norman Fischer ([external link](https://everydayzen.org/teachings/fukanzazengi-2/)). 
+- A better translation might be: “If you want to attain *suchness*, practice suchness immediately.” This is close to the translation used by Confluence Zen Center ([external link](https://www.confluencezen.org/fukanzazengi/)), and also close to that used by Zenkatsu Norman Fischer ([external link](https://everydayzen.org/teachings/fukanzazengi-2/)). 
+- *Renme* (恁麼) is *inmo* (いんも) in Japanese, in English “such” or “suchness.” Note that there is a whole chapter of *Shōbōgenzō* on the subject of *inmo*, appropriately titled “*Inmo*.” Essentially *renme* or *inmo* is an informal expression of *nyoze* (如是), which is from the Sanskrit *tathā* (तथा) , as in *tathātā* (“suchness”, “thusness”)  or *tathāgata* (“one who is thus coming and going”; another title of a buddha). (Source: Sōtōshū translation of *Shōbōgenzō*, “*Inmo*”.)
+- *Jíwù* 急務 means something like “urgent task” or “pressing matter.” “Get to work” might be a logical translation of *Jíwù shì* (急務事), but in this context might carry some unnecessary heaviness. “Get to work” tends to imply a goal, which might not be the case here.
 
 ##### 14
 
