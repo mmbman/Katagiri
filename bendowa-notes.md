@@ -149,7 +149,9 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 > 
 > [EB] The negotiation of the Way with concentrated effort I now teach makes myriad dharmas exist in realization, and, by transcending realization, practices a total Reality. 
 > 
-> [MD] The concentrated endeavor of the way I am speaking of allows all things to come forth in enlightenment and practice, all-inclusivenesss with detachment. 
+> [MD] The concentrated endeavor of the way I am speaking of allows all things to come forth in enlightenment and practice, all-inclusiveness with detachment. 
+
+- The translation in *Moon in a Dewdrop* makes more sense with the comma shifted two words to the left: “The concentrated endeavor of the way I am speaking of allows all things to come forth in enlightenment, and practices all-inclusiveness with detachment.” If this is a typo, it’s been in the book since 1985.
 
 - This line is discussed in [“*Kuge*: Flowers in the Sky – Talk 3”](1988-08-27-Kuge-Talk-3).
 
