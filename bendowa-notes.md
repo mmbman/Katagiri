@@ -4,7 +4,7 @@ title: "Notes on Bendōwa"
 
 #### by Kikan Michael Howard
 
-#### Updated February 22, 2026
+#### Updated March 4, 2026
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Bendōwa*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
@@ -180,9 +180,12 @@ could you be hindered by nodes in bamboo or knots in wood?
 
 > 子、かさねて大宋國におもむき、知識を兩所にとぶらひ、家風を五門にきく。つひに太白峰の淨禪師に参じて、一生参學の大事、ここにをはりぬ。
 
+> [SZ] Thereafter, journeying to the Land of the Great Song, I called on wise friends in the Two Zhes and heard of the house styles at the five gates. Finally, I went to study under Chan Master Jing of Taibai Peak, and here the great matter of my entire life’s study was resolved.
+
 > [EB] In addition, I proceeded to great Sung China, where I visited some of the leading priests of Liang-che, and learned of the different characteristics of the Five Gates. Ultimately, I went to Tai-pai peak and engaged in religious practice under the Zen master Ju-ching, until I had resolved the one great matter of Zen practice for my entire life.
 
-- “Great matter” is *daiji* (大事). *Gaku* (學) is “study” or “learn.”
+- Regarding the last part of the last sentence: *Isshō* (一生) is “whole life.”  *Gaku* (學) is “study” or “learn.” *Daiji* (大事) is “great matter.” 
+- Regarding this same *isshō* “whole life,” Katagiri Roshi says in [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1): “This *one’s whole life* is not *your* life in this world, but countless lives in an immensely long span of time, life after life. *The whole life* in this case [is] life after life.”
 
 ##### 2.2
 
