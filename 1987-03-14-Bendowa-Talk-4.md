@@ -57,7 +57,7 @@ In the buddha-dharma, to think practice and realization are not one is a heretic
 
 That is [the whole] answer. 
 
-So the point[s] that Dōgen Zenji [makes] here... One point is that practice and realization must be one. And the second [point] is that practice and realization must go endlessly, and beginninglessly. [...] So in other words, our practice must go forever. That is the point he answered. 
+So the point[s] that Dōgen Zenji [makes] here: one point is that practice and realization must be one. And the second [point] is that practice and realization must go endlessly, and beginninglessly. [...] In other words, our practice must go forever.
 
 I think this is not Dōgen Zenji’s idea, this is the essential point of Buddha’s teaching. 
 

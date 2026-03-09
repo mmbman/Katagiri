@@ -101,7 +101,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 
 - The specific term “hairsbreadth deviation” appears in the *Song of the Jewel Mirror Awareness*. The *Song of the Jewel Mirror Awareness* also alludes to the legacy of the *Platform Sutra* with its reference to “sudden and gradual.” Although not publicly available, KR’s commentary on this is complementary with what can be found in [“*Platform Sutra* – Talk 1”](1987-03-06-Platform-Sutra-Talk-1).
 
-- “Between heaven and earth”: see “*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 1” at 51:32 (in progress).
+- “Between heaven and earth”: see [“*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 1” at 51:32](1984-01-11-Blue-Cliff-Record-Case-51-Talk-1#5132).
 
 ##### 7
 

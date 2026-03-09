@@ -75,7 +75,7 @@ That’s why next Dōgen Zenji says,
 
 Is that translation clear? I don’t know if you understand this or not. 
 
-“The Buddha Way” means *true reality*. Practically, or truly, you live there, which is a bigger scale of the world than you have thought. That is the Buddha Way. 
+“The Buddha Way” (佛道) means *true reality*. Practically, or truly, you live there, which is a bigger scale of the world than you have thought. That is the Buddha Way. 
 
 “Abundance and paucity” means: Does the table exist? Yes, it is *being*; but on the other hand, table is *no being*. So what is the true reality of the table? [It is] beyond being or not being, abundance or paucity. This is a *total* picture of table’s existence. 
 

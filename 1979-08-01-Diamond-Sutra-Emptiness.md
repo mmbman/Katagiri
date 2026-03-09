@@ -31,7 +31,7 @@ The Buddha asked Subhuti: “Is there any dharma which the Tathāgata has fully 
 
 In Japanese, “enlightenment” is described by three different characters. One is *kaku*: “awareness.” The second is *satori* – you are very familiar with this term, satori. The third is *shō*: that is usually translated as “realization”. 
 
-Enlightenment, broadly speaking, is to know or to awaken to the real nature, the original nature of existence. The original nature of existence is, *truth*. 
+Enlightenment, broadly speaking, is to know or to awaken to the real nature, the original nature of existence. The original nature of existence is *truth*. 
 
 According to the first term, *kaku*, awareness, this kind of enlightenment is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called *awareness* is at the conscious level. So whoever you are, if you practice zazen – or even though you don’t practice zazen, if you do your best to take care of your life, living in peace with all sentient beings with your best effort – at that time everybody can experience awareness, which allows you to touch the core of existence. 
 

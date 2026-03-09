@@ -195,7 +195,7 @@ Because, whatever it is, all things are completely delusions, [created] in the d
 
 Distraction and dullness is that life moves reactively, just like a pendulum: going to the right, to the left, constantly, no end. If you want to *stop it*, we have to sow a good seed, right now, right here. That is, we have to create good time and occasion, and arrange good conditions. That’s all we have to do. 
 
-That is freedom. *Anyone* can do it. Even though you are not Buddhist, or even though you cannot come [to the Zen Center], you can sit down, arrange your room, and arrange circumstances, environment, and your sensory world, breathing, and internal organs, and you can sit down. Don’t you think so? This is *shikantaza*. Just arrange your environment, everything; that’s all we have to do. This is *freedom* – open to *everybody*! No exceptions. 
+That is freedom. *Anyone* can do it. Even if you are not Buddhist, or even if you cannot come [to the Zen Center], you can sit down. Arrange your room, and arrange circumstances, environment, and your sensory world, breathing, and internal organs, and you can sit down. Don’t you think so? This is *shikantaza*. Just arrange your environment, everything; that’s all we have to do. This is *freedom* – open to *everybody*! No exceptions. 
 
 That’s why Dōgen Zenji says, “Universal Recommendation for Zazen” – *universal* recommendation. It’s really *universal*. Not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 
