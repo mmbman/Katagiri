@@ -44,7 +44,7 @@ That’s why in [zazen](glossary#zazen) we shouldn’t judge ourselves, good or 
 
 So in order to be one with the truth, we have to manifest ourselves in the state of a person who is never tossed away by thoughts and ideas. That means, yesterday I told you, under all circumstances we have to release and forget ourselves, and throw ourselves away to zazen when you have to do zazen. When we have to do gassho, we have to *do* that. At that time, you can really manifest yourself: bloom the flower of life force from moment to moment. Wherever you may be, it is just like a lotus flower.
 
-That is the task of the fundamental vehicle of transcendence, which is called the Ultimate Path. That is really the [great vehicle](glossary#dharma-vehicle) which you are right on. Truth is not something which we can think, we can envision, we can believe, but it is something that you have to *be right on*. That is the Ultimate Path. At that time, it is without difficulty. It’s really just to be right on the vehicle, which is absolutely transcendent of human evaluation.
+That is “the task of the fundamental vehicle of transcendence,” which is called the Ultimate Path. That is really the great vehicle which you are right on. Truth is not something which we can think, we can envision, we can believe, but it is something that you have to *be right on*. That is the Ultimate Path. At that time, it is without difficulty. It’s really just to be right on the vehicle, which is absolutely transcendent of human evaluation.
  
 #### 10:12
 

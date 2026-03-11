@@ -77,7 +77,7 @@ So zazen is you, you are zazen. At that time, I told you – I think on the seco
 
 And then, “since it occurs within the sphere of *jijuyu*” means, when you do zazen in that way, your body and mind become one with zazen, and then, zazen and all circumstances return to you. All circumstances exist simultaneously in peace and harmony. The sound of the car, the sound of the thunder, exist. Your mind is [there]. Zazen and all circumstances return to you. That means, [when] we do zazen, everything exists in peace and harmony. Japan, the United States, the sound of the car, the sound of the cat, the sound of the raindrops, lightning – whatever happens, all exist in peace, right in the middle of zazen. 
 
-At that time it is called *jijuyu*; samadhi of jijuyu. *Ji* is “of itself.” The *ju* of jijuyu means “receive.” *Yu* is “to function, to work, or to take advantage of.” So if you do zazen like this, you can receive freedom, very naturally, of itself. And, you can use it. 
+At that time it is called *jijuyu*; *samadhi* of *jijuyu*. *Ji* is “of itself.” The *ju* of jijuyu means “receive.” *Yu* is “to function, to work, or to take advantage of.” So if you do zazen like this, you can receive freedom, very naturally, of itself. And, you can use it. 
 
 That’s why Dōgen Zenji says, “Although in realization the mind and its object both arise and disappear within the stillness of samadhi, since it occurs within the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.” 
 

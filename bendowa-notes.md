@@ -207,41 +207,46 @@ could you be hindered by nodes in bamboo or knots in wood?
 
 [EB] Beginning in the Latter Han dynasty in China, Buddhist scriptures were transmitted from the west and spread over the entire empire. Yet it was never clearly determined which of the various teachings was best. After the Bodhidharma came from the west, these entangling debates were immediately severed at their roots, and the one Buddha Dharma, free from all impurity, spread. We must aspire for the same thing to occur in our own country as well.
 
-##### 2.5
+##### 3.1
 
 [EB] Patriarchs and buddhas, who have maintained the Buddha Dharma, all have held that practice based upon proper sitting in zazen in jijuyu samadhi was the right path through which their enlightenment opened. In India and China, those who have gained enlightenment have all followed in this way of practice. It is based upon the right transmission of the wonderful means in private encounter from master to disciple, and their receiving and maintaining of its authentic essence.
 
-##### 2.6
+[MD] Now, all ancestors and all buddhas whouphold buddha-dharma have made it the true path of enlightenment to sit upright practicing in the midst of self-fulfilling samadhi. Those who attained enlightenment in India and China followed this way. It was done so because teachers and disciples personally transmitted this excellent method as the essence of the teaching.
+
+##### 3.2
 
 [EB] According to the authentic tradition of Buddhism, this Buddha Dharma, transmitted rightly and directly from one to another, is the supreme of the supreme. From the first time you meet your master and receive his teaching, you have no need for either incense-offerings, homage-paying, nembutsu, penance disciplines, or silent sutra-readings; only cast off body and mind in zazen.
 
-##### 2.7
+[MD] In the authentic tradition of our teaching, it is said that this directly
+transmitted, straightforward buddha-dharma is the unsurpassable of the
+unsurpassable. From the first time you meet a master, without engaging in
+incense offering, bowing, chanting Buddha's name, repentance, or reading
+scriptures, youshould just wholeheartedly sit, and thus drop away bodyand
+mind.
 
-[EB] When even for a short period of time you sit properly in samadhi, imprinting the Buddha-seal in your three activities [deeds, words, and thought], each and every thing excluding none is the Buddha-seal, and all space without exception is enlightenment. Accordingly, it makes buddha-tathagatas all increase the Dharma-joy of their original source, and renew the adornments of the Way of enlightenment. Then, when all classes of all beings in the ten directions of the universe — the hell-dwellers, hungry ghosts, and animals; the fighting demons, men, and devas — all together at one time being bright and pure in body and mind, realize the stage of absolute emancipation and reveal their original aspect, at that time all things together come to realization in themselves of the true enlightenment of the Buddha, utilize the Buddha-body, immediately leap the confines of this personal enlightenment, sit properly beneath the kingly Tree of Enlightenment, turn simultaneously the great and utterly imcomparable Dharma wheel, and expound the ultimate and profound prajna free from all human agency.
+##### 3.3
 
-##### 2.8
+[EB] When even for a short period of time you sit properly in samadhi, imprinting the Buddha-seal in your three activities [deeds, words, and thought], each and every thing excluding none is the Buddha-seal, and all space without exception is enlightenment. Accordingly, it makes buddha-tathagatas all increase the Dharma-joy of their original source, and renew the adornments of the Way of enlightenment. Then, when all classes of all beings in the ten directions of the universe — the hell-dwellers, hungry ghosts, and animals; the fighting demons, men, and devas — all together at one time being bright and pure in body and mind, realize the stage of absolute emancipation and reveal their original aspect, at that time all things together come to realization in themselves of the true enlightenment of the Buddha, utilize the Buddha-body, immediately leap the confines of this personal enlightenment, sit properly beneath the kingly Tree of Enlightenment, turn simultaneously the great and utterly incomparable Dharma wheel, and expound the ultimate and profound prajna free from all human agency.
 
-[EB] Since, moreover, these enlightened ones in their turn enter into the way of imperceptible mutual assistance, the man in zazen without fail casts off body and mind, severs the heretofore disordered and defiled thoughts and views emanating from his discriminating consciousness, conforms totally in himself to the genuine Buddha Dharma, and assists universally in performing the work of buddhas at each of the various places the buddha-tathagatas teach, that are as infinitely numberless as the smallest atom-particles—imparting universally the ki transcending buddha, vigorously uplifting the Dharma transcending buddha. Then the land, the trees and grasses, fences and walls, tiles and pebbles, all the various things in the ten directions, perform the work of buddhas. Because of this, all persons who share in the wind and water benefits thus produced receive the unperceived help of the buddhas’ wonderful and
-incomprehensible teaching and guidance, and all manifest their inherent enlightenment. Since all who receive and employ this fire and water turn round and round the teaching of original enlightenment, all who dwell and talk together with them also join with one another in possessing inexhaustible Buddha-
-virtue, causing it to spread and spread ever wider, circulating the inexhaustible, unceasing, incomprehensible, and immeasurable Buddha Dharma, inside and outside throughout the universe. Yet such things are not mingled in the perceptions of one sitting in zazen, because [this occurs] in the stillness of samadhi beyond human artifice, and is in itself realization. If practice and realization were two different stages as ordinary people consider them to be, the one sitting in zazen and things should perceive each other. To be associated with perceptions is not the mark of realization, because the mark of
+##### 3.4
+
+[EB] Since, moreover, these enlightened ones in their turn enter into the way of imperceptible mutual assistance, the man in zazen without fail casts off body and mind, severs the heretofore disordered and defiled thoughts and views emanating from his discriminating consciousness, conforms totally in himself to the genuine Buddha Dharma, and assists universally in performing the work of buddhas at each of the various places the buddha-tathagatas teach, that are as infinitely numberless as the smallest atom-particles—imparting universally the ki-transcending buddha, vigorously uplifting the Dharma transcending buddha. Then the land, the trees and grasses, fences and walls, tiles and pebbles, all the various things in the ten directions, perform the work of buddhas. Because of this, all persons who share in the wind and water benefits thus produced receive the unperceived help of the buddhas’ wonderful and
+incomprehensible teaching and guidance, and all manifest their inherent enlightenment. Since all who receive and employ this fire and water turn round and round the teaching of original enlightenment, all who dwell and talk together with them also join with one another in possessing inexhaustible Buddha-virtue, causing it to spread and spread ever wider, circulating the inexhaustible, unceasing, incomprehensible, and immeasurable Buddha Dharma, inside and outside throughout the universe. Yet such things are not mingled in the perceptions of one sitting in zazen, because [this occurs] in the stillness of samadhi beyond human artifice, and is in itself realization. If practice and realization were two different stages as ordinary people consider them to be, the one sitting in zazen and things should perceive each other. To be associated with perceptions is not the mark of realization, because the mark of
 realization is to be beyond such illusions.
 
-##### 2.9 
+##### 3.5
 
-[EB] Moreover, although in realization the mind [of the zazen practicer] and its objects both arise and disappear within the stillness of samadhi, since it occurs within the sphere of jijuyii, it does not disturb a single mote of dust, nor infringe upon a single phenomenon. It does great and wide-ranging buddha-work, and performs the exceedingly profound, recondite activities of preaching and enlightening. The trees, grasses, and land involved in this all emit a bright and shining light, and preach the profound and incomprehensible Dharma; and it is endless. Trees and grasses, wall and fence expound and exalt the
-Dharma for the sake of ordinary people, sages, and all living beings. Ordinary people, sages, and all living beings in turn preach and exalt the Dharma for the sake of trees, grasses, wall and fence. The dimension of self-enlightenment qua enlightening others basically is fully replete with the characteristics of
-realization, and causes the principle of realization to function unceasingly.
+[EB] Moreover, although in realization the mind [of the zazen practicer] and its objects both arise and disappear within the stillness of samadhi, since it occurs within the sphere of jijuyii, it does not disturb a single mote of dust, nor infringe upon a single phenomenon. It does great and wide-ranging buddha-work, and performs the exceedingly profound, recondite activities of preaching and enlightening. The trees, grasses, and land involved in this all emit a bright and shining light, and preach the profound and incomprehensible Dharma; and it is endless. Trees and grasses, wall and fence expound and exalt the Dharma for the sake of ordinary people, sages, and all living beings. Ordinary people, sages, and all living beings in turn preach and exalt the Dharma for the sake of trees, grasses, wall and fence. The dimension of self-enlightenment qua enlightening others basically is fully replete with the characteristics of realization, and causes the principle of realization to function unceasingly.
 
 - [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 7” at 9:14](1979-06-15-Fukanzazengi-Talk-7#914): discussion of the line “Moreover, although in realization the mind of the zazen practicer and its objects both arise and disappear within the stillness of samadhi, since it occurs [within] the sphere of *jijuyu*, it doesn’t disturb a single mote of dust, nor infringe upon a single phenomenon.”
 
-##### 2.10
+##### 3.6
 
 [EB] Because of this, when even just one person, at one time, sits in zazen, he becomes, imperceptively, one with each and all of the myriad things, and permeates completely all time, so that within the limitless universe, throughout past, future, and present, he is performing the eternal and ceaseless work of guiding beings to enlightenment. It is, for each and every thing, one and the same undifferentiated practice, and undifferentiated realization. Only this is not limited to the practice of sitting alone; the sound that issues from the striking of emptiness is an endless and wondrous voice that resounds before and after the fall of the hammer. And this is not all the practice of zazen does. Each and every thing is, in its original aspect, provided original practice — it cannot be measured or comprehended.
 
-##### 2.11
+##### 3.7
 
-[EB] You must know that even if all the incalculable buddhas in the ten directions, as countless as are the sands of the Ganges, mustered all their might together, and by means of buddha-wisdom attempted to measure and totally know the merit of the zazen of a single person, yet they could not know the whole of its
-measure.
+[EB] You must know that even if all the incalculable buddhas in the ten directions, as countless as are the sands of the Ganges, mustered all their might together, and by means of buddha-wisdom attempted to measure and totally know the merit of the zazen of a single person, yet they could not know the whole of its measure.
 
 ---
 

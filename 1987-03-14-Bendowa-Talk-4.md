@@ -415,13 +415,13 @@ It doesn’t ignore the doctor and the medicine and the patient, okay? Including
 
 For instance, you know, Narasaki Roshi went back to Japan from here, and Minayishi-san told me [later in a] letter, [the stewardess] always expressed very humble, respectful attitude toward Narasaki Roshi – not toward Minayishi-san and Hokan-san, et cetera. *[Laughter.]* So he thought, “Why does she always take best care of Narasaki Roshi only, with respect and kindness?” And then he watched [Narasaki Roshi] very often, and he realized he always *gassho*ed very sincerely. Whenever the stewardess came and talked and gave us something, he always [said], “Thank you.” That’s it. Do you understand? 
 
-So that is peace. That is unfold yourself as a buddha. No partition between stewardess and Narasaki Roshi, or race, Americans and Narasaki Roshi. 
+So that is peace. That is to unfold yourself as a buddha. No partition between stewardess and Narasaki Roshi, or race, Americans and Narasaki Roshi. 
 
 **Questioner:** Well, to me it seems like it would almost have to be a natural unfolding that was spontaneous, and not even a conscious thing, because as soon as I say “this is something I have to do,” then there’s me, the subject, and the object, and there’s immediately dualism, and you’ve immediately lost it. So as soon as I say, “I have to do it,” then you can’t do it. 
 
 **Katagiri Roshi:** Yes, that’s why your cultural background which you have accumulated, and your education, really interrupts you, you know? *[He laughs.]* For instance, everyone is impressed by this sincere demonstration of human life like Narasaki Roshi. More or less everyone is impressed. But people don’t know how to react to this, because immediately they say, “Oh, I’m American; what do you mean [by] *gassho*?” – something like that. So immediately you [hesitate], stand off. That’s why education, customs, heredity, and your knowledge, really prevent you from unfolding yourself straightforwardly as a buddha. 
 
-So that’s why we need to practice again and again. That’s why buddhas and ancestors [say to] practice unceasingly. Anyway, we have to do it, without abating, practice. So even though cultural background immediately interrupts your straightforward practice, [still] we have to do it, again and again. That is to “not abate” our practice, constantly. 
+So that’s why we need to practice again and again. That’s why buddhas and ancestors [say to] practice unceasingly. Anyway, we have to do it, without abating, practice. So even though cultural background immediately interrupts your straightforward practice, [still] we have to do it, again and again. That is to not abate our practice, constantly. 
 
 So very naturally, zazen is correcting, and that activity or practice is correcting your habit, and the postures, et cetera. We have lots of postures created by us: cultural postures, mental postures, *[he laughs,]* psychological postures, you know? So “just do it” is exactly correcting a posture...
 

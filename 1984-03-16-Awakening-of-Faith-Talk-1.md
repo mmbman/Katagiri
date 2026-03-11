@@ -37,7 +37,7 @@ That’s why the person who wants to believe in this faith, believe in that obje
 
 [...] If you believe this essence of being you become pure, so in Buddhism it says faith is pure and clean. Purity and cleanness, this is the meaning of faith. 
 
-So we should *awaken* this faith. *How?* That’s why [this book explains] how we should awaken this Buddhist faith. That is this book.
+So we should *awaken* this faith. *How?* That’s why [this book explains] how we should awaken this Buddhist faith. That is this book, [*The Awakening of Mahayana Faith*].
 
 #### 10:20
 
