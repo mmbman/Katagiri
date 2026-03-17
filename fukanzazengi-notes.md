@@ -241,7 +241,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 
 ##### 18
 
-> 尋常坐處、厚敷坐物、上用蒲團。或結跏趺坐、或半跏趺坐。謂、結跏趺坐、先以右足安左腿上、左足安右腿上。半跏趺坐、但以左足壓右矣。寛繋衣帶、可令齊整。次右手安左足上、左掌安右掌上。兩大拇指、面相拄矣。乃正身端坐、不得左側右傾、前躬後仰。要令耳與肩對、鼻與臍對。舌掛上腭、唇齒相著。  
+> 尋常坐處、厚敷坐物、上用蒲團。或結跏趺坐、或半跏趺坐。謂、結跏趺坐、先以右足安左腿上、左足安右腿上。半跏趺坐、但以左足壓右矣。寛繋テ衣帶、可令齊整。次右手安左足上、左掌安右掌上。兩大拇指、面相拄矣。乃正身端坐、不得左側右傾、前躬後仰。要令耳與肩對、鼻與臍對。舌掛上腭、唇齒相著。  
 >  
 > [SZ] At your sitting place, spread out a thick mat and put a cushion on it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, first place your right foot on your left thigh, then your left foot on your right thigh. In the half-lotus, simply place your left foot on your right thigh. Tie your robes loosely and arrange them neatly. Then place your right hand on your left leg and your left hand on your right palm, thumb-tips lightly touching. Straighten your body and sit upright, leaning neither left nor right, neither forward nor backward. Align your ears with your shoulders and your nose with your navel. Rest the tip of your tongue against the front of the roof of your mouth, with teeth together and lips shut. 
 

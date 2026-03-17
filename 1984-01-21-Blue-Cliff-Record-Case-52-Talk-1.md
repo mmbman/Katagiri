@@ -161,7 +161,7 @@ So that is, Joshu Zen master says, “Let the asses cross, let the horses cross.
 
 #### 41:41
 
-What does it mean? Bottomlessness of your personality is which is called *buddha*. We say *buddha*, or *vastness of your nature*, or *vastness of your capability*. [This is what] is called buddha-nature, or buddha, buddha-dharma; we say so.
+What does it mean? Bottomlessness of your personality is what is called *buddha*. We say *buddha*, or *vastness of your nature*, or *vastness of your capability*. [This is what] is called buddha-nature, or buddha, or buddha-dharma; we say so.
 
 Dōgen Zenji says here (in *Yuibutsu yobutsu*):
 
@@ -179,7 +179,7 @@ But if you understand it as an idea of vastness, it’s not buddha.
 
 So that’s why here it says, “When you are of unsurpassed wisdom, you are called buddha.”
 
-Buddhism is not an idea. Buddhism always explains psychologically, philosophically, but it’s not real Buddhism, it is a teaching. But a teaching must be alive in your everyday life. At that time, you are called buddha.
+Buddhism is not an idea. Buddhism always explains psychologically, philosophically, but that’s not real Buddhism, it is a teaching. But a teaching must be alive in your everyday life. At that time, you are called buddha.
 
 So, 
 

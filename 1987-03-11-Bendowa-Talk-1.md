@@ -25,9 +25,9 @@ I think in those days there were many questions about the zazen he emphasized. S
 > 
 > Question 2: Why is it alone the right entrance? 
 > 
-> Answer 2: The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted it from one to another as the right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through Zazen. Therefore, I now point it out to men and devas as the right entrance. 
+> Answer 2: The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathāgatas of the three periods all attain the way through zazen. That is the reason they have transmitted it from one to another as the right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through Zazen. Therefore, I now point it out to men and devas as the right entrance. 
 > 
-> Question 3: It may be that zazen as the right entrance derives from the right transmission of the Tathagata’s wonderful means or from following in the path of the patriarchs – it is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes effecting *satori*. But to sit idly doing nothing, how can that be of help in gaining *satori*? 
+> Question 3: It may be that zazen as the right entrance derives from the right transmission of the Tathāgata’s wonderful means or from following in the path of the patriarchs – it is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes effecting *satori*. But to sit idly doing nothing, how can that be of help in gaining *satori*? 
 > 
 > Answer... 
 
@@ -67,7 +67,7 @@ So next,
 
 Then the answer is,
 
-> The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted it from one to another as the right entrance.
+> The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathāgatas of the three periods all attain the way through zazen. That is the reason they have transmitted it from one to another as the right entrance.
 
 So from this point, *right entrance* is something which buddhas and ancestors century after century have received and transmitted to the next generation, from one to another, exactly. But to transmit from one to another doesn’t mean that I give something which you don’t have to you. It doesn’t mean this. You have [it] already, I have [it] already. So “receive and transmit” means you have already something, so you have to dig it out, by you. So that is the practice. So the teacher and Buddha’s teaching helps, supports, in many ways, to find it. 
 
@@ -87,7 +87,7 @@ So that is something *wondrous* because [it is] beyond your analysis, your under
 
 This is the meaning of “means” here. 
 
-> Also, the tathagatas of the three periods all attain the way through zazen. That is the reason why they have transmitted it from one to another as right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore I now point it out to men and devas as the right entrance.
+> Also, the tathāgatas of the three periods all attain the way through zazen. That is the reason why they have transmitted it from one to another as right entrance. That is not all. Patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore I now point it out to men and devas as the right entrance.
 
 So I think regardless of whether you like or dislike, anyway there is something you have to receive and transmit to the next generation. This is the sublimity of life, respectfulness to life. If you live in this world as human beings, well, you have to receive, you have to appreciate your life and transmit it to next generation: how sublime it is, how important human life is, how respectful human life is. Not only human life: all sentient beings’ life. 
 
@@ -109,7 +109,7 @@ And then from this, [the] basic, fundamental word, so-called *wow*, [is] coming 
 
 But still there is a question. “I understand zazen is first entrance, right entrance, before you analyze, you synthesize what the zazen means. We understand it because buddhas and ancestors have transmitted from one to another from century after century. That’s why we should do it.” Yes, we understand it. But still [there is] a question. That question is the third one. He says, 
 
-> It may be that zazen as right entrance derives from the right transmission of the tathagatas’ wonderful means, or from following in the path of the patriarchs. It is truly beyond the minds of ordinary men.
+> It may be that zazen as right entrance derives from the right transmission of the tathāgatas’ wonderful means, or from following in the path of the patriarchs. It is truly beyond the minds of ordinary men.
 
 But how do ordinary men do this kind of zazen?  So, that’s why, “It is truly beyond the mind of ordinary men.” 
 

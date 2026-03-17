@@ -148,8 +148,7 @@ For instance, I really experienced this when I was in my temple. I was tedious f
 
 So that is what Dōgen Zenji mentions here: “If one thing becomes tedious, all things become tedious.”
 
-> You should know that those who like easy things are, as a matter of course, unworthy of the practice of the
-Way.
+> You should know that those who like easy things are, as a matter of course, unworthy of the practice of the Way.
 
 [For] “unworthy of the practice of the Way,” originally it says, “you are not an appropriate *container* of the Way.” [It] means you are incompetent as an appropriate practitioner of the Way. But you are a great container of the dharma – but it doesn’t appear. So that’s why you are incompetent as appropriate practitioners of the Way. Because if you are [jewels], you have to practice, you have to manifest it. That [is] the practice: make it alive! 
 

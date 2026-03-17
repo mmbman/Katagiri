@@ -91,7 +91,7 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 
 ##### [Case 25: The Hermit of Lotus Flower Peak Holds Up His Staff, Talk 1](1981-11-21-Blue-Cliff-Record-Case-25-Talk-1)
 
-What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
+What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathāgata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
 
 ---
 

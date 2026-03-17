@@ -411,7 +411,7 @@ You know, we have already mind and *vijñāna*, consciousness. That is already t
 
 “You have a mind” means you have already been born in this world with all sentient beings; in other words, with myriad conditions. And also, when you are born with myriad conditions, conditions become your object of consciousness. In order to make the consciousness operate or work or survive, consciousness acts on object. So, very naturally, there is separation there. 
 
-But basically, in the source of the consciousness, consciousness works in a very simple way. A very simple way; just like the trees, birds, et cetera. Very simple. That’s why nature is beautiful. You know? 
+Basically, in the source of the consciousness, consciousness works in a very simple way. A very simple way; just like the trees, birds, et cetera. Very simple. That’s why nature is beautiful. You know? 
 
 But our consciousness is a little bit slipping off. *[He laughs.]* “Slip off” means that we want to satisfy, we want to “fill up” satisfaction of our desire in many ways, under all circumstances, always. Not seeing our object [simply]. If you see something, then next moment there is a desire which compels you to fill up [with] the satisfaction, in many ways. 
 

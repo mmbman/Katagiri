@@ -49,15 +49,17 @@ Before you do zazen, you saw a picture of your life. [But] when you sit zazen, y
 
 But at the moment of doing zazen, there are lots of pictures. From this point, the zazen you do is just like a clean mirror: you can see your life reflected in it. So zazen is exactly a mirror. You can see your life, and how you handled your life, or how you [are handling] your life, how you will handle your life. You can see your picture. 
 
-For instance, if you do zazen [and] you feel [bored], and then immediately something happens. That [boredom] is just your life. It’s really your life. If you do zazen, you will always feel [boredom]. That is not *zazen*; your life is [boring]. And also, you handled your life just like [boring]. And also, you [are handling] your life just like [boring]. And if you continue to do zazen like this, you will handle your zazen like this. [...]
+For instance, if you do zazen [and] you feel [bored], and then immediately something happens. That [boredom] is just your life. It’s really your life. If you do zazen, you will always feel [boredom]; that is not *zazen*; your life is [boredom]. And also, you handled your life just like [boredom]. And also, you [are handling] your life just like [boredom]. And if you continue to do zazen like this, you will handle your zazen like this. [...]
 
-Or, sometimes, lots of emotions come up – hatred, anger – [so] you cannot stand up in zazen such as religious zazen. But this is really your life, don’t you think so? It’s really your life. That’s why you can see your life from zazen. And then this is not your life *in* zazen; it is your *whole* life – in the past, in the future – if you deal with your life in that way. So if you see your zazen with anger, hatred, [boredom], and lots of emotions: this is your life, and also you should realize how you handled your life. You handled your life just like this in the past, and you have handled [it] so far [like this], and also you will [handle it like this] – if you don’t realize. 
+Or, sometimes lots of emotions come up – [for example,] hatred, anger – [so] you cannot stand up in zazen as religious zazen. But this is really your life, don’t you think so? It’s really your life. That’s why you can see your life from zazen. And then this is not your life *in* zazen; it is your *whole* life – in the past, in the future – if you deal with your life in that way. 
 
-And also, sometimes, even though you don’t understand what zazen is, you really believe zazen is Buddha, and jump into it. This is great; in a sense, you can create [a new life]. That is, in your life you handled [it] in the past like this, and also you have handled [it] so far like this, and you will handle [it] in that way. 
+So if you see your zazen with anger, hatred, [boredom], and lots of emotions: this is your life, and also you should realize how you handled your life. You handled your life just like this in the past, and you have handled [it] so far [like this], and also you will [handle it like this] – if you don’t realize. 
+
+And also, sometimes, even though you don’t understand what zazen is, you really believe zazen is Buddha and jump into it. This is great; in a sense, you can create [a new life]. That is [that] in your life you handled [it] in the past like this, and also you have handled [it] so far like this, and you will handle [it] in that way. 
 
 Whatever kind of things you can be in zazen, it is just your life, just *exactly* your life. 
 
-... Well, just *do* zazen. Not hard, not easy; just do zazen. “I don’t care; just sit down.” This is really just your life. It’s really your life. *Whatever* you can see, that is *exactly* your life. 
+... Well, just *do* zazen. Not hard, not easy; just do zazen. “I don’t care” – just sit down. This is really just your life. It’s really your life. *Whatever* you can see, that is *exactly* your life. 
 
 #### 17:47
 

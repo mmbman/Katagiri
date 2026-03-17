@@ -36,12 +36,12 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 > 諸佛如來、ともに妙法を單傅して、阿耨菩提を證するに、最上無爲の妙術あり。 
 > 
-> [SZ] The buddhas, the tathagatas, all have a wondrous skill, supreme and unconditioned, for uniquely transmitting the wondrous dharma and verifying *anuttara-bodhi*. 
+> [SZ] The buddhas, the tathāgatas, all have a wondrous skill, supreme and unconditioned, for uniquely transmitting the wondrous dharma and verifying *anuttara-bodhi*. 
 > 
-> [EB] Buddha-tathagatas all have a wonderful means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another
+> [EB] Buddha-tathāgatas all have a wonderful means, which is unexcelled and free from human agency, for transmitting the wondrous Dharma from one to another
 without alteration and realizing supreme and complete awakening. 
 >
-> [MD] All buddha tathagatas, who directly transmit inconceivable dharma and actualize supreme, perfect enlightenment, have a wondrous way, unsurpassed and unconditioned. 
+> [MD] All buddha tathāgatas, who directly transmit inconceivable dharma and actualize supreme, perfect enlightenment, have a wondrous way, unsurpassed and unconditioned. 
 
 - Katagiri Roshi reviews this sentence and the next sentence in [“*Bendōwa*: Dōgen’s Questions & Answers – Talk 3” at 33:16](1987-03-13-Bendowa-Talk-3#3316), introducing them as Dōgen Zenji’s statement of “the key point of the zazen we are practicing.” 
 
@@ -90,6 +90,8 @@ without alteration and realizing supreme and complete awakening.
 > [MD] Sitting upright, practicing Zen, is the authentic gate to the unconfined realm of this samadhi.
 
 -  “To disport” is *yuge* (遊戯), from Sanskrit *vikrīḍita* (विक्रीडित). Apparantly this appears as *yuke* (遊化) in this version of Bendōwa (EB, p. 129). *Yu* is “to play.” *Ge* means “to transform.” Katagiri Roshi comments on *yuge* in “[Disporting with the Buddhas: Transformation through Play](1987-12-19-Transformation-through-Play).” 
+
+- “Full play” or “to disport” is also discussed in [“Principles of Practice, Talk 5: Direct Transmission” at 14:25](1986-03-23-Principles-of-Practice-Talk-5#1425).
 
 - *Upright sitting* (端坐): for the character *za* 坐, “sitting”, see [“Katagiri Roshi’s Zazen Instruction”](zazen-instruction).
 
@@ -157,7 +159,7 @@ and maintaining it, without leaving perception of it in any of its quarters; liv
 
 - “Makes myriad beings exist in realization” is also mentioned in [“*Baika*: Plum Blossoms – Talk 2” at 30:13](1988-12-03-Baika-Talk-2#3013).
 
-- “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but it refers to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)).) *Kufū* is discussed in [“Baika: Plum Blossoms – Talk 3”](1988-12-04-Baika-Talk-3).
+- “Concentrated effort” is *kufū* (功夫). In Chinese the term is pronounced *kung fu* and today is associated with the martial arts, but orginally it referred to “any study, learning, or practice that requires patience, energy, and time to complete.” ([Source: Wikipedia, “Kung fu (term)”](https://en.wikipedia.org/wiki/Kung_fu_(term)).)
 
 ##### 1.8 
 
@@ -226,11 +228,11 @@ mind.
 
 ##### 3.3
 
-[EB] When even for a short period of time you sit properly in samadhi, imprinting the Buddha-seal in your three activities [deeds, words, and thought], each and every thing excluding none is the Buddha-seal, and all space without exception is enlightenment. Accordingly, it makes buddha-tathagatas all increase the Dharma-joy of their original source, and renew the adornments of the Way of enlightenment. Then, when all classes of all beings in the ten directions of the universe — the hell-dwellers, hungry ghosts, and animals; the fighting demons, men, and devas — all together at one time being bright and pure in body and mind, realize the stage of absolute emancipation and reveal their original aspect, at that time all things together come to realization in themselves of the true enlightenment of the Buddha, utilize the Buddha-body, immediately leap the confines of this personal enlightenment, sit properly beneath the kingly Tree of Enlightenment, turn simultaneously the great and utterly incomparable Dharma wheel, and expound the ultimate and profound prajna free from all human agency.
+[EB] When even for a short period of time you sit properly in samadhi, imprinting the Buddha-seal in your three activities [deeds, words, and thought], each and every thing excluding none is the Buddha-seal, and all space without exception is enlightenment. Accordingly, it makes buddha-tathāgatas all increase the Dharma-joy of their original source, and renew the adornments of the Way of enlightenment. Then, when all classes of all beings in the ten directions of the universe — the hell-dwellers, hungry ghosts, and animals; the fighting demons, men, and devas — all together at one time being bright and pure in body and mind, realize the stage of absolute emancipation and reveal their original aspect, at that time all things together come to realization in themselves of the true enlightenment of the Buddha, utilize the Buddha-body, immediately leap the confines of this personal enlightenment, sit properly beneath the kingly Tree of Enlightenment, turn simultaneously the great and utterly incomparable Dharma wheel, and expound the ultimate and profound prajna free from all human agency.
 
 ##### 3.4
 
-[EB] Since, moreover, these enlightened ones in their turn enter into the way of imperceptible mutual assistance, the man in zazen without fail casts off body and mind, severs the heretofore disordered and defiled thoughts and views emanating from his discriminating consciousness, conforms totally in himself to the genuine Buddha Dharma, and assists universally in performing the work of buddhas at each of the various places the buddha-tathagatas teach, that are as infinitely numberless as the smallest atom-particles—imparting universally the ki-transcending buddha, vigorously uplifting the Dharma transcending buddha. Then the land, the trees and grasses, fences and walls, tiles and pebbles, all the various things in the ten directions, perform the work of buddhas. Because of this, all persons who share in the wind and water benefits thus produced receive the unperceived help of the buddhas’ wonderful and
+[EB] Since, moreover, these enlightened ones in their turn enter into the way of imperceptible mutual assistance, the man in zazen without fail casts off body and mind, severs the heretofore disordered and defiled thoughts and views emanating from his discriminating consciousness, conforms totally in himself to the genuine Buddha Dharma, and assists universally in performing the work of buddhas at each of the various places the buddha-tathāgatas teach, that are as infinitely numberless as the smallest atom-particles—imparting universally the ki-transcending buddha, vigorously uplifting the Dharma transcending buddha. Then the land, the trees and grasses, fences and walls, tiles and pebbles, all the various things in the ten directions, perform the work of buddhas. Because of this, all persons who share in the wind and water benefits thus produced receive the unperceived help of the buddhas’ wonderful and
 incomprehensible teaching and guidance, and all manifest their inherent enlightenment. Since all who receive and employ this fire and water turn round and round the teaching of original enlightenment, all who dwell and talk together with them also join with one another in possessing inexhaustible Buddha-virtue, causing it to spread and spread ever wider, circulating the inexhaustible, unceasing, incomprehensible, and immeasurable Buddha Dharma, inside and outside throughout the universe. Yet such things are not mingled in the perceptions of one sitting in zazen, because [this occurs] in the stillness of samadhi beyond human artifice, and is in itself realization. If practice and realization were two different stages as ordinary people consider them to be, the one sitting in zazen and things should perceive each other. To be associated with perceptions is not the mark of realization, because the mark of
 realization is to be beyond such illusions.
 

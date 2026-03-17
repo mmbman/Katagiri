@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 13: Tathagatagarbha & Alayavijnana"
+title: "The Awakening of Faith – Talk 13: Tathāgatagarbha & Alayavijnana"
 ---
 ## May 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -16,9 +16,9 @@ title: "The Awakening of Faith – Talk 13: Tathagatagarbha & Alayavijnana"
 
 #### 0:00
 
-**Katagiri Roshi:** The other day, I [talked about] the meaning of the first sentence, that the mind – phenomena, *samsara* – is grounded on the *tathagatagarbha*. In other words, I mentioned the meaning of the ground on which  *samsara* is produced – from where *samsara* comes, how *samsara* is produced. [...] Usually we [understand] *samsara* [is] coming from the truth, absolute truth itself. But according to [...] the absolute itself, it is impossible for us to think *samsara* comes from the absolute itself. So finally, this *Discourse on the Awakening of the Mahayana Faith* gets the idea of *tathagatagarbha*.
+**Katagiri Roshi:** The other day, I [talked about] the meaning of the first sentence, that the mind – phenomena, *samsara* – is grounded on the *tathāgatagarbha*. In other words, I mentioned the meaning of the ground on which  *samsara* is produced – from where *samsara* comes, how *samsara* is produced. [...] Usually we [understand] *samsara* [is] coming from the truth, absolute truth itself. But according to [...] the absolute itself, it is impossible for us to think *samsara* comes from the absolute itself. So finally, this *Discourse on the Awakening of the Mahayana Faith* gets the idea of *tathāgatagarbha*.
 
-This *tathagatagarbha* is the teaching after investigating again and again human life *in reality*, instead of human life in *samsara* [being] analyzed philosophically or metaphysically and trying to understand from where the *samsara* comes – I don’t think that is the attitude towards human being in this book. Buddhism always directly faces human life, *samsara*, in reality as it is. That is the most important attitude towards human life. 
+This *tathāgatagarbha* is the teaching after investigating again and again human life *in reality*, instead of human life in *samsara* [being] analyzed philosophically or metaphysically and trying to understand from where the *samsara* comes – I don’t think that is the attitude towards human being in this book. Buddhism always directly faces human life, *samsara*, in reality as it is. That is the most important attitude towards human life. 
 
 Buddhism always [says that] because the absolute itself is something which is very difficult to understand. Logically or emotionally, it’s impossible to know what the absolute is, as one, because it’s very vast. It’s *very* difficult. But we know that the absolute itself is omnipresent. Wherever you may be, whoever you are, all sentient beings are exactly grounded on the absolute – the truth, the same and one ground. And then it is possible for all sentient beings to *be*. Without the absolute or the truth, it is impossible for us, for all sentient beings to live. That is the truth or the absolute. 
 
@@ -32,23 +32,23 @@ So very naturally, the absolute or truth is something [that] looks like a truth,
 
 So that's why *myo* means “looks like” and also “something manifested as it is, directly”. That is *myo* of *shi-myo*. 
 
-So, very naturally from the *tathagatagarbha*, *samsara* is produced – [that] means *tathagatagarbha* is another expression for the truth, or for the ultimate pure nature of the mind, veiled in delusion. This is *tathagatagarbha*. 
+So, very naturally from the *tathāgatagarbha*, *samsara* is produced – [that] means *tathāgatagarbha* is another expression for the truth, or for the ultimate pure nature of the mind, veiled in delusion. This is *tathāgatagarbha*. 
 
-It is always present in every being; tables, chairs, floors, flowers. In every being we can see the truth. But that truth is not exactly absolute truth, because it is in every being, so it is kind of a [limited] truth. So that's why in the idea of *tathagatagarbha* truth is “veiled in delusion”. “In delusion” means already the truth is *limited*; the truth is manifested [...] in certain beings: tables, human beings, and birds, et cetera. [...] There is no other way to know the absolute itself, without realizing the truth in every being. So that’s why [in this book it is called by] the term *tathagatagarbha*. 
+It is always present in every being; tables, chairs, floors, flowers. In every being we can see the truth. But that truth is not exactly absolute truth, because it is in every being, so it is kind of a [limited] truth. So that's why in the idea of *tathāgatagarbha* truth is “veiled in delusion”. “In delusion” means already the truth is *limited*; the truth is manifested [...] in certain beings: tables, human beings, and birds, et cetera. [...] There is no other way to know the absolute itself, without realizing the truth in every being. So that’s why [in this book it is called by] the term *tathāgatagarbha*. 
 
-So *tathagatagarbha* is the teaching that all sentient beings are already a buddha, regardless of whether you realize or not. In terms of Buddha’s eye, in terms of universal perspective... in the universal perspective, we are already Buddha. We are already Buddha. That is *tathagatagarbha*. Not absolute truth – “we are Buddha” means you are buddha, that existence of buddha. The bell is buddha, flower is buddha; all are buddha. [That is the meaning of] *tathagatagarbha*. Regardless of whether you are conscious of it or not, it is the truth, because in terms of Buddha’s eye, in the universal perspective, this is the truth. That’s why this book teaches us we are buddha [by] saying *tathagatagarbha*. 
+So *tathāgatagarbha* is the teaching that all sentient beings are already a buddha, regardless of whether you realize or not. In terms of Buddha’s eye, in terms of universal perspective... in the universal perspective, we are already Buddha. We are already Buddha. That is *tathāgatagarbha*. Not absolute truth – “we are Buddha” means you are buddha, that existence of buddha. The bell is buddha, flower is buddha; all are buddha. [That is the meaning of] *tathāgatagarbha*. Regardless of whether you are conscious of it or not, it is the truth, because in terms of Buddha’s eye, in the universal perspective, this is the truth. That’s why this book teaches us we are buddha [by] saying *tathāgatagarbha*. 
 
 #### 15:03
 
-So still [it’s] a little bit abstract, philosophical term. Next, we have to understand how *tathagatagarbha* works in our human life. That’s why next this book has another term: *alayavijnana*. 
+So still [it’s] a little bit abstract, philosophical term. Next, we have to understand how *tathāgatagarbha* works in our human life. That’s why next this book has another term: *alayavijnana*. 
 
-So very naturally, *vijnana* means mind... not mind, *consciousness*. So this book has another term, a different term, *alayavijnana*, in order to explain how *tathagatagarbha* works in us. 
+So very naturally, *vijnana* means mind... not mind, *consciousness*. So this book has another term, a different term, *alayavijnana*, in order to explain how *tathāgatagarbha* works in us. 
 
-*Alayavijnana* is almost the same meaning as *tathagatagarbha*, but *alayavijnana* is a *closer* idea of understanding *tathagatagarbha* – a more *intimate* expression or intimate term, in order to understand what *tathagatagarbha* is. *Alayavijnana* is the consciousness which has two aspects – one is the absolute, the other one is *samsara*. *Samsara* and [absolute truth]. And then this is mainly *alayavijnana* focuses on a human life in reality. In other words, you have to face human life in reality: how it is going, what is human life. 
+*Alayavijnana* is almost the same meaning as *tathāgatagarbha*, but *alayavijnana* is a *closer* idea of understanding *tathāgatagarbha* – a more *intimate* expression or intimate term, in order to understand what *tathāgatagarbha* is. *Alayavijnana* is the consciousness which has two aspects – one is the absolute, the other one is *samsara*. *Samsara* and [absolute truth]. And then this is mainly *alayavijnana* focuses on a human life in reality. In other words, you have to face human life in reality: how it is going, what is human life. 
 
 So very naturally, to tell the truth, if you look at your life, it’s very difficult for us to believe that our life is really Buddha, or the absolute. Very naturally, if you look at your life honestly, our life is really covered with delusion. That is called *ignorance*. So *alayavijnana* kind of has *ignorance*. 
 
-If so, why is it that this discourse [says] that *samsara* is produced by ignorance, instead of by *tathagatagarbha*? So, why don’t you say about samsara produced by ignorance? Because honestly if you look at human life, human life is exactly covered with ignorance. So this is also a question in the same as the absolute. But I said before, ignorance is not “original sin”. We usually consciously or unconsciously believe [that], but ignorance is not original sin. In Buddhism ignorance is *no root*.
+If so, why is it that this discourse [says] that *samsara* is produced by ignorance, instead of by *tathāgatagarbha*? So, why don’t you say about samsara produced by ignorance? Because honestly if you look at human life, human life is exactly covered with ignorance. So this is also a question in the same as the absolute. But I said before, ignorance is not “original sin”. We usually consciously or unconsciously believe [that], but ignorance is not original sin. In Buddhism ignorance is *no root*.
 
 If you read the *Vimalakirti Sutra*, Vimalakirti says that the good comes from *no root*. Ignorance, any kind of delusions, have no root. And then finally the Bodhisattva asked Vimalakirti, “From where [does] no root come?” So Vimalakirti says, “No root comes from no root.” We believe no root is somewhere, it is something which exists somewhere; but *no root* is exactly *no root*. 
 
@@ -86,7 +86,7 @@ So, that is the same and one ground. So that’s why without this we cannot exis
 
 So that’s why it’s impossible for us to think samsara [is] coming from ignorance. Because ignorance is beginningless. No, it’s not the same and one ground. 
 
-So that’s why very naturally it comes from *tathagatagarbha*, and psychologically speaking it is called *alayavijnana*. 
+So that’s why very naturally it comes from *tathāgatagarbha*, and psychologically speaking it is called *alayavijnana*. 
 
 #### 33:33
 
@@ -98,19 +98,19 @@ So, *ignorance* is kind of a wind. Wind comes, and very naturally wave comes up.
 
 The next moment if you wake up from the sleep, very naturally that is [escape from] sleep, so-called ignorance. Because, the waves come to be calm, and [we] return to normal situation of the water. So, very naturally, *wa go* “peaceful together” means always show one act in a moment. At that time, the whole world becomes red or blue. [The] same base, so next moment, basically always that is pure water. So if you make the red ink, simultaneously it becomes red, next moment you can be blue. Red ink doesn’t stay long. It melts into the water and disappears, is dissipated, melted away. So, red ink comes into, it doesn’t stay long, and melted away. Next moment, you can put the blue, and melted away. But, when you put the blue ink, immediately it’s influencing, so-called “watering”. Watering, influencing. But even the result, so-called “watering”, by which people are influenced, all that is melted away, into the water, and becomes pure water. So, next moment, you put the blue. Something like this. 
 
-So that is *samsara* and also absolute truth are interconnected, interacting, like this. That is called “diffuses harmoniously with birth and death”, *samsara*. That is characteristic of *tathagatagarbha*, and also *storehouse consciousness*, psychologically. 
+So that is *samsara* and also absolute truth are interconnected, interacting, like this. That is called “diffuses harmoniously with birth and death”, *samsara*. That is characteristic of *tathāgatagarbha*, and also *storehouse consciousness*, psychologically. 
 
 #### 38:52
 
-Okay. I want to say a little bit about the absolute and the *tathagatagarbha*... something like this... 
+Okay. I want to say a little bit about the absolute and the *tathāgatagarbha*... something like this... 
 
 Let’s imagine a guitar instrument. In terms of the absolute, guitar is not a particular being, it is just a being, the same as other beings. So, you can’t put a certain name on it; [it’s] just a being. In terms of the universal point of view, it’s just a being. So, that is the absolute, or truth, you can say. But on the other hand, this oneness, so-called “just a being”, is something difficult to understand, because it’s vague. So, very naturally, what we can see is individual beings, individual *particular* beings: tables, the guitars, and the altar, and the floors, like this. That is the world we can contact with, you know, with our consciousness. That’s all. So very naturally, with our consciousness, it’s impossible to know “just a being”, as one. So, very naturally, we can see [...] the limits of the truth, limits of being as one, manifested in each individual being. Trees, birds, guitars. That’s why we put the name on it, so-called “guitar”, and through the guitar we can find being as a one. 
 
-So, very naturally, guitar is *tathagatagarbha*. Guitar as a whole is *tathagatagarbha*. But a guitar as a *tathagatagarbha* is different [from] being as one. Do you understand that one? And then, next moment, *tathagatagarbha*, the so-called guitar, starts to work. At that time, it makes sound. That is *samsara*. If you touch, that is a string, and if you touch the string then the guitar starts to move. The guitar as a whole starts to move, and that makes a sound. This is called *samsara*. 
+So, very naturally, guitar is *tathāgatagarbha*. Guitar as a whole is *tathāgatagarbha*. But a guitar as a *tathāgatagarbha* is different [from] being as one. Do you understand that one? And then, next moment, *tathāgatagarbha*, the so-called guitar, starts to work. At that time, it makes sound. That is *samsara*. If you touch, that is a string, and if you touch the string then the guitar starts to move. The guitar as a whole starts to move, and that makes a sound. This is called *samsara*. 
 
-But, simultaneously, the strings are getting calm and [becoming] quiet. But even though it becomes quiet, I don’t think sound disappears. Still, guitar as a *tathagatagarbha* still has great capability to work, to move, making a sound. Even though [there is] no sound, it doesn’t mean sound disappears. No. Still sound is there. The voice or sound of the guitar is constantly there. So next moment, if you touch it, sound comes up. 
+But, simultaneously, the strings are getting calm and [becoming] quiet. But even though it becomes quiet, I don’t think sound disappears. Still, guitar as a *tathāgatagarbha* still has great capability to work, to move, making a sound. Even though [there is] no sound, it doesn’t mean sound disappears. No. Still sound is there. The voice or sound of the guitar is constantly there. So next moment, if you touch it, sound comes up. 
 
-So there are life and death, affirmative and negative. Affirmative means when you touch the guitar, *tathagatagarbha* starts to work: move, and then make a sound. That is affirmative. You can see, you can hear. But next moment, you have to understand *tathagatagarbha* which doesn’t work. [That] means it’s quiet. But even though *tathagatagarbha* becomes quiet, making no sound, it doesn’t mean no sound. Still, there is the possibility of sound there. So, very naturally, that is the possibility of the sound which doesn’t appear, [which] means [the]  negative. So always negative, affirmative there. Life and death. Happy or not happy.
+So there are life and death, affirmative and negative. Affirmative means when you touch the guitar, *tathāgatagarbha* starts to work: move, and then make a sound. That is affirmative. You can see, you can hear. But next moment, you have to understand *tathāgatagarbha* which doesn’t work. [That] means it’s quiet. But even though *tathāgatagarbha* becomes quiet, making no sound, it doesn’t mean no sound. Still, there is the possibility of sound there. So, very naturally, that is the possibility of the sound which doesn’t appear, [which] means [the]  negative. So always negative, affirmative there. Life and death. Happy or not happy.
 
  So when you feel happy, that is *samsara* world.
  
@@ -120,9 +120,9 @@ So there are life and death, affirmative and negative. Affirmative means when yo
  
 So that is the samsaric world. 
  
-So when the *tathagatagarbha* moves and vibrates, always it shows two aspects. Self-confidence and not self-confidence. Then through learning both the two aspects, then you can understand the being as one, through the guitar. That is the relationship among the truth [and] *tathagatagarbha*. 
+So when the *tathāgatagarbha* moves and vibrates, always it shows two aspects. Self-confidence and not self-confidence. Then through learning both the two aspects, then you can understand the being as one, through the guitar. That is the relationship among the truth [and] *tathāgatagarbha*. 
 
-And then, *alayavijnana* tries to explain how guitar works, how guitar creates sound. That is the structure of the guitar, structure of the *tathagatagarbha*. That is called *alayavijnana*. *Alayavijnana* tries to know the structure of the *tathagatagarbha*, how *tathagatagarbha* works, how guitar works. That is, psychologically, this book uses [the term] *alayavijnana*. 
+And then, *alayavijnana* tries to explain how guitar works, how guitar creates sound. That is the structure of the guitar, structure of the *tathāgatagarbha*. That is called *alayavijnana*. *Alayavijnana* tries to know the structure of the *tathāgatagarbha*, how *tathāgatagarbha* works, how guitar works. That is, psychologically, this book uses [the term] *alayavijnana*. 
 
 Do you have a question? Is that alright? Do you understand the little difference? 
 
@@ -130,7 +130,7 @@ Do you have a question? Is that alright? Do you understand the little difference
 
 **Question:** I have a question about ignorance. Is ignorance also grounded on the absolute?
 
-**Katagiri Roshi:** Uh, no. It is *connected* with the *tathagatagarbha* – *alayavijnana*, psychologically speaking. Not *grounded*, because there’s no ground. But it’s always involved in the *tathagatagarbha*.
+**Katagiri Roshi:** Uh, no. It is *connected* with the *tathāgatagarbha* – *alayavijnana*, psychologically speaking. Not *grounded*, because there’s no ground. But it’s always involved in the *tathāgatagarbha*.
 
 **Same person:** Mm-hmm. Because you said it [wasn’t produced] with the samsara, so I saw it as being a part of samsara... *[unintelligible]*
 
@@ -150,7 +150,7 @@ Is that alright?
 
 *[Laughter.]*
 
-**Question**: I was thinking, the samsaric world... Is this an awakening? You would be able to see the samsaric world... well I would like to say without ignorance, because you’ve awakened from sleeping or the dream. So in that sense, they can’t be the same, ignorance [and the samsaric world]. Because the samsaric world always will be there because of the *tathagatagarbha*. Is that true?
+**Question**: I was thinking, the samsaric world... Is this an awakening? You would be able to see the samsaric world... well I would like to say without ignorance, because you’ve awakened from sleeping or the dream. So in that sense, they can’t be the same, ignorance [and the samsaric world]. Because the samsaric world always will be there because of the *tathāgatagarbha*. Is that true?
 
 **Katagiri Roshi:** When you wake up, and there is no ignorance? [Is that] what you mean?
 
@@ -222,7 +222,7 @@ And, one more point is, *samadhi* and also *spiritual intoxication*... [is that 
 
 **Someone:** I don’t understand either of them.
 
-**Katagiri Roshi:** Spiritual intoxication is... still pretty good; it’s not so bad, but, uh... *[laughter]* Still a little bit you show the *ignorance* aspect of *tathagatagarbha*. *[He laughs.]* But, *samadhi* is exactly *samadhi*. Spiritual [explication], but each samadhi knows what it is. “Aha, this is spiritual [explication]” – that is samadhi. Samadhi is you just be there; you are sleeping, but you are not sleeping. You’re awake. It’s impossible intellectually, but it is possible with wisdom. You can do it. That is samadhi. So, you just jump into it, but, you are clear. 
+**Katagiri Roshi:** Spiritual intoxication is... still pretty good; it’s not so bad, but, uh... *[laughter]* Still a little bit you show the *ignorance* aspect of *tathāgatagarbha*. *[He laughs.]* But, *samadhi* is exactly *samadhi*. Spiritual [explication], but each samadhi knows what it is. “Aha, this is spiritual [explication]” – that is samadhi. Samadhi is you just be there; you are sleeping, but you are not sleeping. You’re awake. It’s impossible intellectually, but it is possible with wisdom. You can do it. That is samadhi. So, you just jump into it, but, you are clear. 
 
 So, if you read the *Diamond Sutra*, the Bodhisattva is always right in the middle of darkness, but he is not blinded by the darkness, et cetera. The Diamond Sutra [says it that way]. 
 

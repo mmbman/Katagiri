@@ -365,13 +365,13 @@ But the energy of the self means the quality of the self has the great power to 
 
 Energy of the self is very powerful because [we are not only] looking at *this* life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Like birds, and insects, and woodchucks, you know? 
 
-I always say “woodchuck.” *[He laughs.]* Woodchuck is always living in the trees, and dogs just walk under the tree, immediately, *[sound]*, you know? But this action is to see his life in terms of instinct. He is always looking at his life, just a small world, in terms of instinct. But the energy of the self is very powerful to look at this life and [other lives], all the world, okay? Understanding as a whole, as a one. That is a quality of the self. 
+I always say, “[squirrel].” *[He laughs.]* (*Transcriber’s Note:* He says “woodchuck” here, but “squirrel” seems more likely.) [Squirrel] is always living in the trees, and dogs walk under the tree – immediately, *[whoosh]*, you know? But this action is to see his life in terms of instinct. He is always looking at his life [as] just a small world, in terms of instinct. 
 
-So that quality of the self is very vital. So that is called *energy*, *life force*. 
+But the energy of the self is very powerful to look at this life and [other lives], all the world – understanding as a whole, as a one. That is a quality of the self. That quality of the self is very vital. So that is called *energy*, *life force*. 
 
 Life force itself is simultaneously birth, your life. Life force is something coming up [...]. So that is just like spring water gushing out from the ground. 
 
-So “let’s return to the source” means life force constantly gushing out. That is, when [...] life force comes up, it is called *birth*. And when you are born in this world, simultaneously you have a mind and consciousness. So analyze, synthesize. [...] In other words the energy of the consciousness and mind comes from life force itself. You cannot ignore it. 
+So “let’s return to the source” means life force [is] constantly gushing out. That is, when [...] life force comes up, it is called *birth*. And when you are born in this world, simultaneously you have a mind and consciousness. So [you] analyze, synthesize. [...] In other words, the energy of the consciousness and mind comes from life force itself. You cannot ignore it. 
 
 So thanks to the life energy of the consciousness [...] you can see, you can justify, you can confirm *you*, so-called *the self*. That energy of the self is not looking at only this life, but a big world: past, present, future, *as a whole*, as a one. This is the energy of the self. 
 
@@ -383,7 +383,7 @@ So.
 
 *[Laughter.]*
 
-No particular reason why we have to do it, because we already are there. So all we have to do is just to learn where we are, what is the self, what is the consciousness. Not analyzing [and] synthesizing the consciousness, but by the consciousness we should know the limitation of the consciousness. *[He chuckles.]* In other words, through the consciousness we should learn what the consciousness is. Because consciousness is nothing but the energy of life force. 
+No particular reason why we have to do it, because we already are there. So all we have to do is just to learn where we are: what is the self, what is the consciousness. Not analyzing [and] synthesizing the consciousness, but by the consciousness we should know the limitation of the consciousness. *[He chuckles.]* In other words, through the consciousness we should learn what the consciousness is. Because consciousness is nothing but the energy of life force. 
 
 So we should learn through the consciousness. Very naturally you can know limitation of consciousness *by* the consciousness. *[He chuckles.]* Alright? 
 

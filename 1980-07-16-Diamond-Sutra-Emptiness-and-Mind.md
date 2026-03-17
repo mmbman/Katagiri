@@ -22,7 +22,7 @@ How do we teach Buddhism? Molding life into ideas or philosophy is backwards; th
 
 Chapter 32 is:
 
-> And finally, Subhuti, if a Bodhisattva, a great being had filled world-systems immeasurable and incalculable with the seven precious things, and gave them as a gift to the Tathagatas, the Arhats, the fully Enlightened Ones, – and if, on the other hand, a son or daughter of good family had taken from this Prajñāpāramitā, this discourse on Dharma, but one stanza of four lines, and were to bear it in mind, demonstrate, recite, and study it, and illuminate it in full detail for others, on the strength of that this latter would beget a greater heap of merit, immeasurable and incalculable. And how would he illuminate it? So as not to reveal. Therefore is it said, “he would illuminate.”
+> And finally, Subhuti, if a Bodhisattva, a great being had filled world-systems immeasurable and incalculable with the seven precious things, and gave them as a gift to the Tathāgatas, the Arhats, the fully Enlightened Ones, – and if, on the other hand, a son or daughter of good family had taken from this Prajñāpāramitā, this discourse on Dharma, but one stanza of four lines, and were to bear it in mind, demonstrate, recite, and study it, and illuminate it in full detail for others, on the strength of that this latter would beget a greater heap of merit, immeasurable and incalculable. And how would he illuminate it? So as not to reveal. Therefore is it said, “he would illuminate.”
 > 
 > (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze).)
 

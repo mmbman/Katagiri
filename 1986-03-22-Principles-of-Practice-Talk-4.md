@@ -44,19 +44,19 @@ This partition is very thin, but I am talking about this partition with boundles
 
 But let me say like it this: when you come out of the sleep, and then are entering the waking up, that real moment – you don’t know, you never know. But there is. That is a practice; we don’t know what’s going on there. 
 
-For instance, according to *The Awakening of Faith*: at the *tathagata* stage, Buddha knows the finer of the fine vibration of the mind. Among the fine vibration of the mind, there is the *finest* vibration there; very minute vibration of the mind. Because mind is constantly moving. Even though you say *moment* – the *Abhidharmakosha* says the moment consists of 65 instants. If so, what is a moment, you know? So the moment is a very fine vibration of the mind, but still there is the finest vibration of the mind within the moment – that is at the 65th vibration of mind *[he laughs a little]*. How can you touch it? You don’t know what it is. But it’s there. Through zazen you can know this, you can notice this one.
+For instance, according to *The Awakening of Faith*: at the *tathāgata* stage, Buddha knows the finer of the fine vibration of the mind. Among the fine vibration of the mind, there is the *finest* vibration there; very minute vibration of the mind. Because mind is constantly moving. Even though you say *moment* – the *Abhidharmakosha* says the moment consists of 65 instants. If so, what is a moment, you know? So the moment is a very fine vibration of the mind, but still there is the finest vibration of the mind within the moment – that is at the 65th vibration of mind *[he laughs a little]*. How can you touch it? You don’t know what it is. But it’s there. Through zazen you can know this, you can notice this one.
 
 So, [let’s say] if you are engaged in a perfect state of concentration, okay? Let’s [look at] your mind in zazen. And then you really feel exactly planting into the *samadhi*. But still you can see the very minute vibration of the mind, so-called *perfect concentration*, okay? Perfect state of planting into *samadhi*. You can see: “Oh, I am planting into the perfect *samadhi* now.” Something like that. This is the very minute vibration of the mind by which you can realize what you are doing, what is mind. 
 
 But no matter how long you realize, you recognize this minute movement, vibration of the mind, you never be free from vibration. No. Because even though you say, “I am perfectly calm now” – *[he laughs,]* that is already vibration. So “thinking not thinking” begets thinking. So realization of the perfect *samadhi* begets vibration of the mind. So you never be free from vibrations. 
 
-So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say. How do you do it? No, we don’t know. But this is *tathagata* stage, according to *The Awakening of Faith*. It is true! 
+So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say. How do you do it? No, we don’t know. But this is *tathāgata* stage, according to *The Awakening of Faith*. It is true! 
 
-So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by Buddha’s *tathagata*. At that time, buddha-*tathagata* knows how to live there. 
+So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by Buddha’s *tathāgata*. At that time, buddha-*tathāgata* knows how to live there. 
 
 Because whichever you think, no matter how long you cognize or you realize that very minute vibration of the mind, you never stop vibrating your mind. So how do you stop vibrating your mind? This is, it’s very simple, *very* simple. It’s very simple, but it’s too simple to know. *[He laughs.]* So all you have to do is just *be* there. 
 
-Just be. [...] *Tathagata* knows how to stop vibrating. That means to just *be* exactly – with no second person, no second thought. This is total dynamic working. You become exactly one.
+Just be. [...] *Tathāgata* knows how to stop vibrating. That means to just *be* exactly – with no second person, no second thought. This is total dynamic working. You become exactly one.
 
 #### 15:16
 
@@ -114,9 +114,9 @@ For instance, I mentioned maybe before, a gentleman in Japan was interested in r
 
 Is that clear for you? That is *cut off the root of discriminating mind*. Not ignoring discriminating mind. We are always doing [something] like this. “I want to do zazen, but I don’t want to have physical pain, et cetera. And I want to sleep in bed until 10 o’clock. So I want to do zazen, I want to deepen my life, et cetera; I want to be happy. But I don’t want to do zazen getting up in the morning!” *[He laughs.]* That is your problem. How can I help you? I don’t know; that’s your business! *[He laughs.]* Do you understand? 
 
-That’s why, if you want to reach *tathagata* stage, all you can do is, “Please keep your mouth shut. Just do it.” That’s all you can do. Alright? 
+That’s why, if you want to reach *tathāgata* stage, all you can do is, “Please keep your mouth shut. Just do it.” That’s all you can do. Alright? 
 
-But students are always depending on the teaching: “Please help me, help me.” Well, yes, I can help you. But you should know that there is something in the realm of vibrating your mind very minutely. At that time there is nothing for me to do. So all you have to do is you just be in the *tathagata* stage. That’s it. How? Cut off the root of the discriminating mind. 
+But students are always depending on the teaching: “Please help me, help me.” Well, yes, I can help you. But you should know that there is something in the realm of vibrating your mind very minutely. At that time there is nothing for me to do. So all you have to do is you just be in the *tathāgata* stage. That’s it. How? Cut off the root of the discriminating mind. 
 
 You want to keep smoking? Yes, you want to. But it’s not good for you, so the cigarette case always says it’s not good for your health. So you don’t want to keep smoking, but you cannot stop it. So [you say,] “This is my problem, please help me.” How can I help? That is always what we do.
 

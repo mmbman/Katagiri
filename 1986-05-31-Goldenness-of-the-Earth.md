@@ -51,13 +51,11 @@ Living in vow is not the big things you can expect, big things you can do. You c
 
 So [...] I constantly say, vow is to just form habits of doing small details in your everyday life. But a habit is constantly made with your desires, [and] a vow is a not a habit [made] with your desires. Living in vow is to do something, small things, carrying on forever, *without* any desires. 
 
-That is a way to live. That’s why Dōgen Zenji says (in *Gakudō-yōjinshū*), “The way is that the buddha-dharma must be practiced just for the buddha-dharma.” This is called the Way, or the Buddha Way. The Buddha Way or Way is our gold. Where we should build up [human life], what is the destination, what is the gold? This is a way. 
+That is a way to live. That’s why Dōgen Zenji says (in *Gakudō-yōjinshū*), “The Way is that the buddha-dharma must be practiced just for the buddha-dharma.” This is called the Way, or the Buddha Way. The Buddha Way or Way is our gold. Where should we build up [human life], what is the destination, what is the gold? This is a way. 
 
 And also Dōgen Zenji saying that the Way is that buddha-dharma is practiced just for the buddha-dharma means when you do *gassho*, just do gassho, for the gassho. 
 
-Where is the door to peace? Right under your feet. It’s not a big deal. It is a really small, tiny deal. 
-
-And also we have to carry this tiny deal *forever* – and under all circumstances. Beyond the satisfaction of your desires, constantly you have to carry it. For what? For living in peace and harmony with all sentient beings. This is a vow. 
+Where is the door to peace? Right under your feet. It’s not a big deal. It is a really small, tiny deal. And also we have to carry this tiny deal *forever* – and under all circumstances. Beyond the satisfaction of your desires, constantly you have to carry it. For what? For living in peace and harmony with all sentient beings. This is a vow. 
 
 At that time, whatever happens, you never drift in the ocean of human life. You can sail across the ocean of human life. 
 

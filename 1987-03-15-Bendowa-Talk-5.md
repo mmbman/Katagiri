@@ -15,19 +15,15 @@ title: "Bendōwa: Dōgen's Questions & Answers – Talk 5"
 
 #### 0:00
 
-I would like to explain a little more about the [word] *realization* [that] Dōgen Zenji uses very often here: *practice and realization*. I don't know how you understand what *realization* is. I think this is my problem, how to translate this term in English. Well, English always uses *realization*, but I don't know *how* you understand this [word]. 
+I would like to explain a little more about the [word] “realization” [that] Dōgen Zenji uses very often here: “practice and realization.” I don't know how you understand what *realization* is. I think this is my problem, how to translate this term in English. Well, English always uses “realization,” but I don't know *how* you understand this. 
 
-But Dōgen uses three kinds of *satori*, enlightenment. One is *awareness* – *kaku*, “awakening.” Second is *satori* – usually “enlightenment.” Third is *shō*. [...] *Literally* it means “verification” or “proof.” Literally, okay? 
+Dōgen uses three [words in Japanese meaning] “enlightenment.” One is *kaku* (覚): “awareness,” “awakening.” The second is *satori* (悟り, or 悟あ in Chinese): usually “enlightenment.” The third is *shō* (證). [...] *Literally* it means “verification” or “proof.” Literally, okay? This is also *shō*: [to certify], or to prove, or to verify, or to witness. So three terms are often used by Dōgen, but in this case, “realization” is corresponding to the third one – “proof” or “verification,” literally translated. But [...] I don't know what [English word] is best, so I have to explain a little bit about this one. 
 
-So three kinds of terms are often used by Dōgen, but in this case, *practice and realization* is the third one (*shō*). *Realization* is corresponding to the third one – “proof” or “verification,” literally translated. But I am still looking for the appropriate term in English; I don't know what kind of English [word] is best, so I have to explain a little bit about this one. 
+The first one and second one, *kaku* and *satori*, both are something which you can experience through the six senses. But *shō* translated as “realization” is a little more than that which you can experience or you can awaken [to]. [It has] a little deeper meaning than *kaku*, “awakening,” or *satori*, “enlightenment.”
 
-[This enlightenment is] *shō* (證) in Japanese. Plainly speaking, *shō* literally means “proof” or “certification”; this is also *shō*. [To certify], or to prove, or to verify, or to witness. [...] Anyway, *shō*. 
+So I don't know how to translate it, but maybe we can say *shō*, translated literally as *verification* or *witness*, means “actualizing the consummation of being.” [Or actualizing the] ultimate nature of being. 
 
-The first one and second one, *kaku* (*awakening*) or *satori*, both are something experienced, something which you can experience through the six senses. But *shō*, translated as *realization*, is a little more than that which you can experience or you can awaken. So [it has] a little deeper meaning, rather than *kaku*, awakening, or *satori*, enlightenment. 
-
-So I don't know how to translate it, but maybe we can say *shō*, translated literally as *verification* or *witness*, means “actualizing the consummation of being.” Consummation [of being], [the] ultimate nature of being. 
-
-So “consummation of being” – how can I say it – is a place where everything synchronizes with each other. Well, according to [what Buddha says], I think [whether] animate being or inanimate being, all [were] simultaneously enlightened when he attained enlightenment. Or, he said, “I and the heaven and earth [...] are the same and one root, where all living beings attain enlightenment simultaneously.” So that is a *consummation of being*. Consummation of the ultimate nature of being is the same and one place where everything coexists in peace. 
+“Consummation of being” – how can I say it – is a place where everything synchronizes with each other. Well, according to [what Buddha said], I think [whether] animate being or inanimate beings, all [were] simultaneously enlightened when he attained enlightenment. He said, “I and heaven and earth [...] are the same and one root, where all living beings attain enlightenment simultaneously.” That is a *consummation of being*. Consummation of the ultimate nature of being is the same and one place where everything coexists in peace. 
 
 Buddhist terminology uses very often *nyoze* or *jissō*. *Nyoze* means “thusness.” *Jissō* (実相) is also translated *thusness*, [or] “true reality.” *Jissō* is literally “true mark.” *True mark* means true reality.
 

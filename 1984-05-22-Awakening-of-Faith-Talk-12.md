@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 12: Tathagatagarbha"
+title: "The Awakening of Faith – Talk 12: Tathāgatagarbha"
 ---
 ## May 22, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -16,7 +16,7 @@ title: "The Awakening of Faith – Talk 12: Tathagatagarbha"
 
 #### 0:00
 
-**Katagiri Roshi:** Page 36. Yesterday, I mentioned in *chosan* that I would like to [explain] a little more about the statement, “The mind as phenomena (*samsara*) is grounded on the *tathagatagarbha*.”
+**Katagiri Roshi:** Page 36. Yesterday, I mentioned in *chosan* that I would like to [explain] a little more about the statement, “The mind as phenomena (*samsara*) is grounded on the *tathāgatagarbha*.”
  
 I think most people have big doubt how the truth relates with the samsaric world. [It is] very difficult to figure out the relationship, how truth comes into the samsaric world. What is the subject which *samsara* is produced? How [the] samsaric world is produced? It’s very difficult to understand. But we want to know.
 
@@ -32,7 +32,7 @@ That's why, very naturally, this kind of book is established. So today [...] I w
 
 #### 05:18
 
-Yesterday I mentioned the *tathagatagarbha* is not the same as the truth itself. The truth is exactly truth. I think we have learned [this] before... look at page 32, “The Mind in Terms of the Absolute”. [...] This section explains the absolute. You should understand the truth like this. 
+Yesterday I mentioned the *tathāgatagarbha* is not the same as the truth itself. The truth is exactly truth. I think we have learned [this] before... look at page 32, “The Mind in Terms of the Absolute”. [...] This section explains the absolute. You should understand the truth like this. 
 
 The first line:
 
@@ -85,13 +85,13 @@ So from this point, it’s impossible for us to understand, even philosophically
 
 That is *the truth*. If so, you cannot say “truth creates *samsara*”. Some Buddhist scholars understood that the samsaric world is created by the activity of the absolute truth. But that is a little bit of a misunderstanding. 
 
-If so, that’s why this discourse finds out another category so-called *tathagatagarbha*. 
+If so, that’s why this discourse finds out another category so-called *tathāgatagarbha*. 
 
 #### 19:26
 
-The *tathagatagarbha* is a very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathagatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being* mentioned by Dōgen, et cetera. You can see a little bit. That’s why this discourse brings up another term, so-called *tathagatagarbha*.
+The *tathāgatagarbha* is a very interesting teaching. In terms of general Buddhism, this idea is very important. If you understand the idea of *tathāgatagarbha*, I think you can taste a little bit the meaning of *Shōbōgenzō*, the meaning of *time-being* mentioned by Dōgen, et cetera. You can see a little bit. That’s why this discourse brings up another term, so-called *tathāgatagarbha*.
 
-*Tathagatagarbha* is the truth dwelling in... us, and all beings. [It is not the] abstracted idea of the principle or action – no. *Tathagatagarbha* is the real, very important ground of life. It is not an abstract idea.
+*Tathāgatagarbha* is the truth dwelling in... us, and all beings. [It is not the] abstracted idea of the principle or action – no. *Tathāgatagarbha* is the real, very important ground of life. It is not an abstract idea.
 
 You should remember this: Buddhism doesn’t investigate *process* – the process of how truth comes to [or] joins the *samsara*, or *samsara* joins to the truth. Not *process* of. That is philosophy. Intellectually we say, if you move from A to B, what is the A, what is the B? And then how can you move to B? Et cetera. This is our understanding, intellectual *[unintelligible]*. But Buddhism doesn’t explain *anything* in that way. Buddhism accepts [...] real reality as it is, right now, right here. In other words, we have to see the interacting relations among the many conditions in terms of the reality as it is, which is constantly arising. Not the process of how to arise, how to move. 
 
@@ -99,7 +99,7 @@ So, Buddhism, anyway, jumps into the reality as it is, and then, learns how it i
 
 That’s why daily routine is very important. In terms of our sense of human body, daily routine is a small detail for us, but daily routine is not so different from a professional job you have. *[Unintelligible]* is not different from Himalayan mountains. So I think that you have to understand the practice in reality as it is, instead of a certain investigative process of how to create [these practices]. Why? The reason why it is so small, in comparison with the Himalayan mountain, et cetera – this is our intellectual system. But that is a philosophy: you can build up big mansions, so-called philosophy, psychology, etc. But Buddhism always participates directly first, reality as it is. And *then* research, investigate, understand the structure of that reality, among the many conditions. Because there are many conditions there. Cause, secondary cause, first cause – many, many conditions. So that is always the Buddhistic attitude. 
 
-So from this attitude this term comes up, so-called *tathagatagarbha*. Because if you look at yourself, you cannot analyze your reality, from where it comes, what kind of characteristics you have. You cannot judge yourself on the basis of one-sided ideas, so-called “good boy” or “bad boy”. You cannot do it. So if you look at yourself in reality as it is, I think you have always two things: the samsaric world, and also something more than the samsaric world. 
+So from this attitude this term comes up, so-called *tathāgatagarbha*. Because if you look at yourself, you cannot analyze your reality, from where it comes, what kind of characteristics you have. You cannot judge yourself on the basis of one-sided ideas, so-called “good boy” or “bad boy”. You cannot do it. So if you look at yourself in reality as it is, I think you have always two things: the samsaric world, and also something more than the samsaric world. 
 
 The samsaric world is suffering, but more than suffering. There is some important thing, more than the samsaric world you really hate. Because no matter how long you hate it or you try to escape, still your existence goes on and on, wherever you may go. So, what do you mean? In terms of the samsaric world, are you judged as a bad boy? If so, is that it? That is your life? No. Even though in terms of the samsaric world someone judges your life as bad, still you can survive, you can go *any* place. Your life goes on and on. If so, there is something in your life more than a sense of judgment, evaluation; more than the samsaric world. That is called *truth itself* – truth which is found in life. 
 
@@ -113,15 +113,15 @@ But usually people always believe that understanding of the universe or the trut
 
 And also you can find the truth in others’ life, too. You can find the truth in the tables, you can find the truth in nature. [...] 
 
-So, that truth is called *tathagatagarbha* because that truth is found in everything, and simultaneously it is limited by individual life. That’s why the truth [is] veiled in delusion – we say so. That is called *tathagatagarbha*. 
+So, that truth is called *tathāgatagarbha* because that truth is found in everything, and simultaneously it is limited by individual life. That’s why the truth [is] veiled in delusion – we say so. That is called *tathāgatagarbha*. 
 
-That *tathagatagarbha* is your life in reality as it is. If you look at your life directly.
+That *tathāgatagarbha* is your life in reality as it is. If you look at your life directly.
 
 #### 30:22
 
-So far we have questions about the *tathagatagarbha*. [Do] you know the difference between truth itself and *tathagatagarbha*? Do you have a question? 
+So far we have questions about the *tathāgatagarbha*. [Do] you know the difference between truth itself and *tathāgatagarbha*? Do you have a question? 
 
-**Question:** *[Unintelligible]* not *tathagatagarbha* but the truth as phenomenal world, it sounds so dualistic: the absolute is not *samsara*, ...
+**Question:** *[Unintelligible]* not *tathāgatagarbha* but the truth as phenomenal world, it sounds so dualistic: the absolute is not *samsara*, ...
 
 **Katagiri Roshi:** Yeah, it’s not dualistic, so I have to explain the next [part], the so-called *harmony* – the harmony and peace. In this book, [...] on page 36 it says, “diffuses harmoniously with birth and death.” So I asked you the other day the meaning of “diffusing harmoniously with”? In the original text it used the word *peace*, or *harmony*, but this translation says it like this. So I have to explain that peace and harmony, okay? 
 
@@ -137,21 +137,21 @@ Are there any questions?
 
 **Same person:** Then where does it come from?
 
-**Katagiri Roshi:** That’s why, if we want to know what is the subject which *samsara* is produced, that is “what is the subject?” That subject is so-called *tathagatagarbha*. 
+**Katagiri Roshi:** That’s why, if we want to know what is the subject which *samsara* is produced, that is “what is the subject?” That subject is so-called *tathāgatagarbha*. 
 
 **Same person:** *[Unintelligible.]*
 
-**Katagiri Roshi:** Not “comes from”. *[He laughs.]* But if you say so, yes, it comes from *tathagatagarbha*.
+**Katagiri Roshi:** Not “comes from”. *[He laughs.]* But if you say so, yes, it comes from *tathāgatagarbha*.
 
-I explained [why we] use *tathagatagarbha*. What is the Buddhist attitude? Do you understand this one? You always question, “somebody created this one,” or “this one comes from this somebody.” This is [very delusive], alright? This is very philosophical. If you research something, you never understand religious life – because that is your discriminating mind, [et cetera]. No, you don’t understand. But you should pay careful attention to something *more than that*. What is it? What do you have to pay attention to? 
+I explained [why we] use *tathāgatagarbha*. What is the Buddhist attitude? Do you understand this one? You always question, “somebody created this one,” or “this one comes from this somebody.” This is [very delusive], alright? This is very philosophical. If you research something, you never understand religious life – because that is your discriminating mind, [et cetera]. No, you don’t understand. But you should pay careful attention to something *more than that*. What is it? What do you have to pay attention to? 
 
 **Question:** The *samsara* and [...] are ignorance... 
 
 **Katagiri Roshi:** No, that is another subject. I am talking about in order to understand the human world in the relation between the *samsara* and truth, what kind of attitude you should take toward human life. How should you investigate? I told you.
 
-**Same person:** ... through the manifestation of *tathagatagarbha* in your...
+**Same person:** ... through the manifestation of *tathāgatagarbha* in your...
 
-**Katagiri Roshi:** It’s [not] where *tathagatagarbha* comes up [or] how, why, the *tathagatagarbha* comes up. The *tathagatagarbha* is created through the Buddhistic attitude towards human life, which is quite different from the usual philosophy. Do you understand? I told you, anyway, a few minutes ago... *[Some laughter.]*
+**Katagiri Roshi:** It’s [not] where *tathāgatagarbha* comes up [or] how, why, the *tathāgatagarbha* comes up. The *tathāgatagarbha* is created through the Buddhistic attitude towards human life, which is quite different from the usual philosophy. Do you understand? I told you, anyway, a few minutes ago... *[Some laughter.]*
 
 **Someone:** *[Unintelligible.]*
 
@@ -215,11 +215,11 @@ So, how do you research?
 
 **Katagiri Roshi:** Oh... as a principle, that is the absolute itself. It is the principal. So [it is] far from us. That is very metaphysical and philosophical. 
 
-**Someone:** So is that why you wanted to use the word *tathagatagarbha* *[inaudible.]*
+**Someone:** So is that why you wanted to use the word *tathāgatagarbha* *[inaudible.]*
 
-**Katagiri Roshi:** Yes. That’s why that absolute doesn’t create something in the samsaric world, because it is unborn and *[unintelligible]*. But the absolute is something omnipresent. Do you understand? *Omnipresent* means everywhere, so that’s why we can see that truth. That truth is not abstract. It’s very concrete. Do you understand? That’s why it is called *tathagatagarbha*. 
+**Katagiri Roshi:** Yes. That’s why that absolute doesn’t create something in the samsaric world, because it is unborn and *[unintelligible]*. But the absolute is something omnipresent. Do you understand? *Omnipresent* means everywhere, so that’s why we can see that truth. That truth is not abstract. It’s very concrete. Do you understand? That’s why it is called *tathāgatagarbha*. 
 
-**Someone:** In Christianity, there was a whole *[unintelligible]* of God movement. Is that the god as an abstract entity, truth or whatever, and more of a... [...]  people like that talking about a ground of all beings. Is that the same as the notion of *tathagatagarbha*?
+**Someone:** In Christianity, there was a whole *[unintelligible]* of God movement. Is that the god as an abstract entity, truth or whatever, and more of a... [...]  people like that talking about a ground of all beings. Is that the same as the notion of *tathāgatagarbha*?
 
 **Katagiri Roshi:** Yes, [of course,] but I don’t know exactly the traditional idea of God in Christianity. But Buddhism is not investigating, analyzing the truth itself. 
 
@@ -229,13 +229,13 @@ So, how do you research?
 
 And then if you totally accept, you have to look at yourself in reality as it is, exactly. So that is the first step: to know. 
 
-**Someone:** *[Inaudible]* ... the manifestation in the concrete world. For example like flowers, water, the wood pattern, and that that is the *tathagatagarbha*?
+**Someone:** *[Inaudible]* ... the manifestation in the concrete world. For example like flowers, water, the wood pattern, and that that is the *tathāgatagarbha*?
 
 **Katagiri Roshi:** It is.
 
 **Someone:** ... but that is absolute truth manifesting in the concrete world. 
 
-**Katagiri Roshi:** Yes. That is called *tathagatagarbha*. 
+**Katagiri Roshi:** Yes. That is called *tathāgatagarbha*. 
 
 But absolute truth is manifested in the concrete aspect. *Concrete aspect* means, in this case, “veiled with delusion,” it says here. *Delusion* means discriminating mind. 
 
@@ -251,11 +251,11 @@ But absolute truth is manifested in the concrete aspect. *Concrete aspect* means
 
 **Katagiri Roshi:** Sure, that’s true. 
 
-**Someone:** [Then] *tathagatagarbha* is just kind of a skillful means? It seems to be that, a skillful means for us to ... 
+**Someone:** [Then] *tathāgatagarbha* is just kind of a skillful means? It seems to be that, a skillful means for us to ... 
 
 **Katagiri Roshi:** Maybe so. Mm-hmm?
 
-**Someone:** At the same time, [*tathagatagarbha*] is also covered with delusions.
+**Someone:** At the same time, [*tathāgatagarbha*] is also covered with delusions.
 
 **Katagiri Roshi:** Because? 
 
@@ -267,7 +267,7 @@ But absolute truth is manifested in the concrete aspect. *Concrete aspect* means
 
 **Katagiri Roshi:** Oh no, I don’t think so. You should listen carefully. *[He laughs.]*
 
-I say [*tathagatagarbha* is] *covered* with delusion, okay? *Tathagatagarbha* is the truth *covered with* delusion. Alright? But that delusion means what? What do we mean, delusion? 
+I say [*tathāgatagarbha* is] *covered* with delusion, okay? *Tathāgatagarbha* is the truth *covered with* delusion. Alright? But that delusion means what? What do we mean, delusion? 
 
 **Someone:** Discriminating mind?
 
@@ -305,7 +305,7 @@ So very naturally you bump your head against the big pole, sooner or later. Alri
 
 #### 50:00
 
-So, *tathagatagarbha* is the truth covered with delusion. What do we mean? Why do we call it delusion? Concretely speaking, what kind of the truth? How do you find [it]? Where is it?
+So, *tathāgatagarbha* is the truth covered with delusion. What do we mean? Why do we call it delusion? Concretely speaking, what kind of the truth? How do you find [it]? Where is it?
 
 **Someone:** *[Inaudible.]*
 
@@ -319,9 +319,9 @@ So, *tathagatagarbha* is the truth covered with delusion. What do we mean? Why d
 
 But usually we always believe the truth *you* have understood, or *you* have experienced. That’s why we create trouble, always. Because if there are ten people who understand the different way. Not the same, at all. So, very naturally, ten different kinds of the universe and truth come up. Then they fight. Alright? 
 
-**Someone:** Hojo-san, you said the Buddhist attitude toward life creates the *tathagatagarbha*. Did you mean that the Buddhist attitude toward life creates the *concept* of the *tathagatagarbha*?
+**Someone:** Hojo-san, you said the Buddhist attitude toward life creates the *tathāgatagarbha*. Did you mean that the Buddhist attitude toward life creates the *concept* of the *tathāgatagarbha*?
 
-**Katagiri Roshi:** No, no, no, not *create*. The *tathagatagarbha*... very naturally comes into existence from the attitude towards human life in the Buddhistic way. Very naturally because Buddhists speak up. I always focus on the person or thing in reality as it is, instead of researching the process: how to create it, from where it comes, et cetera. Do you understand? 
+**Katagiri Roshi:** No, no, no, not *create*. The *tathāgatagarbha*... very naturally comes into existence from the attitude towards human life in the Buddhistic way. Very naturally because Buddhists speak up. I always focus on the person or thing in reality as it is, instead of researching the process: how to create it, from where it comes, et cetera. Do you understand? 
 
 So, always focus on *this*: one person or one thing in reality as it is. If so, how many things can be found in this one thing, one person? Can you judge this or that person exactly according to the one-sided idea, so-called truth, pure or not pure? Can you? 
 
@@ -335,9 +335,9 @@ So, always focus on *this*: one person or one thing in reality as it is. If so, 
 
 Why are there two things always interacting and et cetera? Well, this is because this is already the samsaric world. Samsaric world is always, you know, the two things there: good or bad, self-confident or not self-confident, et cetera. Okay? But you cannot always try to take care of your life with always self-confidence. Because, if you really want to have your life with self-confidence always, you should find a little bit easier circumstances [so] you can get the self-confidence. But the circumstances are always moving and changing, and [there are] favorable conditions or unfavorable conditions, always. Nevertheless, wherever you may be, under unfavorable conditions, you have to learn the self-confidence in which you have to stand up straight there. That is called the samsaric world. That’s why you have to learn *both*: self-confidence and difficult-to-get-the-self-confidence. You have to learn both; both are important. 
 
-But usually we believe only self-confidence is important: “If you don’t have the self-confidence, it’s bad.” That means you destroy the *samsara*. Do you understand? *Samsara* is always self-confidence [and] simultaneously not-self-confidence. That is *samsara*. But this *samsara* world is grounded on *tathagatagarbha* means the truth. That’s why self-confidence or not-self-confidence, both are important. That’s why through not-self-confidence you can learn how important self-confidence is for you. 
+But usually we believe only self-confidence is important: “If you don’t have the self-confidence, it’s bad.” That means you destroy the *samsara*. Do you understand? *Samsara* is always self-confidence [and] simultaneously not-self-confidence. That is *samsara*. But this *samsara* world is grounded on *tathāgatagarbha* means the truth. That’s why self-confidence or not-self-confidence, both are important. That’s why through not-self-confidence you can learn how important self-confidence is for you. 
 
-So under *all* circumstances, we have to learn how to stand up straight with self-confidence. Do you understand that one? That is the *tathagatagarbha*, anyway. *[He chuckles.]* *Tathagatagarbha* is not only ideas, but also it’s pretty deep meaning. Practically you should do it. Because in *samsara* human beings always have one-sided ideas. That’s why Buddha also always give [pieces of advice] for us: “Don’t be stuck in one-sided ideas.” So we have to learn both.
+So under *all* circumstances, we have to learn how to stand up straight with self-confidence. Do you understand that one? That is the *tathāgatagarbha*, anyway. *[He chuckles.]* *Tathāgatagarbha* is not only ideas, but also it’s pretty deep meaning. Practically you should do it. Because in *samsara* human beings always have one-sided ideas. That’s why Buddha also always give [pieces of advice] for us: “Don’t be stuck in one-sided ideas.” So we have to learn both.
 
 [What time is it?] ... one more question?
 

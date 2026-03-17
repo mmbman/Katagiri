@@ -195,7 +195,7 @@ But in the *Prajñāpāramitā Sutra*, it doesn’t mention why the object and s
 
 But in this book, [it’s a little different]. Because we want to know, what part of the object is emptiness? Is [...] the whole thing empty? How about subject? How about subject who is looking at the object? Is it also emptiness? This book, that is Buddhist psychology, is always analyzing, synthesizing like this. So a little bit different. Very naturally it becomes logical, very rational. 
 
-So in this book, that’s why truth itself is never denied, but deluded mind is negated. Because later, it says *tathagatagarbha* means buddha-nature is present in you. Whoever you are, *tathagatagarbha* is present in you always. That is a teaching of the idea of *tathagatagarbha*. *Garbha* means “womb,” literally.
+So in this book, that’s why truth itself is never denied, but deluded mind is negated. Because later, it says *tathāgatagarbha* means buddha-nature is present in you. Whoever you are, *tathāgatagarbha* is present in you always. That is a teaching of the idea of *tathāgatagarbha*. *Garbha* means “womb,” literally.
 
 #### 1:03:30
 

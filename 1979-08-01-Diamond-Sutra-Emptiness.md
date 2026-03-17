@@ -29,25 +29,23 @@ The Buddha asked Subhuti: “Is there any dharma which the Tathāgata has fully 
 
 #### 3:52
 
-In Japanese, “enlightenment” is described by three different characters. One is *kaku*: “awareness.” The second is *satori* – you are very familiar with this term, satori. The third is *shō*: that is usually translated as “realization”. 
+In Japanese, “enlightenment” is described by three different characters. One is *kaku*: “awareness.” The second is *satori* – you are very familiar with this term, satori. The third is *shō*: that is usually translated as “realization.” 
 
 Enlightenment, broadly speaking, is to know or to awaken to the real nature, the original nature of existence. The original nature of existence is *truth*. 
 
 According to the first term, *kaku*, awareness, this kind of enlightenment is to know, to experience the truth at the conscious level. Still that experience of enlightenment which is called *awareness* is at the conscious level. So whoever you are, if you practice zazen – or even though you don’t practice zazen, if you do your best to take care of your life, living in peace with all sentient beings with your best effort – at that time everybody can experience awareness, which allows you to touch the core of existence. 
 
-This is the first experience; everyone can do this. But this experience of awareness is still at the conscious level. So, even though you understand the universe, there is still some difficulty for us to know how we should put it into practice. We don’t know what to do, because the experience of the universe through awareness doesn’t work [appropriately enough] in our daily living.
+This is the first experience. Everyone can do this. But this experience of awareness is still at the conscious level. So even though you understand the universe, there is still some difficulty for us to know how we should put it into practice. We don’t know what to do, because the experience of the universe through awareness doesn’t work [appropriately enough] in our daily living.
 
 So that is [*kaku*,] *awareness*.
 
 #### 7:50 
 
-The second is *satori*. Satori is a little deeper than the experience of awareness, because satori is that awareness which penetrates your body, your skin, muscle, bone, and marrow. You really understand what the universe is, how all beings exist, through your body and mind, skin, muscle, bone, and marrow. 
+The second is *satori*. Satori is a little deeper than the experience of awareness, because satori is that awareness which penetrates your body, your skin, muscle, bone, and marrow. You really understand what the universe is, how all beings exist, through your body and mind, skin, muscle, bone, and marrow. So your daily living is a little bit free from their difficulties, because you understand pretty well, and you know a little bit how to practice the universe in your daily living, how to practice the experience of satori in your daily living. In your daily living, maybe your attitude gradually becomes very gentle, compassionate to everybody. 
 
-So your daily living is a little bit free from their difficulties, because you understand pretty well, and you know a little bit how to practice the universe in your daily living, how to practice the experience of satori in your daily living. In your daily living, maybe your attitude gradually becomes very gentle, compassionate to everybody. 
+But still this *satori* is not good enough, because it is still something which is going on at the conscious level. Sometimes you handle this satori at the conscious level, sometimes you can get out of the conscious level, but still, it goes back and forth, so it’s still very difficult for us to experience perfect stability in our daily living. 
 
-But still this satori is not good enough, because it is still something which is going on at the conscious level. Sometimes you handle this satori at the conscious level, sometimes you can get out of the conscious level, but still, it goes back and forth, so it’s still very difficult for us to experience perfect stability in our daily living. 
-
-That is *satori*. Usually people understand Zen as cultivating the experience of satori; [they understand that] Zen practice gives us a chance to experience satori, and that is the final goal we are aiming at. But this is not the final goal, because the experience of satori is still tinged with something intellectual, which is going on at the subconscious level. 
+That is *satori*. Usually people understand Zen as cultivating the experience of satori; [they understand that] Zen practice gives us a chance to experience satori, and that is the final goal we are aiming at. But this is not the final goal, because the experience of satori is still tinged with something intellectual which is going on at the subconscious level. 
 
 #### 11:27
 
@@ -55,7 +53,7 @@ The final goal is that you must be free from the experience of satori. That is t
 
 Verification which is called *shō* is oneness with the original nature of being. There is no gap between; exactly your daily living is perfectly in accord with the original nature of existence, the rhythm of the nature of existence. 
 
-That is the third one, which is called *shō*, usually translated as “realization.” This third enlightenment is the highest spiritual level, in which you can be free from awareness and satori. There is no trace of satori, no trace of awareness. That is called *verification* because you are already one with the original nature of existence even if you don’t realize it. You are already right in the middle of the nature of existence. By this *shō*, enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike it. That is the total picture of [the] existence you have. 
+That is the third one, which is called *shō*, usually translated as “realization.” This third enlightenment is the highest spiritual level, in which you can be free from awareness and satori. There is no trace of satori, no trace of awareness. That is called “verification” because you are already one with the original nature of existence even if you don’t realize it. You are already right in the middle of the nature of existence. By this *shō*, enlightenment, your life is supported, helped, constantly, regardless of whether you like or dislike it. That is the total picture of [the] existence you have. 
 
 This is enlightenment. That’s why Buddha says, “Is there any dharma which the Tathāgata has fully known as ‘the utmost, right and perfect enlightenment’?” This is really pointing to the third enlightenment, which is called *shō*: perfect, right, supreme enlightenment. But if you get *something* at the conscious level, it is not real enlightenment; it is called awareness, or satori, et cetera. Real enlightenment which is called *shō* is nothing you can get in your hand. But, you can *be with it*, always, constantly. 
 

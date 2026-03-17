@@ -57,19 +57,19 @@ That oneness of supermundane and mundane worlds is called what?
 
 **Someone:** Truth?
 
-**Katagiri Roshi:** Truth... And also, oneness of the supermundane and mundane worlds is called *tathagatagarbha*. 
+**Katagiri Roshi:** Truth... And also, oneness of the supermundane and mundane worlds is called *tathāgatagarbha*. 
 
-Tathagatagarbha is, *tathagata* is the *Tathagata*, Buddha; *garbha* is “womb.” So Tathagata storehouse, Tathagata womb, means everyone is buddha. Buddha consists of the principle, and wisdom: the oneness of the principle and wisdom. In this book, *buddha* means oneness of principle and wisdom. *Principle* means [dharma body]. Truth itself. 
+Tathāgatagarbha is, *tathāgata* is the *Tathāgata*, Buddha; *garbha* is “womb.” So Tathāgata storehouse, Tathāgata womb, means everyone is buddha. Buddha consists of the principle, and wisdom: the oneness of the principle and wisdom. In this book, *buddha* means oneness of principle and wisdom. *Principle* means [dharma body]. Truth itself. 
 
-And this truth and wisdom [is] already present in us, but covered with [defilement]. Delusion; *klesha*. So dharma body as a principle and wisdom doesn’t work; actually it’s covered. I don’t know [what] to call it, but anyway, already the *tathagata* is covered with delusions and defiledness. 
+And this truth and wisdom [is] already present in us, but covered with [defilement]. Delusion; *klesha*. So dharma body as a principle and wisdom doesn’t work; actually it’s covered. I don’t know [what] to call it, but anyway, already the *tathāgata* is covered with delusions and defiledness. 
 
-That’s why we say *tathagata-garbha*. We are already the infant, the babies. Any time, when you are ready to be in the human world, you can come out. That is *tathagatagarbha*. 
+That’s why we say *tathāgata-garbha*. We are already the infant, the babies. Any time, when you are ready to be in the human world, you can come out. That is *tathāgatagarbha*. 
 
-So, *tathagatagarbha* means all of us, all sentient beings, so-called *mind of all sentient beings*. That mind of all sentient beings consists of the defiledness and undefiledness, which means [mundane and supermundane] world. 
+So, *tathāgatagarbha* means all of us, all sentient beings, so-called *mind of all sentient beings*. That mind of all sentient beings consists of the defiledness and undefiledness, which means [mundane and supermundane] world. 
 
-That teaching of the *tathagatagarbha* is the teaching of Mahayana. Mahayana emphasizes that teaching, the teaching of *tathagatagarbha*. That is called Mahayana. 
+That teaching of the *tathāgatagarbha* is the teaching of Mahayana. Mahayana emphasizes that teaching, the teaching of *tathāgatagarbha*. That is called Mahayana. 
 
-So [that is] why we call this teaching Mahayana, because this Mahayana emphasizes the truth as the mind of all sentient beings, consisting of supermundane and mundane world. But the supermundane and mundane worlds are not separated, because they are one. That is called *tathagatagarbha*. 
+So [that is] why we call this teaching Mahayana, because this Mahayana emphasizes the truth as the mind of all sentient beings, consisting of supermundane and mundane world. But the supermundane and mundane worlds are not separated, because they are one. That is called *tathāgatagarbha*. 
 
 Do you have questions about this so far? 
 
@@ -107,7 +107,7 @@ But apparently, we need both. You have to understand the relationship between yo
 
 But basically, [where] your fundamental way of thinking is placed, that is very important. And then your attitude is quite different; attitude is taken in a different way. I don’t know, this is a different characteristic of intellectual and not intellectual. Very systemized, very father-like and mother-like. We need both in human life; but always there is a difference, a little difference where you are standing. That is a fundamental way of thinking. 
 
-So that’s why this is “the truth is called mind” and “the truth is called *mind of all sentient beings*”; it’s very important for us. And also the supermundane and mundane worlds are one, which is called *tathagatagarbha*. This is a very basic understanding of human life in Buddhism. 
+So that’s why this is “the truth is called mind” and “the truth is called *mind of all sentient beings*”; it’s very important for us. And also the supermundane and mundane worlds are one, which is called *tathāgatagarbha*. This is a very basic understanding of human life in Buddhism. 
 
 Well, you can see the different ways in your life.
 
@@ -131,7 +131,7 @@ So your mind is Tony’s mind; it is already separated, but basically you have t
 
 That means in the human world, there are different kind of human beings exist. Good person, bad person, very cruel person, many beings exist. Hells, hungry ghosts, fighting spirits, and, you know, the bodhisattvas, celestial beings, human beings – many beings exist. And many beings can be seen objectively in your world, but their stories are not other’s stories, [they’re] your stories. So you can see the hells, hungry ghosts, fighting spirits, celestial beings, etc. can exist within you. Do you understand? 
 
-So you cannot criticize others, you cannot treat others very badly, anyway. Well, whoever they are. So that’s why I say always, even though [...] let’s say a bank robber, you can arrest him, but you cannot treat him very badly. You have to treat him or her gently, because they are nothing different from you. So you have to treat him [gently]; but he did something wrong, that’s why we have to put him in a different place, that is called jail. We say “jail”, but even though they live in a jail, they are not different from you. But they did something, that’s why we have to arrest them for a while in a different place. In order to reflect upon themselves. *[He chuckles.]* Anyway, we can give an opportunity to come back to the human world, *tathagatagarbha*’s world. 
+So you cannot criticize others, you cannot treat others very badly, anyway. Well, whoever they are. So that’s why I say always, even though [...] let’s say a bank robber, you can arrest him, but you cannot treat him very badly. You have to treat him or her gently, because they are nothing different from you. So you have to treat him [gently]; but he did something wrong, that’s why we have to put him in a different place, that is called jail. We say “jail”, but even though they live in a jail, they are not different from you. But they did something, that’s why we have to arrest them for a while in a different place. In order to reflect upon themselves. *[He chuckles.]* Anyway, we can give an opportunity to come back to the human world, *tathāgatagarbha*’s world. 
 
 That is completely the fundamental way of thinking. Where this fundamental way of thinking is placed, you have to accept completely all sentient beings. But if you deal with human beings [...] very intellectually: you are a bad boy, so you should be in jail; if you are in jail, you are completely different person. 
 
@@ -149,13 +149,13 @@ What is the question?
 
 #### 32:24
 
-**Question:** Hojo-san? When relating to the world from the horizontal plane, can you say there are defilements then? You said, where *tathagata* is covered by defiledness, is that from intellectual play or is that full? 
+**Question:** Hojo-san? When relating to the world from the horizontal plane, can you say there are defilements then? You said, where *tathāgata* is covered by defiledness, is that from intellectual play or is that full? 
 
 **Katagiri Roshi:** That is what? 
 
 **Same person:** Can you say there are defilements, when ... ? 
 
-**Katagiri Roshi:** Defiledness, yes, defiledness. But it is not the defiledness separate from undefiledness. That defiledness is exactly the same as undefiledness. That is called *tathagatagarbha*. Alright?
+**Katagiri Roshi:** Defiledness, yes, defiledness. But it is not the defiledness separate from undefiledness. That defiledness is exactly the same as undefiledness. That is called *tathāgatagarbha*. Alright?
 
 So defiledness doesn’t exist in a different world, separate from undefiledness. Do you understand? 
 
@@ -197,19 +197,19 @@ So that’s why defiled world. But a defiled world is completely different from 
 
 **Katagiri Roshi:** Sure. Mm-hmm.
 
-So, the teaching of *tathagatagarbha* is also teaching in terms of the relative world. Because that is a combination of the defiled world and undefiled world. 
+So, the teaching of *tathāgatagarbha* is also teaching in terms of the relative world. Because that is a combination of the defiled world and undefiled world. 
 
-So, without *tathagatagarbha*, you cannot create the samsaric world. Let me say a little bit [more] about this. [...] If you say *tathagatagarbha*, this is a little bit personalized, something personalized. *Truth* is digested by human beings; at that time, that is called *tathagatagarbha*. 
+So, without *tathāgatagarbha*, you cannot create the samsaric world. Let me say a little bit [more] about this. [...] If you say *tathāgatagarbha*, this is a little bit personalized, something personalized. *Truth* is digested by human beings; at that time, that is called *tathāgatagarbha*. 
 
-And then, in terms of human life, if you see the *tathagatagarbha*, that teaching of *tathagatagarbha*, that is called *jisho shojo-shin*, which means “mind of pure nature”. Pure nature of the mind. In terms of the truth, the human mind is called *tathagatagarbha*, but in terms of *human consciousness*, it is called *pure nature of the mind*. Different expression there: *tathagatagarbha*, and *the pure nature of mind*. 
+And then, in terms of human life, if you see the *tathāgatagarbha*, that teaching of *tathāgatagarbha*, that is called *jisho shojo-shin*, which means “mind of pure nature”. Pure nature of the mind. In terms of the truth, the human mind is called *tathāgatagarbha*, but in terms of *human consciousness*, it is called *pure nature of the mind*. Different expression there: *tathāgatagarbha*, and *the pure nature of mind*. 
 
-And that pure nature of the mind is always covered with delusions and questions, illusions; that’s why pure nature of the mind doesn’t appear in the human world. If you see *tathagatagarbha* in terms of human senses, always there is a pure nature of the mind, but it doesn’t appear, because it’s covered with delusions. 
+And that pure nature of the mind is always covered with delusions and questions, illusions; that’s why pure nature of the mind doesn’t appear in the human world. If you see *tathāgatagarbha* in terms of human senses, always there is a pure nature of the mind, but it doesn’t appear, because it’s covered with delusions. 
 
 So already there is the pure nature of the mind, and simultaneously the human world, mundane world, because [of] delusions by which the pure nature of the mind is covered. So they are not different; they are one. 
 
-So very naturally, *tathagatagarbha* or *pure nature of the mind* is the basic foundation of the existence. Simultaneously, without pure nature of the mind and the [super]mundane world, we cannot create the samsaric world. Without *tathagatagarbha*, you cannot create the samsaric world. 
+So very naturally, *tathāgatagarbha* or *pure nature of the mind* is the basic foundation of the existence. Simultaneously, without pure nature of the mind and the [super]mundane world, we cannot create the samsaric world. Without *tathāgatagarbha*, you cannot create the samsaric world. 
 
-[...] But *tathagatagarbha* is not the cause of human suffering. The cause of human suffering is *ignorance*. 
+[...] But *tathāgatagarbha* is not the cause of human suffering. The cause of human suffering is *ignorance*. 
 
 This is a kind of example. The example is just like, ignorance is coming from you, but something more than you. Because when you are born, when you are conscious of it, it’s already there. So it’s coming from the past. But generally speaking, the ignorance is coming from your cognition or not-cognitions; regardless of whether you cognize or you don’t cognize it. Anyway, ignorance is coming from the beginningless past. So you don’t know what it is. So it comes from outside, temporarily we can say. 
 
@@ -223,13 +223,13 @@ Delusion is small waves and big waves – that’s suffering, different kinds of
 
 The water itself is always there. When the wind comes, it creates waves. And it creates fantastic worlds, so-called motion. Storms, et cetera. 
 
-So the water itself is called *tathagatagarbha*. Because it has the possibility to create dynamic motion, and still motion, not-dynamic motion. Very serene, but sometimes very dynamic. 
+So the water itself is called *tathāgatagarbha*. Because it has the possibility to create dynamic motion, and still motion, not-dynamic motion. Very serene, but sometimes very dynamic. 
 
 So when the wind doesn’t blow, water becomes quiet. 
 
-So *tathagatagarbha* is always *tathagatagarbha*. But always there is a possibility to create the human world. And also, if you make it calm, it’s called buddha-nature. Stillness of the world. 
+So *tathāgatagarbha* is always *tathāgatagarbha*. But always there is a possibility to create the human world. And also, if you make it calm, it’s called buddha-nature. Stillness of the world. 
 
-So that’s why without *tathagatagarbha* you cannot create the samsaric world: because this tathagatagarbha is kind of pure nature but simultaneously not pure nature. 
+So that’s why without *tathāgatagarbha* you cannot create the samsaric world: because this tathāgatagarbha is kind of pure nature but simultaneously not pure nature. 
 
 So that’s why we learned that is *mind in terms of the truth*. Next time, anyway from now on, we study *the mind in terms of phenomena*. 
 
@@ -249,7 +249,7 @@ So mind in terms of the truth is completely truth, absolute truth. Absolute trut
 
 **Katagiri Roshi:** Mmm-hm.
 
-**Same person:** And the wind creates the waves on the pure *tathagatagarbha*, pure water. And then, they go on to say sometimes that that is the defilement of the waves, or the defilement of the pure water. The waves, the churning up, discoloring the water. 
+**Same person:** And the wind creates the waves on the pure *tathāgatagarbha*, pure water. And then, they go on to say sometimes that that is the defilement of the waves, or the defilement of the pure water. The waves, the churning up, discoloring the water. 
 
 **Katagiri Roshi:** Mm-hmm.
 
@@ -261,17 +261,17 @@ So mind in terms of the truth is completely truth, absolute truth. Absolute trut
 
 **Katagiri Roshi:** Mm-hmm. Sure. But for this, you cannot escape from the waves in order to know the pure nature of the water which is serene, so you have to research through and through *waves*. That is the next teaching, of the mind in terms of phenomena. So we have to understand mind, the human world – through and through. 
 
-So *buddha-nature*, *tathagatagarbha*, is in a sense a pure nature of the world, so-called *buddha*. Okay? On the other hand, buddha-mind is very pure and quiet, completely. But buddha is connected with human world, and then teach. So very naturally, buddha’s mind itself is quiet, but simultaneously buddha’s mind is defiled, because it [relates] with the human world. 
+So *buddha-nature*, *tathāgatagarbha*, is in a sense a pure nature of the world, so-called *buddha*. Okay? On the other hand, buddha-mind is very pure and quiet, completely. But buddha is connected with human world, and then teach. So very naturally, buddha’s mind itself is quiet, but simultaneously buddha’s mind is defiled, because it [relates] with the human world. 
 
-Why? Because it is *tathagatagarbha*. So *tathagatagarbha* is the buddha-nature which is completely, absolutely truth. But on the other hand, buddha is always connected with the human world. Or even though buddha doesn’t want [it], the human world is connected. The human world [is] initiatively connected with this buddha-nature. 
+Why? Because it is *tathāgatagarbha*. So *tathāgatagarbha* is the buddha-nature which is completely, absolutely truth. But on the other hand, buddha is always connected with the human world. Or even though buddha doesn’t want [it], the human world is connected. The human world [is] initiatively connected with this buddha-nature. 
 
 So inside of the buddha is quiet, and the human world comes up. And then temporarily we say buddha’s mind is *defiled*. But it’s not defiled. Always buddha’s mind is calm; just like the water. 
 
 And then babies come, and then buddha comes kind of creating the little water waves, that is called, “buddha appears as the babies”. But basically, buddha is buddha. That is the buddha-mind. 
 
-So very naturally, *tathagatagarbha* is in a sense absolute truth, beyond time, but on the other hand *tathagatagarbha* is connected with the human world, which is limited by time, the time process. Why? This pure nature of the buddha creates time, because this is characteristic of *tathagatagarbha*. *Gharba* means always there is a pure nature of the buddha, the human mind, simultaneously it’s connected with the human world. 
+So very naturally, *tathāgatagarbha* is in a sense absolute truth, beyond time, but on the other hand *tathāgatagarbha* is connected with the human world, which is limited by time, the time process. Why? This pure nature of the buddha creates time, because this is characteristic of *tathāgatagarbha*. *Gharba* means always there is a pure nature of the buddha, the human mind, simultaneously it’s connected with the human world. 
 
-So [...] in this case, *tathagatagarbha* is always both: beyond time, but simultaneously in time. That means you are already in the time process; your life is limited by the time process. On the other hand, you can create your time. So, both. You are completely [accepting the] time process. You should completely accept your life and all sentient beings *beyond* time; that means you are right in the middle of time process. So time is completely beyond your speculation. But on the other hand, you can create time. Because you are right in the middle of beyond time, but simultaneously you are connected with time. That is the human world. 
+So [...] in this case, *tathāgatagarbha* is always both: beyond time, but simultaneously in time. That means you are already in the time process; your life is limited by the time process. On the other hand, you can create your time. So, both. You are completely [accepting the] time process. You should completely accept your life and all sentient beings *beyond* time; that means you are right in the middle of time process. So time is completely beyond your speculation. But on the other hand, you can create time. Because you are right in the middle of beyond time, but simultaneously you are connected with time. That is the human world. 
 
 So in order to know [the] real, pure, absolute, you have to understand where you stand. That is the time process. So what is time? That’s why we have to know time. Because the human world in terms of time is related already with delusions. When your life is connected with delusion, that is called *time*, the time process. That is called creation of the human world in terms of the time process. 
 
@@ -337,11 +337,11 @@ So originally, according to primitive Buddhism, that is called Four Noble Truths
 
 **Same person:** Oh, okay. That’s fine. Thank you.
 
-**Katagiri Roshi:** But how does it connect? How does it happen, so-called connection? That means the time process. That means the teaching of *tathagatagarbha*. *Tathagatagarbha* is [not] that they are two: mundane world and the supermundane worlds are not two, but they are not one. That is the *tathagatagarbha*. But temporarily we say *tathagatagarbha* “is covered with clouds,” so-called delusion, *klesha*. Well, *temporarily* we can say so, teaching has to say so, because we have to make the definition of [what] *tathagatagarbha* is. So very naturally it’s explained like that – but actually it’s not two. They are not two, they are not one. 
+**Katagiri Roshi:** But how does it connect? How does it happen, so-called connection? That means the time process. That means the teaching of *tathāgatagarbha*. *Tathāgatagarbha* is [not] that they are two: mundane world and the supermundane worlds are not two, but they are not one. That is the *tathāgatagarbha*. But temporarily we say *tathāgatagarbha* “is covered with clouds,” so-called delusion, *klesha*. Well, *temporarily* we can say so, teaching has to say so, because we have to make the definition of [what] *tathāgatagarbha* is. So very naturally it’s explained like that – but actually it’s not two. They are not two, they are not one. 
 
 So that is always the one piece of paper with the two aspects. If you see one, always there is a one, so-called *awareness*. But *un-awareness* is hidden behind. But it’s not separate; it’s already with it. 
 
-And then in the next chapter, this book explains the *alayavijnana*. That is *alayavijnana*. Why we have to say that *tathagatagarbha*, that is psychologically, *tathagatagarbha* will be explained as *alayavijnana*. *Alayavijnana* is just one piece of paper with the two aspects, always. And then always it is working, showing the back, showing the front. When you see the front, the whole world [is] front. The back of the piece of paper is hidden, so you cannot see it – but it’s there, always. That is the situation of oneness, okay? *[He chuckles.]* So it’s not one, it’s not two, in terms of common sense. Because it’s working, just like a falling leaf. 
+And then in the next chapter, this book explains the *alayavijnana*. That is *alayavijnana*. Why we have to say that *tathāgatagarbha*, that is psychologically, *tathāgatagarbha* will be explained as *alayavijnana*. *Alayavijnana* is just one piece of paper with the two aspects, always. And then always it is working, showing the back, showing the front. When you see the front, the whole world [is] front. The back of the piece of paper is hidden, so you cannot see it – but it’s there, always. That is the situation of oneness, okay? *[He chuckles.]* So it’s not one, it’s not two, in terms of common sense. Because it’s working, just like a falling leaf. 
 
 **Someone:** Or like waves in water. 
 

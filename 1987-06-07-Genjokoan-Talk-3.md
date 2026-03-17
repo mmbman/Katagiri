@@ -75,7 +75,7 @@ What is our practice? Whoever you are, what you have to do is try to turn alayav
 
 So let’s go back to the beginning. Let’s divide *Genjōkōan* into eleven sections... 
 
-(*Transcriber’s Note:* From 18:20 to 21:05, Katagiri Roshi divides the text into sections, mostly lining up with the paragraphs in the Thomas Clearly translation but with some differences. I follow these section numbers in the [Notes on Genjokoan](genjokoan-notes).)
+(*Transcriber’s Note:* From 18:20 to 21:05, Katagiri Roshi divides the text into sections, mostly lining up with the paragraphs in the Thomas Cleary translation but with some differences. I follow these section numbers in the [Notes on Genjokoan](genjokoan-notes).)
 
 *(He has someone read the first section.)*
 

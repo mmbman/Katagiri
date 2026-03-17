@@ -269,7 +269,7 @@ That means, when you have to die, just go ahead and die, quietly. It seems cold,
 
 Wherever I may go, I meet this reflection. He is completely myself but simultaneously he is not me. But only the True Self is going along. Yet the reflection is what we discuss, what we stumble over all the time. So we say this is me, this is you; but it is not you, and it is not I.
 
-“Only if you understand this will you unite with the Tathagata.” “This” means Big Self, True Self. *Tathagata* comes from two words, *Tatha*, meaning “going,” and *agata*, meaning “coming;” so it means something that is going and coming. That is the truth, the vastness of existence. Before your thought or feelings, there is something there: the vastness of existence.
+“Only if you understand this will you unite with the Tathāgata.” “This” means Big Self, True Self. *Tathāgata* comes from two words, *Tatha*, meaning “going,” and *agata*, meaning “coming;” so it means something that is going and coming. That is the truth, the vastness of existence. Before your thought or feelings, there is something there: the vastness of existence.
 
 Is this vastness of existence then nothing? We call it “emptiness,” but there is something there. It is always coming, and it is always going. So when you see the reflection it is coming but in the next moment it is going. When the reflection is gone, you say “this is not me;” but immediately the reflection comes.
 
@@ -1531,9 +1531,9 @@ So from one point of view I am not the absolute when I practice gassho with my b
 
 ###### Commentary:
 
-This metaphor is drawn from the Nirvana Sutra. There the Tathagata is likened to a baby in that he does not rise, stand, come, go, or speak.
+This metaphor is drawn from the Nirvana Sutra. There the Tathāgata is likened to a baby in that he does not rise, stand, come, go, or speak.
 
-The first, he does not rise, means the Tathagata does not give rise to forms of the myriad dharmas. Tathagata does not see this microphone, or tape recorder, or table as forms. Humans see them as forms, and automatically we attach to what we see, even if only intellectually. But the Tathagata does not see the tape recorder as a form. He sees it as Buddha.
+The first, he does not rise, means the Tathāgata does not give rise to forms of the myriad dharmas. Tathāgata does not see this microphone, or tape recorder, or table as forms. Humans see them as forms, and automatically we attach to what we see, even if only intellectually. But the Tathāgata does not see the tape recorder as a form. He sees it as Buddha.
 
 Which it is.
 
@@ -1561,7 +1561,7 @@ But of course I didn’t, because I felt constantly lonely. So I would go back, 
 
 So that is not to rise: not to see the form of attractive people or your friends, but always to see the Buddha. It is a difficult practice, but we can do it, every day. It is very calm, quiet, strong, stable practice. You must try to do it.
 
-The second aspect, not to stand, means that the Tathagata does not attach to the forms of myriad dharmas. If you see everything as Buddha very naturally you do not attach to the form. That doesn’t mean you ignore the form; you can deal with it very effectively. You can deal with the vegetable not as vegetable, but as Buddha. You can deal with water not as the form of water but as the Buddha. So very naturally you do not attach to the form of the water. And you can deal with the water as best and simply as you can and just wash your face.
+The second aspect, not to stand, means that the Tathāgata does not attach to the forms of myriad dharmas. If you see everything as Buddha very naturally you do not attach to the form. That doesn’t mean you ignore the form; you can deal with it very effectively. You can deal with the vegetable not as vegetable, but as Buddha. You can deal with water not as the form of water but as the Buddha. So very naturally you do not attach to the form of the water. And you can deal with the water as best and simply as you can and just wash your face.
 
 The third aspect is not to come. This means that his actions are agitated, but are imperturbable as Mount Sumeru. However people criticize him he is acting with imperturbability. His mind, his body, his life is never agitated by failure, or benefit, or criticism.
 
@@ -1573,16 +1573,16 @@ For if one doesn’t ask, if one’s life is supported by other people, then the
 
 So a Buddha has no agitation or hesitation, even if there is no food or no money.
 
-When I was in college I had very little money. I was not agitated very much, but it was very inconvenient. Very inconvenient. So I thought I should have money, because when I wanted to go someplace to listen to a lecture, I would have to walk. And it would take a long time. And so I felt that it was very inconvenient not to have any money. But a Buddha, a Tathagata would never feel that way.
+When I was in college I had very little money. I was not agitated very much, but it was very inconvenient. Very inconvenient. So I thought I should have money, because when I wanted to go someplace to listen to a lecture, I would have to walk. And it would take a long time. And so I felt that it was very inconvenient not to have any money. But a Buddha, a Tathāgata would never feel that way.
 
-The fourth aspect, not to go, means that the Tathagata has already attained the great Nirvana. He sees this microphone not as a form, but as Buddha; he does not attach to the microphone, or people, or any form. He just lets them go by, constantly pass by. And he deals with all of them wholeheartedly. So very naturally there is no agitation. Very naturally his life is just going – as a Buddha. Whatever he does. When he does gassho, Buddha does gassho. When he sleeps, Buddha sleeps. When he walks, Buddha walks. So people are very naturally respectful. That is what is meant by the Tathagata has already attained to the great Nirvana. Nirvana means Buddha. Buddha was born, Buddha is living, Buddha dies. Not just a human body dies.
+The fourth aspect, not to go, means that the Tathāgata has already attained the great Nirvana. He sees this microphone not as a form, but as Buddha; he does not attach to the microphone, or people, or any form. He just lets them go by, constantly pass by. And he deals with all of them wholeheartedly. So very naturally there is no agitation. Very naturally his life is just going – as a Buddha. Whatever he does. When he does gassho, Buddha does gassho. When he sleeps, Buddha sleeps. When he walks, Buddha walks. So people are very naturally respectful. That is what is meant by the Tathāgata has already attained to the great Nirvana. Nirvana means Buddha. Buddha was born, Buddha is living, Buddha dies. Not just a human body dies.
 
-The fifth aspect, not to speak, is explained this way: the Tathagata speaks of myriad dharmas for all sentient beings but indeed he has nothing to be spoken.
+The fifth aspect, not to speak, is explained this way: the Tathāgata speaks of myriad dharmas for all sentient beings but indeed he has nothing to be spoken.
 
-“Nothing to be spoken” means that the Tathagata does not have a specific lesson that he teaches, so-called Buddha’s teaching.
+“Nothing to be spoken” means that the Tathāgata does not have a specific lesson that he teaches, so-called Buddha’s teaching.
 No, he doesn’t. He always gives the teaching according to circumstances, and the characteristics and personalities of the people he is teaching.
 
-For example, if he sees a stingy person he may ask him what is the purpose of keeping all that money. Maybe he will give a sermon which will persuade that stingy person to use his money for someone, or some purpose. On the other hand, if he sees a profligate, he may convince him to save his money. So he does not have a fixed lesson about money. He does not teach that money is good or money is bad. That is what it means for the Tathagata not to speak.
+For example, if he sees a stingy person he may ask him what is the purpose of keeping all that money. Maybe he will give a sermon which will persuade that stingy person to use his money for someone, or some purpose. On the other hand, if he sees a profligate, he may convince him to save his money. So he does not have a fixed lesson about money. He does not teach that money is good or money is bad. That is what it means for the Tathāgata not to speak.
 
 So here “Baba Wawa” means words, lots of words. Whether you use words or do not use words, real reality is beyond explanation or no explanation.
  
@@ -1726,7 +1726,7 @@ Mind Only. Really huge energies; fires.
 
 And then, “Like the diamond thunderbolt.” That is a reference to the Vajra of Vairocana. A vajra is a scepter, very hard and strong, which smashes everything. It is a symbol for stability, or the spiritual security that is possessed by the One Mind. The energy, which is inherent in the universal life.
 
-In Buddhism, and particularly in Zen Buddhism, there are three kinds of scepters. The first is the *doko*, or single scepter. It has no points; it is just round and has six or seven rings inside. It represents the Tathagata, or Truth. Then there is a scepter with three prongs, which represents the three sacred teachings according to the Shingon school of Buddhism. These are the teachings by means of body, mind, and mouth.
+In Buddhism, and particularly in Zen Buddhism, there are three kinds of scepters. The first is the *doko*, or single scepter. It has no points; it is just round and has six or seven rings inside. It represents the Tathāgata, or Truth. Then there is a scepter with three prongs, which represents the three sacred teachings according to the Shingon school of Buddhism. These are the teachings by means of body, mind, and mouth.
 
 With body, mind, and mouth you can teach the wonderful Buddhist teachings which we call the Sambhogakaya Buddha. This is something between the Dharmakaya Buddha, or absolute truth, and the Nirmanakaya Buddha, or human form. You cannot teach just in terms of the human form, and you cannot teach the absolute separate from human form. You must teach them as interconnected, interpenetrated with each other.
 
@@ -3063,7 +3063,7 @@ J.: Japanese; C.: Chinese Pinyin; W.: Wade-Giles
 
 “...Zazen Yojinki” For a translation of the *Zazen Yojinki*, see *Timeless Spring*, trans. by Thomas Cleary. (Weatherhill, Tokyo and New York, 1980), pg. 112-124.
 
-“...Keizan” Keizan Jokin (1268-1325), Founder of Soji Monastery, which ranks with Eihelfi as one of the two most important monasteries in the Soto tradition.
+“...Keizan” Keizan Jokin (1268-1325), Founder of Soji Monastery, which ranks with Eiheiji as one of the two most important monasteries in the Soto tradition.
 
 “...Put those things” For a translation and commentary on the Tenzo Kyokun, see *Refining Your Life*, by Dogen and Uchiyama (Weatherhill, Tokyo and New York, 1983).
 

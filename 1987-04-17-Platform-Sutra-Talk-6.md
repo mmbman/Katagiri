@@ -29,7 +29,7 @@ So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*
 
 And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary says, page 95:
 
-> The Tathagata has no dwelling place in the sense that all his thoughts and doings have no exterior or ulterior objects in view to which he desires to adapt himself, and therefore that he is like the sun that shines on everybody just and unjust, or like the lily in the field that blooms in its best even when there is nobody around to admire its supra-Solomonic array.
+> The Tathāgata has no dwelling place in the sense that all his thoughts and doings have no exterior or ulterior objects in view to which he desires to adapt himself, and therefore that he is like the sun that shines on everybody just and unjust, or like the lily in the field that blooms in its best even when there is nobody around to admire its supra-Solomonic array.
 >
 > (From *Studies in the Lankavatara Sutra* by Daisetz Teitaro Suzuki, page 95.)
 

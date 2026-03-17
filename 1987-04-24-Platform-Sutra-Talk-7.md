@@ -85,7 +85,7 @@ I think [...] let me read the next paragraph, [page] 113:
 
 I think apparently, you understand this paragraph [as saying], “If you don’t attain enlightenment, I think you should seek for the teacher, a great good knowing advisor.” At that time you evaluate that you are not buddha, so you have to seek for the teacher who guides you to attain enlightenment. But this is a dualistic understanding. I don’t mean it says [this], but apparently [it says something] like that. 
 
-I think *tathagatagarbha*, we say “buddha-nature,” [...] \[*garbha*] in Sanskrit [...] means kind of [seeds]. But seeds has two meanings. One is, seeds have their own capacity, great capacity to be buddha: to be flower, to be plant. On the other hand, the second is, seeds have a power to grow, the power to function, to be alive. Two meanings. (*Transcriber’s Note:* Katagiri Roshi says something like *gotra* instead of *garbha*. But *gotra* translates to something more like “lineage,” so I am guessing he simply meant *garbha*: literally, “womb.”)
+I think *tathāgatagarbha*, we say “buddha-nature,” [...] \[*garbha*] in Sanskrit [...] means kind of [seeds]. But seeds has two meanings. One is, seeds have their own capacity, great capacity to be buddha: to be flower, to be plant. On the other hand, the second is, seeds have a power to grow, the power to function, to be alive. Two meanings. (*Transcriber’s Note:* Katagiri Roshi says something like *gotra* instead of *garbha*. But *gotra* translates to something more like “lineage,” so I am guessing he simply meant *garbha*: literally, “womb.”)
 
 In terms of capacity to be a plant, according to Buddha’s teaching I think it is *emptiness*, completely *equal*. That capacity is buddha-nature, exactly. Including whatever you think: you, plants, trees, air, tables... even dung. Beautiful things, not beautiful things; all things have complete capacity to be a plant, to be a creature, to be a being, exactly, beyond your speculation. That is called buddha-nature, we say. According to Buddhist philosophy it is called *emptiness*, because it is pure and clean: no gap between you and tree, you and Buddha, ordinary people and buddhas – no gap between, exactly clean and pure. 
 
@@ -95,7 +95,7 @@ How? When you do gassho, you should put yourself in the gassho form. That is the
 
 Well, baby has the capacity to walk, and also the power to walk. So when the time comes... [or] even though the time doesn’t come, the capacity [or] the power to walk doesn’t disappear. So, mother has to help. He or she can walk. 
 
-That is [what] we call buddha-nature. Or in Buddhism [we call it] *tathagatagarbha*. 
+That is [what] we call buddha-nature. Or in Buddhism [we call it] *tathāgatagarbha*. 
 
 Or maybe in Buddhist teaching I think [also of] the concept *buddha* and *bodhisattva*. Buddha and bodhisattva both are different, but both are the same. When you [work], you are bodhisattva and also you are buddha, simultaneously. But if you explain it they are different, because they are functioning in a little bit different way if you explain it. Right in the middle of [the] process of your action, activities, both [are] working together. But if you *taste* it, that process of practice or actions, you can see the two things, buddha and bodhisattva. 
 

@@ -27,8 +27,7 @@ This teaching, this is the point which *Avatamsaka Sutra* also mentions, and the
 
 The second is *evolving mind*. Then when the mind starts to move, then it is the next subject comes up. That is evolving mind. So evolving mind, “for it emerges contingent upon the agitated mind as the subject that perceives incorrectly.” That is a subject. 
 
-Next, object comes up, that is *reproducing mind*. In this case, the object is not object materialistically you can see, but in this case it is called mind. Object is also called mind, that's why *reproducing mind*, “for it reproduces the entire world of objects as a bright mirror reproduces all material images. When confronted with the objects of the five senses, it reproduces them at once. It arises spontaneously at all times and exists
-forever reproducing the world of objects in front of the subject.” This is an object. So mind moves, and then next subject comes up, and then you can create object. 
+Next, object comes up, that is *reproducing mind*. In this case, the object is not object materialistically you can see, but in this case it is called mind. Object is also called mind, that's why *reproducing mind*, “for it reproduces the entire world of objects as a bright mirror reproduces all material images. When confronted with the objects of the five senses, it reproduces them at once. It arises spontaneously at all times and exists forever reproducing the world of objects in front of the subject.” This is an object. So mind moves, and then next subject comes up, and then you can create object. 
 
 The next is *analytic mind*, that is accepting the subject and object, and think of them. That is analytic mind: “for it differentiates what is defiled and what is undefiled.” 
 
@@ -87,7 +86,7 @@ So, the next sentence says,
 
 > Yet the mind cannot perceive the mind itself; the mind has no marks of its own that can be ascertained as a substantial entity as such. 
 
-How can I say [it]... the reproducing mind, how reproducing mind can be produced? That means, maybe I mentioned last time, first there is *one mind*, huge *one mind*, and that *one mind* starts to move, at that time that one mind is *alayavijnana*. But on the other hand, even though one-mind starts to move and call it *alayavijnana*, it doesn't mean that one-mind loses its own characteristic. So it constantly keeps its own nature. That is called *tathagatagarbha*. So one-mind is just like one piece of paper with two aspects. 
+How can I say [it]... the reproducing mind, how reproducing mind can be produced? That means, maybe I mentioned last time, first there is *one mind*, huge *one mind*, and that *one mind* starts to move, at that time that one mind is *alayavijnana*. But on the other hand, even though one-mind starts to move and call it *alayavijnana*, it doesn't mean that one-mind loses its own characteristic. So it constantly keeps its own nature. That is called *tathāgatagarbha*. So one-mind is just like one piece of paper with two aspects. 
 
 So from this point, one-mind is a cause in order to establish reproducing mind. And then, the mind, one-mind starts to move... by what? By many conditions. That is *ignorance*, we say ignorance. Mind moves. We don't know *why* mind moves. So [we call that] ignorance. So ignorance is movement of mind.
 
@@ -95,7 +94,7 @@ So temporarily, intellectually, we can put the name on it. When the mind moves, 
 
 So ignorance doesn't have its own root, no. We don't know from where it comes. So that's why mind, we don't know, in other words, we don't know why, how mind moves. But we can see mind moves because when your mind put in a certain situation, it moves beyond your control. That is called ignorance. 
 
-And then when the mind starts to move, completely that mind is getting away from *tathagatagarbha*. So it’s going far, far, far away, so going away constantly. That is called *samsara*, okay? Samsara world. That's why the cause, in order to establish the reproducing mind, there are cause, there are one-mind as a cause, and ignorance as a conditioned element, secondary cause. And then as a result, you can create samsara. That is samsaric world, human world. That is one systematical producing human mind. 
+And then when the mind starts to move, completely that mind is getting away from *tathāgatagarbha*. So it’s going far, far, far away, so going away constantly. That is called *samsara*, okay? Samsara world. That's why the cause, in order to establish the reproducing mind, there are cause, there are one-mind as a cause, and ignorance as a conditioned element, secondary cause. And then as a result, you can create samsara. That is samsaric world, human world. That is one systematical producing human mind. 
 
 On the other hand, in order to establish the *analytic mind* and also *continuous mind*, there are certain systems there. That system is ignorance which exists as cause. Because analytic consciousness and continuous consciousness are indication of movement of mind. So already there is an ignorance. So ignorance is cause. 
 

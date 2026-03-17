@@ -29,7 +29,7 @@ So that’s why he says *right entrance*.
 
 Today, I think half of Answer 3 is left, so I will read it. [...] Question 3 is:
 
-> It may be that zazen as the right entrance derives from the right transmission of the Tathagata’s wonderful means or from following in the path of the patriarchs – it is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes affecting *satori*. But to sit idly, doing nothing, how can that be of help in gaining *satori*? 
+> It may be that zazen as the right entrance derives from the right transmission of the Tathāgata’s wonderful means or from following in the path of the patriarchs – it is truly beyond the minds of ordinary men. Though it may be so, ordinary men believe reciting sutras and *nembutsu* should naturally be causes affecting *satori*. But to sit idly, doing nothing, how can that be of help in gaining *satori*? 
 >
 > (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
@@ -185,7 +185,7 @@ Individually, we believe we teach Buddha’s teaching. But I don’t know if it 
 
 Not only the scholar, but also the [practitioner] too. There are many practitioners, Buddhists, not only in the United States, but also in Japan, wherever you may go. 
 
-> Now, all students who follow the right transmission of buddhas and tathagatas are directed to revere the clear-sighted master who has attained the Way and is in accord with realization, and to maintain the buddha-dharma.
+> Now, all students who follow the right transmission of buddhas and tathāgatas are directed to revere the clear-sighted master who has attained the Way and is in accord with realization, and to maintain the buddha-dharma.
 
 The point is, to make every possible effort to maintain buddha-dharma, truth. In other words, profound sublimity: how sublime human life is – under *all* circumstances, not particular circumstances. 
 

@@ -26,7 +26,7 @@ Katagiri Roshi explains the deep meaning of the *Verse of Opening the Sutra*, wh
 > An unsurpassed, penetrating, and perfect dharma  
 > is rarely met with, even in a hundred thousand million *kalpas*.  
 > Having this to see and listen to, remember and accept,  
-> I vow to taste the truth of the Tathagata’s words.  
+> I vow to taste the truth of the Tathāgata’s words.  
 
 **Katagiri Roshi:** [This verse is found] in the [section of] “Daily Used Statements, Verses, and Dharani” which occurs in the [...] various *ekos* – final dedications – compiled by [Hu-yen] (or possibly Huayan?) in 1565 (CE) or so. (*Transcriber’s Note:* This paragraph is difficult to transcribe, and so far I have been unable to track down the reference. It should be noted that the *Verse of Opening the Sutra* is traced to origins in China around 500-700 CE; accounts vary.)
 
@@ -44,7 +44,7 @@ If you even slightly have your own prejudice, or your own desires, or your educa
 
 And, if you open the sutra, the huge network of [interweaving] time and space is exactly “the unsurpassed, penetrating, and perfect dharma.” 
 
-#### 06:06
+#### 6:06
 
 *Dharma* means that which is constantly supporting [or] upholding all beings, completely beyond human speculation. 
  
@@ -108,7 +108,7 @@ Now we can have the opportunity to listen to, and to accept, and to maintain, to
 
 And then finally we say, 
 
-> I vow to taste the truth of the Tathagata’s words.  
+> I vow to taste the truth of the Tathāgata’s words.  
 
 This is firm resolve, [...] arousing one’s vow, saying, “I am resolved to do so, to listen to Buddha’s teaching, to try to understand the true meaning of Buddha’s teaching.” Forever. Forever we try to move in the deep course of practicing Buddha’s teaching. 
 
@@ -142,7 +142,7 @@ And also, the *Saddharma Puṇḍarīka Sutra* says:
 
 Here it uses a different term, “profound and mysterious *law*,” that is “profound, perfect, and penetrating *dharma*.”
 
-We chant the first and second and third lines, and finally we say, “I vow to taste the truth of the Tathagata’s words,” because this vow [is] coming from the total expression of joy – the expression of your gratitude for how lucky you are, how lucky we [are] as human beings [to] exist, sharing our lives with all sentient beings. And then naturally there is a vow coming up: “I vow to taste the truth of the Tathagata’s words” – Buddha’s teaching. 
+We chant the first and second and third lines, and finally we say, “I vow to taste the truth of the Tathāgata’s words,” because this vow [is] coming from the total expression of joy – the expression of your gratitude for how lucky you are, how lucky we [are] as human beings [to] exist, sharing our lives with all sentient beings. And then naturally there is a vow coming up: “I vow to taste the truth of the Tathāgata’s words” – Buddha’s teaching. 
 
 Buddha’s teaching is really vast and magnificent, so we have to constantly study and listen to it. Even though we don’t understand the meaning of the Buddha’s teaching exactly, [still] we shouldn’t stop, we shouldn’t quit. [We should] try to move in the deep course of listening and practicing Buddha’s teaching.
 

@@ -74,7 +74,7 @@ So Dōgen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism i
 
 So by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always, because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
 
-But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajñāpāramitā* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha from the beginning to end. That is [the] main point. 
+But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajñāpāramitā* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha, from the beginning to end. That is [the] main point. 
 
 #### 11:00
 
@@ -235,14 +235,14 @@ So next, the verse is:
 
 So he couldn’t sleep because he was very concerned about his poem written on the wall. 
 
-His poem is pretty well-known by everyone, as one of the Zen stories:
+[Shen Hsiu’s] poem is pretty well-known by everyone as one of the Zen stories:
 
 >> The body is a Bodhi tree,  
 >> The mind like a bright mirror stand.  
 >> Time and again brush it clean,  
 >> And let no dust alight.  
 
-And later Hui Neng also wrote his poem. [...] His poem is: 
+And also later Hui Neng wrote his poem. [...] His poem is: 
 
 >> Originally Bodhi has no tree,  
 >> The bright mirror has no stand.  
@@ -251,15 +251,17 @@ And later Hui Neng also wrote his poem. [...] His poem is:
 
 Sometimes people deal with the two poems separately, and evaluate which is right, which is wrong. But I don’t think [that] is the right understanding. Both poems work together in our practice. I think you cannot separate them.
 
-So, according to Shen Hsiu, I think he stands always in the dualistic world, looking at himself and [trying] to reach the buddha-nature. So from this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature. So we have to realize, we have to see into our own nature. 
+So, according to Shen Hsiu, I think he stands always in the dualistic world, looking at himself and [trying] to reach the buddha-nature. From this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. 
 
-So “the body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana; so, we are buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty.” That’s why we have to always brush it clean: “And let no dust alight.” This is a point of our practice. So, constantly practice. 
+So “the body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana. So, we are Buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty.” That’s why we have to always brush it clean: “and let no dust alight.” So, constantly practice. 
 
-This is one aspect of the practice: seeking for the truth, constantly. “From the beginning to end”: even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
+This is one aspect of the practice: seeking for the truth, constantly, from the beginning to end. Even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
 
-And on the other hand, the other aspect of practice is to descend to the human world, to share your life with all sentient beings. Because there is no particular [thing]. [This is the spirit of Hui Neng’s poem.]
+And on the other hand, the other aspect of practice is to descend to the human world to share your life with all sentient beings. Because there is no particular [thing]. [This is the spirit of Hui Neng’s poem.]
 
-“Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature, so there is no particular thing to discuss [or] to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
+“Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature, so there is no particular thing to discuss [or] to forget. So constantly we have to stand up there. And then we can deal with the human world. 
+
+“Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
 
 So [we need] both. Both work together in our practice. 
 
@@ -273,9 +275,7 @@ Okay. *Hai.* Do you have questions?
 
 (*Transcriber’s Note:* It’s not clear what introduction is referred to above, but there is a reference to Echū, also known as National Master Daishō, in *Shōbōgenzō* *Soku-shin-ze-butsu* – “Mind Here and Now Is Buddha” – where ostensibly he discusses *The Platform Sutra*.)
 
-That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. 
-
-We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
+That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
 
 So that’s why Dōgen Zenji criticizes [it]... [Although] criticism is [not the right word]. Dōgen Zenji tries to let us know what the *real* teaching of the Sixth Patriarch is, instead of putting it down. 
 
@@ -341,15 +341,15 @@ So impermanence *is* buddha-nature; Dōgen Zenji [says this]. Because *impermane
 
 #### 1:05:55
 
-**Question:** Hojo-san, if in the two poems, one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them, you know? *[He chuckles.]* 
+**Question:** Hojo-san, if in the two poems one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them, you know? *[He chuckles.]* 
 
 **Katagiri Roshi:** Because, as Dōgen Zenji mentions, “no buddha-nature” is *pretty close* to pointing out what the truth is. 
 
-It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know Kassan and Jōzan in the chapter “Life and Death” (“*Shoji*” in *Shōbōgenzō*)? Dōgen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then they went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe next day, please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
+It’s not evaluating both of them, which is right, which is wrong. On the other hand, do you know [the story with] Kassan and Jōzan in the chapter “Life and Death” (*Shoji* in *Shōbōgenzō*)? Dōgen Zenji quotes two sentences: “If there is a buddha, [there is no life and death]. If there is no buddha, [we are not confused by] life and death.” Something like that; I don’t remember exactly. [...] And then [the two monks] went to see the teacher, to evaluate which is right, which is wrong – which is *close* to the truth. Kassan [asks] the teacher, “Which of us is pretty close to the truth?” And [the teacher] says, “Maybe [tomorrow]; please come again.” He didn’t answer. The next day Kassan [comes] again to see the teacher and ask the same question. And then [the teacher] says, “One who doesn’t ask is closer to the truth.” One who tried to know which is close is not close. 
 
 [That is what] “no buddha-nature” [means]. “No buddha-nature” is *pretty* close. *[He chuckles slightly.]* Pretty close to the buddha-nature. [...]
 
-So Hui Neng says, “Originally Bodhi has no tree, the bright mirror has no stand.” So [it] always [talks] about what the foundation is. And then: “Originally there is not a single thing: where can dust alight?” So constantly his basic foundation is found in *no buddha-nature*, there. 
+So Hui Neng says, “Originally Bodhi has no tree, the bright mirror has no stand.” [It] always [talks] about what the foundation is. And then: “Originally there is not a single thing: where can dust alight?” So constantly his basic foundation is found in *no buddha-nature*, there. 
 
 I think you can read the book  [*The Zen Doctrine of No Mind*] written by D.T. Suzuki. [He talks] about [this] story, in terms of this poem.
 

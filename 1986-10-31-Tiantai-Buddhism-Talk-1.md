@@ -65,7 +65,7 @@ And also third is the *unity of all-knowing and the way-seed wisdom*. Unity. So 
 
 The second one is the wisdom of [a] bodhisattva. A bodhisattva can handle the phenomenal existence properly and deeply, nurturing and cultivating the seed of the way, which guides all sentient beings to the truth of emptiness. That is bodhisattva wisdom, so-called the way-seed wisdom. 
 
-And the third one is *unity of all-knowing and the way-seed wisdom*, which is [...] the wisdom of the Tathagata, which guides the people to [...] neither depend on all-knowing nor depend on the way-seed wisdom. And nevertheless, people's life is based on all-knowing wisdom and also the way-seed wisdom. But they don't depend on, they don't attach to either one of them. Their life [is] completely alive, [free]. 
+And the third one is *unity of all-knowing and the way-seed wisdom*, which is [...] the wisdom of the Tathāgata, which guides the people to [...] neither depend on all-knowing nor depend on the way-seed wisdom. And nevertheless, people's life is based on all-knowing wisdom and also the way-seed wisdom. But they don't depend on, they don't attach to either one of them. Their life [is] completely alive, [free]. 
 
 That is the three wisdoms. Those observations of the world through the three wisdoms can work in *one mind*. *One mind* means, if you say *emptiness*, the rest of the two, *middle way* and also *provisional existence* can be included. If you see human life in terms of the *middle way*, I think *emptiness* and also *provisional existence* can be included. So, all one. 
 
@@ -89,7 +89,7 @@ And also Zhiyi went to [Yoshu] in [Chansu] province in China in 589 and gave the
 
 In 592, Zhiyi came back to his native town [Keishu] and built Gyokusenji Temple, where he taught his philosophical and practical aspect of the teaching according to *Hokke Genki*, “The Profound Meaning of the Lotus Sutra”, Saddharma-Pundarika Sutra, which emphasizes the philosophical aspect of the Buddhist teaching. So he taught the philosophical teaching in terms of the *Hokke Genki*, “The Profound Meaning of the Lotus Sutra,” in 593, and also *Maka-shikan*, *Maha Shamatha and Vipassana* (“Great Concentration and Insight”), which emphasizes the practical aspect of Buddha’s teaching, in 594. And in 595, he went to [Yoshu] by invitation of the king, and taught the *Yuima-kyo*, *Vimalakirti Sutra*, and made the book of *Vimalakirti-Genki*, “The Profound Meaning of Vimalakirti Sutra”. 
 
-He went back to the Mount Tendai and passed away. In the history, I think he listened to his disciples chant of *Saddharma-Pundarika Sutra* and *The Sutra of Innumerable Life-long of Tathagata* and was mindful of welcoming Amitabha and Avalokiteshvara at the end of his life. He was 60 years old. 
+He went back to the Mount Tendai and passed away. In the history, I think he listened to his disciples chant of *Saddharma-Pundarika Sutra* and *The Sutra of Innumerable Life-long of Tathāgata* and was mindful of welcoming Amitabha and Avalokiteshvara at the end of his life. He was 60 years old. 
 
 After Zhiyi's death, what happened? He died in 597. So in 601, Emperor Yo built Kokuseki Temple at Mount Tendai, regarded as the headquarters of Tendai school order. 
 

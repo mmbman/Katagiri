@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 25: The Hermit of Lotus Flower Peak Holds Up His 
 
 ### Summary
 
-What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathagata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
+What happens when we unexpectedly come face-to-face with real life, such as being paralyzed, or having cancer? Katagiri Roshi discusses “the big trap,” “one-finger Zen,” Jean-Jacques Rousseau and Sun-Moon-Light Tathāgata, Adam and Eve, and how to educate children. Also: “Please, sit down.”
 
 ### Transcript
 

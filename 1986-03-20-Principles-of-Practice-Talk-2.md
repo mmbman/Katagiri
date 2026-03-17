@@ -143,7 +143,7 @@ So the vibration of the mind is also vibrating in many ways. Some vibration of t
 
 And also, among the fine vibration of the mind, still there are the coarser of the fine vibration of the mind, and also the finer of the fine vibration of the mind. You create some problem: a *big* question, created by the finer of the fine vibration of the mind. This is completely... we don’t know what it is. 
 
-For instance... this is according to the *Awakening of Faith*, I [talked about this] last time. In order to reach the *tathagata* stage or abode, you have to be free from the finer of the fine vibration of the mind. There is a defilement created by this. 
+For instance... this is according to the *Awakening of Faith*, I [talked about this] last time. In order to reach the *tathāgata* stage or abode, you have to be free from the finer of the fine vibration of the mind. There is a defilement created by this. 
 
 That means, yesterday I said: when you wake up, what you have recognized is after the first moment of awakening, waking up. You don’t know the very beginning of the first thought, first waking up. You don’t know what it is. Because it is [the] very finer of the fine vibration of the mind. 
 

@@ -65,7 +65,7 @@ Why? What is the reason why we have to do this? Dōgen Zenji says:
 
 >  We take refuge in the Law (the Dharma) because it is good medicine. 
 
-*Dharma* is [the] teaching; [the] teaching is completely beyond human evaluation, beyond the moral sense or ethical sense. The dharma is something coming from the truth, so it’s really beneficial to everyone, all sentient beings – just like a rain nurtures all kind of grasses, trees, pebbles, human beings, and the air, everything. That is dharma; that’s why dharma is good medicine. 
+*Dharma* is teaching; [the] teaching is completely beyond human evaluation, beyond the moral sense or ethical sense. The dharma is something coming from the truth, so it’s really beneficial to everyone, all sentient beings – just like a rain nurtures all kind of grasses, trees, pebbles, human beings, and the air, everything. That is dharma; that’s why dharma is good medicine. 
 
 > We take refuge in the Buddhist community because it is composed of excellent friends.
 

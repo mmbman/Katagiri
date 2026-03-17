@@ -43,7 +43,7 @@ So, “If we discuss the gradual, it is going against the ordinary to merge with
 
 And that means, next it says, “seven ways up and down and eight ways across.” We don’t care about the numbers; seven ways up and down means countless number, many times. Even [in] a moment, how often do you go up and down, you know? Can you imagine? *[He chuckles.]* If you do zazen you can see [this]. In a moment, your mind is really going up and down. And next, your mind is really crossing rivers... and not crossing small rivers, you cross the universe. *[He laughs.]* You can go to heaven. You can go to Japan. Immediately, you can go. So in a moment you are really going up and down, across the universe, going to heaven and hell, et cetera. 
 
-Because, you are discussing [the] gradual. Gradual progress: because I am not a good person, I am not a *real* Buddhist, I am not mature exactly, that’s why I’m afraid just to be present with confidence, that’s why I want to progress. “I want to progress” means you are not mature, you are not perfect now, that’s why very naturally you are discussing about *you*, right in the middle of the bustling marketplace. 
+Because you are discussing [the] gradual. Gradual progress: because I am not a good person, I am not a *real* Buddhist, I am not mature exactly, that’s why I’m afraid just to be present with confidence, that’s why I want to progress. “I want to progress” means you are not mature, you are not perfect now, that’s why very naturally you are discussing about *you*, right in the middle of the bustling marketplace. 
 
 That means [it’s] pretty hard. If you always take care of your life in that way, it’s really painful. 
 

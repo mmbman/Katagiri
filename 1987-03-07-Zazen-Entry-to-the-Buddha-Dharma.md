@@ -41,11 +41,11 @@ And the second question is,
 
 The answer is,
 
-> [Answer 2:] The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted [it] from one to another as the right entrance. That is not all: patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore, I now point it out to men and devas as the right entrance. 
+> [Answer 2:] The great teacher Shakyamuni Buddha beyond doubt rightly transmitted zazen as the wonderful means for attaining the Way. Also, the tathāgatas of the three periods all attain the way through zazen. That is the reason they have transmitted [it] from one to another as the right entrance. That is not all: patriarchs from the western skies of India to the eastern earth of China all have gained the way through zazen. Therefore, I now point it out to men and devas as the right entrance. 
 
 So this answer is very interesting. 
 
-Question number two is, “Why is zazen alone the right entrance?” The answer is, [...] beyond doubt, Shakyamuni Buddha and ancestors, many buddhas, transmitted the wonderful means for attaining the way. Also, the tathagatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt, Buddha Shakyamuni and many buddhas and ancestors just accept the practice of zazen, and learn what the Buddha’s teaching is, what the universe is, what the peaceful life is. That’s why it is called *right entrance* – right entrance to the buddha-dharma, to the universe. Right entrance to get into the peaceful world. 
+Question number two is, “Why is zazen alone the right entrance?” The answer is, [...] beyond doubt, Shakyamuni Buddha and ancestors, many buddhas, transmitted the wonderful means for attaining the way. Also, the tathāgatas of the three periods all attain the way through zazen. That is the reason they have transmitted from one to another as the right entrance. That means beyond doubt, Buddha Shakyamuni and many buddhas and ancestors just accept the practice of zazen, and learn what the Buddha’s teaching is, what the universe is, what the peaceful life is. That’s why it is called *right entrance* – right entrance to the buddha-dharma, to the universe. Right entrance to get into the peaceful world. 
 
 In this case, I think the most important point is, in Zen Buddhism particularly, Dōgen Zenji [talks] about right entrance. *Right* means that you have to learn something straightforward[ly], without artifice or design, without intention or purposes. 
 

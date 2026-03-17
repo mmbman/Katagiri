@@ -32,7 +32,7 @@ negawakuwa nyorai no shin-jitsu-gi o geshi tatematsuran
 An unsurpassed, penetrating and perfect dharma  
 Is rarely met with even in a hundred thousand million kalpas.  
 Having it to see and listen to, remember and accept,  
-I vow to taste the truth of the Tathagata’s words.  
+I vow to taste the truth of the Tathāgata’s words.  
 
 **Katagiri Roshi:** Next week, I’m going to see a person who is going to die in prison. He’s one of the friends who practiced here for a couple of years. He is going to die from throat cancer. 
 

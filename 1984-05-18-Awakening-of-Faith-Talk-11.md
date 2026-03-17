@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 11: Alayavijnana & Tathagatagarbha"
+title: "The Awakening of Faith – Talk 11: Alayavijnana & Tathāgatagarbha"
 ---
 ## May 18, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -21,7 +21,7 @@ title: "The Awakening of Faith – Talk 11: Alayavijnana & Tathagatagarbha"
 >
 > 1. The Storehouse Consciousness
 >
-> The Mind as phenomena (samsara) is grounded on the Tathagata-garbha. What is called the
+> The Mind as phenomena (samsara) is grounded on the Tathāgata-garbha. What is called the
 Storehouse Consciousness is that in which “neither birth nor death (nirvana)” diffuses
 harmoniously with “birth and death (samsara)”, and yet in which both are neither identical nor
 different. This Consciousness has two aspects which embrace all states of existence and create
@@ -30,7 +30,7 @@ nonenlightenment.
 >
 > (From *The Awakening of Faith*, translated by Yoshito S. Hakeda, 1967.)
 
-There are [a few] terms: *tathagatagarbha*, *storehouse consciousness*. I have to make the meaning of those terms clear. 
+There are [a few] terms: *tathāgatagarbha*, *storehouse consciousness*. I have to make the meaning of those terms clear. 
 
 *The Discourse on the Awakening of Mahayana Faith* begins with investigation of the *truth* first. This is a pretty peculiar characteristic of this discourse, which is different from other *shastra* [or] discourses on *vijnanavada*, “mere consciousness”. *The Discourse on Mere Consciousness*, *Vijnanavada*, begins with *alayavijnana*. But this *Discourse on the Awakening of Mahayana Faith* begins with the truth. 
 
@@ -44,7 +44,7 @@ One is *the truth*. In this discourse, *truth* is called *the mind in terms of t
 
 The second, I don’t know how to translate it... this is *the ultimate nature of mind is pure and clean*. This is the second term: *the ultimate nature of mind is pure*. [...] Particularly the main teaching of *Prajñāpāramitā* always emphasizes this point. The ultimate nature of our human mind is pure and clean. 
 
-Third, *tathagatagarbha*. 
+Third, *tathāgatagarbha*. 
 
 And fourth, *alayavijnana*: *storehouse consciousness*. Look at page 37, in the note there is the Sanskrit there. The storehouse consciousness [is] *alayavijnana*. This term appears in the *Discourse on Merely Consciousness* and also this book too.
 
@@ -66,41 +66,41 @@ So very naturally, later a certain Buddhist teaching develops in relation with *
 
 So in this book, principle and wisdom are not different, but merging of the principle and wisdom. Because the principle is operative in the function of wisdom, and wisdom is the manifestation of principle. So it is understood as the wisdom fit to the principle of being. 
 
-Later there is another term, *buddha wisdom*. [And] *dharma body*, *dharmakaya* of the *Tathagata*, and the *Tathagata dharmakaya*. These kind of terms develop very naturally. 
+Later there is another term, *buddha wisdom*. [And] *dharma body*, *dharmakaya* of the *Tathāgata*, and the *Tathāgata dharmakaya*. These kind of terms develop very naturally. 
 
 Anyway, if you investigate the human mind, it’s very difficult to see the wisdom in the human mind. It’s very difficult to find the wisdom of the human mind because, in terms of everyday life, the human mind is very cloudy. So, even though Buddhism emphasizes that the center of the human mind is based on wisdom, it’s very difficult to believe [it], much less [that] wisdom is working with the principle of being, or the principle of being contains [within] the function of wisdom. It’s very difficult to believe in such a mind. So very naturally we have to research human mind from a little bit broad aspect, so-called *the truth*. We get into the human mind from the truth. 
 
 So we start to investigate the truth. In other words, the panoramic picture of the universe: we start to investigate this, instead of small human mind. That is a little easier. That’s why this book begins with the investigation of the truth. So very naturally the term *the truth* comes up first in this book. And next, the second term, *the ultimate nature of the mind is pure and clean*, because *the truth* should be understood [as being] in deep and close connection with the human mind. So when the truth manifests itself in the realm of human mind, it is called *ultimate nature of the mind is pure and clean*. 
 
-Next, *tathagatagarbha*. *Tathagata*-*garbha*: *garbha* means the mother’s womb, and also embryo. In this book it says – look at page 13 in the introduction –  it says *Tathagata-garbha* or “matrix of Tathagata”. And it says:
+Next, *tathāgatagarbha*. *Tathāgata*-*garbha*: *garbha* means the mother’s womb, and also embryo. In this book it says – look at page 13 in the introduction –  it says *Tathāgata-garbha* or “matrix of Tathāgata”. And it says:
 
 > The word garbha, meaning a matrix, germ, or embryo, symbolizes the receptacle of Tathāgata or the absolute.
 
 That is the meaning of *garbha*. 
 
-So the term *tathagatagarbha* is named in relation with human delusion. So it is that which “the ultimate nature of mind is pure and clean” *is* regarded as being covered with delusion. At that time, *the ultimate nature of the mind is pure and clean* is called *tathagatagarbha*. So, *the ultimate nature of mind is pure and clean* is already personalized, but it is still a little far, [there is] a little gap [from] human life, which is suffering from their life. So very naturally, we investigate the intrinsic pure nature of human mind, so-called *the ultimate nature of mind is pure and clean* in terms of [the] human life we are [confronted] with. 
+So the term *tathāgatagarbha* is named in relation with human delusion. So it is that which “the ultimate nature of mind is pure and clean” *is* regarded as being covered with delusion. At that time, *the ultimate nature of the mind is pure and clean* is called *tathāgatagarbha*. So, *the ultimate nature of mind is pure and clean* is already personalized, but it is still a little far, [there is] a little gap [from] human life, which is suffering from their life. So very naturally, we investigate the intrinsic pure nature of human mind, so-called *the ultimate nature of mind is pure and clean* in terms of [the] human life we are [confronted] with. 
 
-So at that time, it is very difficult to say mind is completely pure. It’s *very* difficult. Because mind is pure, but on the other hand mind is not pure! So very naturally you can see the other aspect, that is delusion or illusion. So very naturally, there is another term that comes up, that is *tathagatagarbha*. 
+So at that time, it is very difficult to say mind is completely pure. It’s *very* difficult. Because mind is pure, but on the other hand mind is not pure! So very naturally you can see the other aspect, that is delusion or illusion. So very naturally, there is another term that comes up, that is *tathāgatagarbha*. 
 
-So, the *tathagatagarbha* is the intrinsic pure nature of the human mind covered with illusion and delusion. At that time, the intrinsic pure nature of the mind is called *tathagatagarbha*. But it is not something like the sun covered with a cloud. It’s not something like that. 
+So, the *tathāgatagarbha* is the intrinsic pure nature of the human mind covered with illusion and delusion. At that time, the intrinsic pure nature of the mind is called *tathāgatagarbha*. But it is not something like the sun covered with a cloud. It’s not something like that. 
 
-But anyway, that’s why next *tathagatagarbha* comes up. And then in terms of *tathagatagarbha*, we may say that human being is based on the idea of an embryo which exists in the mother’s womb – who will be born, sooner or later. So that [way], it is really easy to believe this situation. So very naturally, the idea of *tathagatagarbha* developed. 
+But anyway, that’s why next *tathāgatagarbha* comes up. And then in terms of *tathāgatagarbha*, we may say that human being is based on the idea of an embryo which exists in the mother’s womb – who will be born, sooner or later. So that [way], it is really easy to believe this situation. So very naturally, the idea of *tathāgatagarbha* developed. 
 
-But still it’s very difficult to know how *tathagatagarbha* works in our daily life. It’s very difficult, only by the term *tathagatagarbha*. Emotionally, according to human feelings, we can feel that, and we can believe that, but logically it’s very difficult to know how this *tathagatagarbha* works, and also how we can be free from illusions in this peculiar situation of *tathagatagarbha*. So that’s why next another term comes up: that is *alayavijnana*. 
+But still it’s very difficult to know how *tathāgatagarbha* works in our daily life. It’s very difficult, only by the term *tathāgatagarbha*. Emotionally, according to human feelings, we can feel that, and we can believe that, but logically it’s very difficult to know how this *tathāgatagarbha* works, and also how we can be free from illusions in this peculiar situation of *tathāgatagarbha*. So that’s why next another term comes up: that is *alayavijnana*. 
 
-*Alayavijnana* gives us a certain hint how *tathagatagarbha* works in our life – a hint to let us know how it works, how we can be free from illusions, et cetera, or how we can be free from *tathagatagarbha*. *Tathagatagarbha* is still the samsaric world.
+*Alayavijnana* gives us a certain hint how *tathāgatagarbha* works in our life – a hint to let us know how it works, how we can be free from illusions, et cetera, or how we can be free from *tathāgatagarbha*. *Tathāgatagarbha* is still the samsaric world.
 
-So even though you say *tathagatagarbha* is the overall picture of human life, which has the buddha-nature and also human illusions together, [still] it is not the doctrine of dualism. So *alayavijnana* tries to explain not the doctrine of dualism. It is because that peculiar situation of *alayavijnana* is that the pure nature of human consciousness, which is called *unborn* or *imperishable*, is the whole picture of human consciousness. On the other hand, *illusion* is also the whole picture of human consciousness. Illusion is not something by which something is covered. So illusion is the total picture of human life. On the other hand, the pure nature of consciousness is also the total picture of human life. Because *tathagatagarbha* is, just like I mention often, one piece of paper with two aspects, back and front. And also the one piece of paper is constantly operating, working, without stopping even for a moment. That is the panoramic picture of universe: the universe is one, the truth is one. This one universe has the two aspects, back and front – good and bad, right and wrong, et cetera, the dualistic world, but both are working as one. 
+So even though you say *tathāgatagarbha* is the overall picture of human life, which has the buddha-nature and also human illusions together, [still] it is not the doctrine of dualism. So *alayavijnana* tries to explain not the doctrine of dualism. It is because that peculiar situation of *alayavijnana* is that the pure nature of human consciousness, which is called *unborn* or *imperishable*, is the whole picture of human consciousness. On the other hand, *illusion* is also the whole picture of human consciousness. Illusion is not something by which something is covered. So illusion is the total picture of human life. On the other hand, the pure nature of consciousness is also the total picture of human life. Because *tathāgatagarbha* is, just like I mention often, one piece of paper with two aspects, back and front. And also the one piece of paper is constantly operating, working, without stopping even for a moment. That is the panoramic picture of universe: the universe is one, the truth is one. This one universe has the two aspects, back and front – good and bad, right and wrong, et cetera, the dualistic world, but both are working as one. 
 
 So, in the process of total functioning, total working, at that time you can see the front in a moment. In that time, front occupies the whole piece of paper. So the front *is* one piece of paper. The front is not *part* of a piece of paper in relation to the back: that is already our consciousness, discriminating mind, thinking that way. But in the process of total working, there is nothing to stop it. So when you see the front, that’s it. There is no chance to think of the back. So you have to fit into the front; otherwise, you miss the train. Because time is moving, and also the working in the human world is in the stream of time. So if you analyze, you miss the train. So if you see the front, that is the train you have to get on. Anyway, get on – right on. So the front is not the certain particular situation in relation to back. The front is total life. 
 
-That is the idea of *tathagatagarbha*. 
+That is the idea of *tathāgatagarbha*. 
 
-So *alayavijnana* tries to explain that kind of the *tathagatagarbha* we can believe in. A little bit logically, we try to explain. If you say *alayavijnana*, regarded as *tathagatagarbha*, this term uses *vijñāna*; *vijñāna* is human consciousness. So very naturally, *alayavijnana* is the term which we try to pull closely the *tathagatagarbha* into our life, subjectively; or more [awakening]. So, *alayavijnana* is a term [which is] pretty subjective and more awakening, because there is a *vijñāna*. So *alayavijnana*. 
+So *alayavijnana* tries to explain that kind of the *tathāgatagarbha* we can believe in. A little bit logically, we try to explain. If you say *alayavijnana*, regarded as *tathāgatagarbha*, this term uses *vijñāna*; *vijñāna* is human consciousness. So very naturally, *alayavijnana* is the term which we try to pull closely the *tathāgatagarbha* into our life, subjectively; or more [awakening]. So, *alayavijnana* is a term [which is] pretty subjective and more awakening, because there is a *vijñāna*. So *alayavijnana*. 
 
 So very naturally, our consciousness, so-called *vijñāna*, regarded as *ālaya*, which is the foundation of human life, [or the] pre-foundation of human life. That foundation of human life is that which the truth is covered with delusion. That is the foundation of human consciousness. 
 
-So very naturally, in terms of human consciousness, we can see *tathagatagarbha* in two ways. Our consciousness is originally enlightened, because the truth, *nirvana*, or *tathagata*. So originally, our human consciousness is [pretty enlightened]. On the other hand, human consciousness is un-enlightened, because the enlightened aspect of human consciousness is covered with delusions. But through your everyday life you can understand this. 
+So very naturally, in terms of human consciousness, we can see *tathāgatagarbha* in two ways. Our consciousness is originally enlightened, because the truth, *nirvana*, or *tathāgata*. So originally, our human consciousness is [pretty enlightened]. On the other hand, human consciousness is un-enlightened, because the enlightened aspect of human consciousness is covered with delusions. But through your everyday life you can understand this. 
 
 So through your everyday life, you cannot say human mind is very kind. You cannot say so. Or on the other hand, human consciousness is, human mind is pretty deluded, or pretty brutal and violent – you cannot say so either. But on the other hand, you cannot say either that human consciousness is brutal, cowardly, or unkind, you cannot say so. Pretty kind; nonviolent. So we can see them both. 
 
@@ -132,9 +132,9 @@ Today, we have understood the characteristic of *alayavijnana*, which has two ch
 
 So, if you see enlightenment very deeply, you [are] an enlightened person. And on the other hand, if you see deeply the unenlightened aspect of human life, it is also the implication of bodhi-mind; the implication of stepping inside... to nirvana, or the enlightened world. That’s why bodhi-mind is important for us, awakening is important for us. 
 
-That’s all I have to say today. So, *alayavijnana* is the term [or] expression of *tathagatagarbha* which is more subjective and more awakening; closely related with actual human life, how *tathagatagarbha* works. At that time, we have to research what *tathagatagarbha* is. 
+That’s all I have to say today. So, *alayavijnana* is the term [or] expression of *tathāgatagarbha* which is more subjective and more awakening; closely related with actual human life, how *tathāgatagarbha* works. At that time, we have to research what *tathāgatagarbha* is. 
 
-At that time, tathagatagarbha is ... 
+At that time, tathāgatagarbha is ... 
 
 *[Tape break.]*
 
@@ -142,13 +142,13 @@ At that time, tathagatagarbha is ...
 
 And then you should read these sections:
 
-> The Mind as phenomena (samsara) is grounded on the Tathagata-garbha.
+> The Mind as phenomena (samsara) is grounded on the Tathāgata-garbha.
 
 Then very naturally you understand that one. Okay? The mind as phenomena, samsara, the samsaric world – if the mind as samsaric world is [pulled] to individual personal life – at that time, what you can see? What you can see in your mind? 
 
 Can you see only the pure, something pure? Or can you see something stained? Or can you see both? You are a bad boy? Yes... but no. You are a good boy? You can say yes, or no. 
 
-So very naturally, the mind as phenomena, if you see the mind in terms of phenomena, samsaric world, it is kind of a combination of good boy and bad boy. [It’s not really] a combination, but I use the [word] combination now. But this is called *tathagatagarbha*. So, the mind as phenomena is grounded on the *tathagatagarbha*. So, this mind is [...] the fundamental aspect of human life. 
+So very naturally, the mind as phenomena, if you see the mind in terms of phenomena, samsaric world, it is kind of a combination of good boy and bad boy. [It’s not really] a combination, but I use the [word] combination now. But this is called *tathāgatagarbha*. So, the mind as phenomena is grounded on the *tathāgatagarbha*. So, this mind is [...] the fundamental aspect of human life. 
 
 Next:
 
@@ -244,7 +244,7 @@ The truth “diffuses harmoniously with samsaric world”. Do you understand tha
 
 **Katagiri Roshi:** Yes, merging the difference and the unity, that is exactly same as this. But in the *Sandokai* it’s emphasizing strongly just the fusing aspect, the aspect of unity. Okay? But this discourse always mentions the panoramic picture of fusing and diffuse. Fuse and diffuse, fuse and diffuse – like this. Come together, separate, comes together, separate. It’s one, but it’s not one, two. Something like that. Delusion seems to be separate from the pure nature, but it’s not separate, it’s contained within the pure nature. Just like [someone] said, you know: the gas is expanded all over, but it’s not disappeared, it’s still there. 
 
-Alright. That is so-called *tathagatagarbha*, the meaning of *tathagatagarbha*. And the storehouse consciousness, which is the foundation of all mind, of all life. That is called *storehouse consciousness*, *alayavijnana*.
+Alright. That is so-called *tathāgatagarbha*, the meaning of *tathāgatagarbha*. And the storehouse consciousness, which is the foundation of all mind, of all life. That is called *storehouse consciousness*, *alayavijnana*.
 
 So it’s not the dualistic. Is that alright? Do you understand? It is not the doctrine of the dualistic. Dualistic is clearly to separate something. A never is B, you know; A never accepts B. A is not B, constantly. Alright?
 
@@ -266,7 +266,7 @@ So that is the relationship between the water and milk. But if you start to inve
 
 **Katagiri Roshi:** Right. That’s true. 
 
-But in this section next it says, “This consciousness has two aspects which embrace all states of existence and create all states of existence. They are, first, the aspect of enlightenment, and second, the aspect of non-enlightenment.” That’s why this is a little bit different from what you mentioned: if you’re *right on*, you don’t know what’s going on there. It doesn’t mean you don’t know. There is no space to poke your head into, so you just be there. But in this case, a little bit we are investigating how *tathagatagarbha* works. That’s why it’s a little bit intellectual here. That’s why it has the foundation of your life is two aspects working together, in the stream of process. In the stream of process we have to be right on constantly. But that is the practical aspect of your life. But on the other hand, we have to research, we want to know how it works. That’s why this book starts to analyze. 
+But in this section next it says, “This consciousness has two aspects which embrace all states of existence and create all states of existence. They are, first, the aspect of enlightenment, and second, the aspect of non-enlightenment.” That’s why this is a little bit different from what you mentioned: if you’re *right on*, you don’t know what’s going on there. It doesn’t mean you don’t know. There is no space to poke your head into, so you just be there. But in this case, a little bit we are investigating how *tathāgatagarbha* works. That’s why it’s a little bit intellectual here. That’s why it has the foundation of your life is two aspects working together, in the stream of process. In the stream of process we have to be right on constantly. But that is the practical aspect of your life. But on the other hand, we have to research, we want to know how it works. That’s why this book starts to analyze. 
 
 Because human beings, we are always judging ourselves as “bad”. If you see yourself as bad, that’s it. But that is not the right understanding – because if you always judge yourself bad, then there is no chance to grow in the future. So very naturally we have to understand, what is the foundation of your life? What’s the characteristic of your foundation? What kind of structure is there? That is really that two things are always diffusing harmoniously with each other. That’s why if you see the bad aspect of human life, [it] is contained with good aspect, simultaneously.
 
