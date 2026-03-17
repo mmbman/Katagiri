@@ -351,19 +351,19 @@ That is called *make your life mature*. That is peace.
 
 **Katagiri Roshi:** Separate from ... ?
 
-**Questioner:** From... the life force. Why [do] we choose to pretend like we’re separate from the oneness? 
+**Questioner:** From the life force. Why [do] we choose to pretend like we’re separate from the oneness? 
 
-**Katagiri Roshi:** Uh-huh. Because we have a mind. Okay? We have consciousness. 
+**Katagiri Roshi:** Uh-huh. Because we have a mind. We have consciousness. 
 
-The energy of the consciousness is to separate, analyze, you and object and everything. This is the energy of consciousness and your mind. Alright? 
+The energy of the consciousness is to separate, analyze, you and object and everything. This is the energy of consciousness and your mind.
 
 So very naturally, you can slip off from the life force itself. On the other hand, by analyzing, synthesizing, and trying to understand your object and yourself, then that is called *the self*. 
 
-You know that Descartes says, “I think, therefore I exist.” Okay? *[He chuckles.]* So, you cannot ignore that energy of mind. Thanks to the energy of your mind, you can appreciate the presence of the self. That is called *self*. 
+You know that Descartes says, “I think, therefore I exist.” Okay? *[He chuckles.]* So, you cannot ignore that energy of mind. Thanks to the energy of your mind, you can appreciate the presence of the self. 
 
-But the energy of the self means the quality of the self has the great power to bring the harmony to your life – looking at this life, so-called present, and past, and future, including life and death. This is the energy of the self. 
+That is called *self*. But the energy of the self means the quality of the self has the great power to bring the harmony to your life – looking at this life, so-called present, and past, and future, including life and death. This is the energy of the self. 
 
-Energy of the self is very powerful because [we are not only] looking at *this* life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Like birds, and insects, and woodchucks, you know? 
+Energy of the self is very powerful because [we are not only] looking at *this* life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Like birds, and insects, and woodchucks. 
 
 I always say, “[squirrel].” *[He laughs.]* (*Transcriber’s Note:* He says “woodchuck” here, but “squirrel” seems more likely.) [Squirrel] is always living in the trees, and dogs walk under the tree – immediately, *[whoosh]*, you know? But this action is to see his life in terms of instinct. He is always looking at his life [as] just a small world, in terms of instinct. 
 

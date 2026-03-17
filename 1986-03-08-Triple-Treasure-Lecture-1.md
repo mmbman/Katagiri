@@ -143,11 +143,11 @@ That is called *do ko*; the *do ko* of *kanno-doko*. *Kan* means “appeal”. T
 
 When can you see this? That is exactly *shikan*, or *whole heartedness*. 
 
-The *Saddharma Pundarika Sutra* [talks about this]. If you read this just on the surface, it is kind of mysterious, but if you consider it deeply, it is very true. It says:
+The *Saddharma Pundarika Sutra* (the *Lotus Sutra*) [talks about this]. If you read this just on the surface, it is kind of mysterious, but if you consider it deeply, it is very true. It says:
 
 > The Buddha answered the Bodhisattva Infinite Thought: “Good son! If there be countless hundred thousand myriad *kotis* (a very large number) of living beings suffering from pain and distress who hear of this Bodhisattva Regarder of the Cries of the World, and with all their mind call upon his name, the Bodhisattva Regarder of the Cries of the World will instantly regard their cries, and all of them will be delivered.
 
-That is really *faith*, total security. The moment your mind is vibrated, you cannot believe this. But right in the middle of *wholeheartedness*, you can believe it, beyond your senses, because [...] there is total realization of you, total presence of your life, which is exactly settling down right here, right now. That is called *wholeheartedness*. With wholeheartedness, you call upon Avalokiteshvara. 
+That is really *faith*, total security. The moment your mind is vibrated, you cannot believe this. But right in the middle of *wholeheartedness*, you can believe it, beyond your senses, because [...] there is total realization of you, total presence of your life, which is exactly settling down right here, right now. That is called *wholeheartedness*. With wholeheartedness you call upon Avalokiteshvara. 
 
 In other words, if you really see deeply the total picture of the human world, *samsara* – how transient the world is, how fragile human life is – then you can hear the cries. And then if you hear the cries, very naturally the cries of the human beings are simultaneously the listener, so-called Avalokiteshvara. So immediately you can appeal for help, and simultaneously the universe reaches out to you with its hands. [...] You can see the path through which you and the universe are crossing each other. 
 
