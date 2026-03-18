@@ -77,7 +77,7 @@ Or a memorial service. The real nature of a memorial service is complete beyond 
 
 #### 20:40
 
-So ultimate nature is complete transparent. Dōgen Zenji [says this] very simple in *Zenki*, “The Whole Works.” It’s very beautiful [words]. 
+So ultimate nature is complete transparent. Dōgen Zenji [says this] very simply in *Zenki*, “The Whole Works.” It’s very beautiful words. 
 
 > The great path of buddhas in its consummation... 
 

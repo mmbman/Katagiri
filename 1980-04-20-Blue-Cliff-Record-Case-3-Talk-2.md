@@ -118,7 +118,7 @@ If this is just to take care of young birds [so they can] fly in the sky, well, 
 > This distress is worth recounting;  
 > Clear-eyed patchrobed monks should not take it lightly.  
 >
-> (From [*The Blue Cliff Record* translated by Thomas Cleary and J.C. Cleary](books#BCR))
+> (From *The Blue Cliff Record* translated by Thomas Cleary and J.C. Cleary)
 
 (*Transcriber’s Note:* And now, here is the poem with the comments, as Katagiri Roshi read it.)
   

@@ -22,7 +22,7 @@ Katagiri Roshi explains the meaning of Buddhist terms such as “save all sentie
 
 In Buddha’s time, Buddha always analyzed the human world and human beings as five *skandhas*: form, feeling, perceptions, impulses, and consciousness. And also, sometimes, when the five *skandhas* are described in a little more detail, at that time the world is analyzed by six [sense] organs, six [sense] objects, and six consciousnesses. Six sense organs, six objects, and six consciousnesses are the world we are involved in. So from this point, the five *skandhas* are exactly the implication of the term *all*, or *all sentient beings*, or *all dharmas*.
 
-[Professor Abe](glossary#masao-abe) translated it sometimes as “everything without exception.” At any rate, if we translate it, we say “all”. But this *all*, according to Buddha’s teaching, is described as five *skandhas*, or six sense organs [and] six objects. 
+Professor Abe translated it sometimes as “everything without exception.” At any rate, if we translate it, we say “all”. But this *all*, according to Buddha’s teaching, is described as five *skandhas*, or six sense organs [and] six objects. 
 
 #### 4:26
 
@@ -98,7 +98,7 @@ So when you involve the truth, truth becomes a dharma. That means, truth is some
 
 That’s why there is a problem. The question is, the truth is one, but if you experience the truth individually, the truth appears in a different way. Don’t you think so? And finally, we fight each other. “Your understanding of truth is *wrong*.” Or, “My understanding of truth is *right*, so you should believe me.” “You should believe this religion,” et cetera. We fight, always.
 
-So, the second point is: what is the limitation of the [*dhātu*](glossary#dhātu) – *dhātu* means the “world” – which we can reach? What is the limitation of the world? In other words, how far can *all dharmas* extend? From where, to where?
+So, the second point is: what is the limitation of the *dhātu* – *dhātu* means the “world” – which we can reach? What is the limitation of the world? In other words, how far can *all dharmas* extend? From where, to where?
 
 This second point is very important, because Buddha analyzed the human world as six objects and six sense organs. That means *subject* and *object*; briefly speaking, that [implies] subject and object. And subject and object are always interconnected. And only through human recognition does your object become *all dharmas*. 
 
@@ -216,7 +216,7 @@ So that’s why everything becomes observed and called in question, whatever it 
 
 **Question:** Roshi? I’m not sure what you mean when you say “called in question.” 
 
-**Katagiri Roshi:** Called in question means it becomes in question. Thinking, what it is. If you see this [tatami](glossary#tatami): the tatami becomes something existent, which you can see as an object. Thinking and acting, what it is, that is “calls in question.” Is that okay?
+**Katagiri Roshi:** Called in question means it becomes in question. Thinking, what it is. If you see this *tatami*: the tatami becomes something existent, which you can see as an object. Thinking and acting, what it is, that is “calls in question.” Is that okay?
 
 #### 58:24
 
