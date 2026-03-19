@@ -79,15 +79,9 @@ Or a memorial service. The real nature of a memorial service is complete beyond 
 
 So ultimate nature is complete transparent. Dōgen Zenji [says this] very simply in *Zenki*, “The Whole Works.” It’s very beautiful words. 
 
-> The great path of buddhas in its consummation... 
-
-“In its consummation” means in its ultimate nature. 
-
 > The great path of the buddhas in its consummation is passage to freedom, is actualization. 
 
-That means there are two meanings [of] “the great path of the buddhas”. If you see it in terms of ultimate nature of being, at that time there are two meanings there. One is “passage to freedom” – that means *emancipation*. Always something goes beyond: goes beyond the framework of the table, or tape recorder, or Katagiris, or floors and lights, everything. Completely beyond. 
-
-And [second,] this is also “actualization” – we call [that] *genjō*. *Genjō* means complete actualization, complete manifestation. *Gen* means “manifestation”, *jō* means “completion”, or “achievement”...  well, “completion” is better. So, “complete actualization”. 
+“In its consummation” means in its ultimate nature. If you see it in terms of ultimate nature of being, at that time there are two meanings of “the great path of the buddhas.” One is “passage to freedom” – that means *emancipation*. Always something goes beyond; goes beyond the framework of the table, or tape recorder, or Katagiri, or floor and lights, everything. Completely beyond. And [second,] it is also “actualization.” We call [that] *genjō*. *Genjō* means complete actualization, complete manifestation. *Gen* means “manifestation”, *jō* means “completion” or “achievement”...  well, “completion” is better. So, “complete actualization.”
 
 So showing your form called *gassho* is something *actualized*. But this actualization, something actualized by you, is not something you can see with your six senses – because it is a perfect actualization, beyond good or bad, right or wrong. Why? Because its nature is based on *emancipation*, the functioning of emancipation – *freedom*. The functioning of the passage to freedom. 
 
