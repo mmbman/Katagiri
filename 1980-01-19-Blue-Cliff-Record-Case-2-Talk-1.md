@@ -91,7 +91,7 @@ If you always see the zazen from your viewpoint, always there is a question. The
 
 Anyway, at that time (when your daily life becomes *vehicle*), there is no need for your particular, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into zazen. At that time, something helps you. That something is completely transcendent. Nothing to say. Nothing to do. 
 
-That’s why that is “the task of the fundamental vehicle of transcendence.” All you have to do is constantly you should be right on this vehicle, one hundred percent. That is really vast. Nothing holy or not holy, nothing good or bad. All you have to do is, just get to the bar, with wholeheartedness. 
+That’s why that is “the task of the fundamental vehicle of transcendence.” All you have to do is constantly you should be right on this vehicle, one hundred percent. That is really vast. Nothing holy or not holy, and nothing good or bad. All you have to do is just get the bar, with wholeheartedness. 
 
 #### 32:44
 
