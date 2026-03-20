@@ -114,13 +114,13 @@ For instance, you don't have money, but you have a very strong desire to run a b
 
 So precepts: we can have the triple treasure, and three collective pure precepts, ten prohibitory precepts; this is... If you discuss about these precepts, always arguing, lots of arguing. “I like” or “I don't like,” and this is moral sense or not moral sense. I don't want to follow the formality, et cetera. I want to be free from those formalities, precepts, disciplines, et cetera. But how can you be free from? No way. But triple treasure, three collective pure precepts are something you just follow. That's all. I cannot push you to follow. I cannot give you any particular reason or particular way, intellectual or reasonable or moral way, to follow, in order to make you [satisfied]. No. All you can do is, finally keep your mouth shut, just follow. That's it. This is the final goal. 
 
-Why? In order to develop, in order to reach tathagata, Buddha's world. Peace, harmony. Nothing else.
+Why? In order to develop, in order to reach tathāgata, Buddha's world. Peace, harmony. Nothing else.
 
 So, peaceful harmonious life is very simple. Very simple. That is what this mentions here: the finer of the fine nature of the consciousness. It's very subtle, perfect practice. That's simple practice always.
 
-This is abode of tathagata, Buddha's world. Okay? 
+This is abode of tathāgata, Buddha's world. Okay? 
 
-In other words, the tathagata... Never mind, forget it. 
+In other words, the tathāgata... Never mind, forget it. 
 
 [...] 
 
@@ -222,15 +222,15 @@ So quite different.
 
 So that is one piece of paper with two aspects, if you explain. 
 
-In other words, when you manifest your life as a tathagata, buddha, in your everyday life, then you can say bodhisattva. But when you manifest your life as a bodhisattva, backed by buddha, based on the buddha, buddha is very calm. Just as it is. So bodhisattva should be backed by tathagata. And then the tathagata appearas; when the tathagata appears, your whole personality exists in security, in calmness, there. That calmness, spiritual security comes from the whole total personality. That's it. It's calm. It's very quiet. 
+In other words, when you manifest your life as a tathāgata, buddha, in your everyday life, then you can say bodhisattva. But when you manifest your life as a bodhisattva, backed by buddha, based on the buddha, buddha is very calm. Just as it is. So bodhisattva should be backed by tathāgata. And then the tathāgata appearas; when the tathāgata appears, your whole personality exists in security, in calmness, there. That calmness, spiritual security comes from the whole total personality. That's it. It's calm. It's very quiet. 
 
 But you don't know how to express. So all you can do is just be there. Just be there, human being, but it's not human being, it's something there. That is total personality. 
 
-So buddha, tathagata is total personality if you use a different expression. 
+So buddha, tathāgata is total personality if you use a different expression. 
 
 And then, we can analyze. After we practice total personality, then we analyze: who he is. That, and then, when you start to ask who he is, he is already bodhisattva. Walking in the human world. So you can say, "Oh, he is such-and-such." 
 
-So very naturally, when he or she becomes a person, you feel very close. But when he or she becomes tathagata, you cannot touch it. Very stable, calm – so you try to touch but you cannot touch it. But you are exactly absorbed into it. You become one with him or her, very naturally. That is impressions. Not impressions... what you you say. That is edification. Automatically you are edified by this buddha. 
+So very naturally, when he or she becomes a person, you feel very close. But when he or she becomes tathāgata, you cannot touch it. Very stable, calm – so you try to touch but you cannot touch it. But you are exactly absorbed into it. You become one with him or her, very naturally. That is impressions. Not impressions... what you you say. That is edification. Automatically you are edified by this buddha. 
 
 So buddha and bodhisattva, same. 
 
