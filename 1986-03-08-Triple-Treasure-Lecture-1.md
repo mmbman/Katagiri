@@ -137,7 +137,7 @@ So that is *appeal*.
 
 And then, *response*. At that time, response comes from the whole universe, space, *akasha*. And then this is called *the whole universe* ... I used a different term: spirit of the universe, spirit of *akasha*, whatever. And then, if you completely feel that spirit of the universe, and appeal for the help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. 
 
-In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. But that is spiritually; [in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
+In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. But that is spiritually. [In the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 
 That is called *do ko*; the *do ko* of *kanno-doko*. *Kan* means “appeal”. The *no* of *kanno* is “response”. *Do* of *doko* is “the path”. *Ko* of *doko* is “to cross”. So appeal and response come across, very quickly. 
 
