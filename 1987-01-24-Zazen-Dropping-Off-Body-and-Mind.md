@@ -25,7 +25,9 @@ Zen Buddhism, particularly Dōgen Zenji, constantly mentions that we should see 
 
 Usually everyone depends on, consciously or unconsciously, conceptualization of the world. That's it; that is your world. So the Buddha and ancestors try to present the world *before* you conceptualize. That's why it is a little difficult to understand it. But, we *have* to. We have to research it. We have to *taste* it. We have to understand it. Okay? 
 
-“Sanzen is zazen.” *Sanzen* means literally to surrender yourself to tranquility or simplicity in life. To surrender yourself or to submit to perfect tranquility or simplicity in life; this is called *sanzen*. Usually *sanzen* is translated as “practice,” but “practice” in English doesn't hit the mark to *sanzen*.
+“Sanzen is zazen.” 
+
+*Sanzen* means literally to surrender yourself to tranquility or simplicity in life. To surrender yourself or to submit to perfect tranquility or simplicity in life; this is called *sanzen*. Usually *sanzen* is translated as “practice,” but “practice” in English doesn't hit the mark to *sanzen*.
 
 *Fukanzazengi* [which we] chant every evening uses the original term *sanzen*. So remember, *sanzen* is to surrender yourself to tranquility or simplicity in life. 
 
@@ -179,13 +181,11 @@ Is there a question?
 
 **Questioner:** [The] first meaning.
 
-**Katagiri Roshi:** Yes. The *san* of *san zen* is “to surrender” or “submit.”
+**Katagiri Roshi:** Yes. The *san* of *sanzen* is “to surrender” or “submit” ... or “to visit,” actually. To visit. Okay? *[They laugh.]* You cannot visit [Zen or tranquility] objectively; if you want to visit, your body and mind must be there. That is called *surrender*. You have to surrender yourself to, otherwise you cannot visit.
 
-**Questioner:** Thank you.
+So, that is the *san*. *Zen*, linguistically, that is “to manifest simplicity.” So that’s why “to submit yourself to the simplicity or tranquility,” that is *sanzen*. 
 
-**Katagiri Roshi:** ... or “to visit,” actually. To visit. Okay? *[They laugh.]* You cannot visit objectively. If you want to visit, your body and mind must be there. That is called *surrender*. You have to surrender yourself to, otherwise you cannot visit. Okay? 
-
-So, that is the *san*. *Zen*, linguistically, that is “to manifest simplicity.” So that’s why “to submit yourself to the simplicity or tranquility,” that is *sanzen*. What *is* it? This is *zazen*. 
+What *is* it? This is *zazen*. 
 
 To submit yourself to simplicity is simultaneously casting off, dropping off your body and mind. In other words, *free from*, you know, many, many sufferings. We don’t believe it! But this is true. 
 

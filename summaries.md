@@ -634,7 +634,7 @@ Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajn
 
 ##### [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)
 
-Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 <br/>
 

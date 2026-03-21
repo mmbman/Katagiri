@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 3"
 
 ### Summary 
 
-Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kanno-doko* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 ### Transcript
 
@@ -229,7 +229,7 @@ That means, who are you? You come from past, you come from present, you are goin
 
 So that is, here it says next, “All Buddhas of the three periods of time emerge from it.” This is [that] then you can have, what would you say, spiritual communion among you and the universe. That [is the meaning of] “all buddhas of the three periods of time emerge from it.” 
 
-So if you do this, if you forget yourself and go beyond time, *then* you can taste wondrous energy between you and buddha, you and the universe. That is called *kanno-doko* in Japanese: spiritual communion among you and the universe. Not among you and some person in particular: you and the universe. That is, here it says, “all buddhas of the three periods of time emerge from it.” This is a Buddhistic expression, talking about great energy: feedback, in and out, between you and the universe. If you play the piano, naturally you can feel special particular energies between the concert and you, music and you. We don’t know what it is. But if you forget yourself, and go beyond time, naturally you experience this. 
+So if you do this, if you forget yourself and go beyond time, *then* you can taste wondrous energy between you and buddha, you and the universe. That is called *kannō-dōkō* in Japanese: spiritual communion among you and the universe. Not among you and some person in particular: you and the universe. That is, here it says, “all buddhas of the three periods of time emerge from it.” This is a Buddhistic expression, talking about great energy: feedback, in and out, between you and the universe. If you play the piano, naturally you can feel special particular energies between the concert and you, music and you. We don’t know what it is. But if you forget yourself, and go beyond time, naturally you experience this. 
 
 “You should use great wisdom to destroy affliction, defilement, ...” Then, naturally, there is no affliction, defilement. Even though you go through the complicated procedure – rules and regulations, customs, habits, and your vibration of consciousness – you go through that stuff, but your body and mind [are never] confused, your body and mind just go. Not by your effort. Something. So you cannot stop it, finally. 
 

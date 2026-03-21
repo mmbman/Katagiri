@@ -15,7 +15,7 @@ title: "Principles of Practice, Talk 2: Bodhicitta"
 
 #### 0:00
 
-**Katagiri Roshi:** Yesterday I [talked about] the purpose of the practice, or the purpose of spiritual life. The purpose of spiritual life is to actualize *sanzen gakudō*, which means to surrender one’s body and mind to tranquility. *Tranquility* means the Way; to surrender one’s body and mind to tranquility is to study or to learn the Way. 
+**Katagiri Roshi:** Yesterday I [talked about] the purpose of the practice, or the purpose of spiritual life. The purpose of spiritual life is to actualize *sanzen gakudō*, which means to surrender one’s body and mind to tranquility. *Tranquility* means the Way: to surrender one’s body and mind to tranquility is to study or to learn the Way. 
 
 The Way manifests in two ways. One is it manifests itself as the absolute – in other words, the ultimate identity of existence, the absolute itself – which is completely, absolutely tranquil, still. But it is not something still [like] stagnant water; it is always *active*. So the Way appears as every aspect of everydayness. Tranquility penetrates every aspect of everydayness. That is the Way. 
 

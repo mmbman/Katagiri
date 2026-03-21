@@ -40,7 +40,7 @@ So *gakudō* is to study the universal life beyond the conscious and unconscious
 
 *Zen* or tranquility means [the] dimension of being in which there is no individual consciousness, so-called consciousness or unconsciousness. So [no] subtle signs of ideas, conscious world or unconscious world. 
 
-In Japanese, tranquility is called *jakujō*. *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means if you are there, you are *exactly* there; nothing else except *you*. So that is very tranquil. Just like being present in the wilderness: there are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfect tranquility. That is the meaning of *jaku*. So, completely nothing around you. 
+In Japanese, tranquility is called *jakujō* (寂靜). *Jaku* means perfect stillness – perfect stillness just like [there is] no one or nothing with which you want to talk, you want to see. So, perfect tranquility. That means if you are there, you are *exactly* there; nothing else except *you*. So that is very tranquil. Just like being present in the wilderness: there are lots of beings there – insects, birds, trees, skies – but if you are in the wilderness you feel perfect tranquility. That is the meaning of *jaku*. So, completely nothing around you. 
 
 And also *jō* of *jakujō* means literally “to express in detail.” So literally [...] *jō* of *jakujō* is also the same meaning of stillness or tranquility, but it is a little different from the *jaku* of *jakujō*. *Jō* is “[tranquility and stillness] which penetrates every aspect of everydayness.” 
 

@@ -65,7 +65,7 @@ And then next, your left hand, palm upward, is placed on your right palm, and th
 
 This is called the *cosmic mudra*. This is the symbol of the cosmic universe. We cannot exist without the universe, so we should appreciate the universe. To appreciate the universe means you should do something *with* the universe, physically and mentally. So why don’t you show the universe? But a universe is *big*! But we can know the characteristic of a universe: to unify two beings, together, in peace, in harmony. So that’s why two hands are put together like this. 
 
-And this is the universe. So if you believe this symbol of the universe made by your hands – well, that symbol really works. But if you don’t believe, the symbol is just a symbol. It doesn’t work, in *you*. 
+And this is the universe. So if you believe this symbol of the universe made by your hands – well, that symbol really works. But if you don’t believe, the symbol is just a symbol. It doesn’t work in *you*. 
 
 Just like the American flag. If you see the American flag, you stand up and you do this, and then the symbol of American flag works with you. Do you understand? The same applies to this. This is a symbol, but a symbol is not a symbol, a symbol is something which should [be] alive in you – when you *make* it alive, when you use it. At that time, the symbol really works. But a symbol itself doesn’t have any sense. So only when you use it, it really works. 
 

@@ -185,7 +185,7 @@ Or,
 
 This is very simple movement. The two hands are unified. Your eyes are not wide open, not closed, just *[unintelligible]*. That is unification of the movement of your eye-nerve system. If you open your eyes wide, it really distracts your mind. So not wide, not closed. And two hands put together, lips together, and teeth together; the tongue should be touching the roof of your mouth. And full lotus or half lotus. Just sit down; not leaning forward, not leaning backward, just straight up. 
 
-This is the movement simplified, by our arrangement. 
+This is the movement simplified by our arrangement. 
 
 #### 42:38
 
@@ -211,11 +211,9 @@ That is the brain-nerve system. According to the brain-nerve system, we have to 
 
 *[Tape change.]*
 
-... “[Cease all the movements of the conscious mind, the gauging] of all thoughts and views. Have no design on becoming a buddha.” Completely throw away any germination of wishes, thoughts, and views. Just [you yourself spin] with zazen. That's all you have to do. 
+... “[Cease all the movements of the conscious mind, the gauging] of all thoughts and views. Have no design on becoming a buddha.” Completely throw away any germination of wishes, thoughts, and views. Just [you yourself sit] with zazen. That's all you have to do. 
 
-#### 46:44
-
-So Dōgen says “do not think good or bad, right and wrong” because we have to regulate [the] mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right or wrong, or neutral. 
+Dōgen says “do not think good or bad, right and wrong” because we have to regulate [the] mind, which is characterized by attachment to one of two extreme ideas. That is mind. That's why we shouldn't attach to good or bad, right or wrong, or neutral. 
 
 That means the practice of *egolessness*; selflessness. 
 

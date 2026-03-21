@@ -365,7 +365,7 @@ That is called *self*. But the energy of the self means the quality of the self 
 
 Energy of the self is very powerful because [we are not only] looking at *this* life, in terms of making [a] better living, conflicting with or fighting each other – not like this. Like birds, and insects, and woodchucks. 
 
-I always say, “[squirrel].” *[He laughs.]* (*Transcriber’s Note:* He says “woodchuck” here, but “squirrel” seems more likely.) [Squirrel] is always living in the trees, and dogs walk under the tree – immediately, *[whoosh]*, you know? But this action is to see his life in terms of instinct. He is always looking at his life [as] just a small world, in terms of instinct. 
+I always say, “woodchuck.” *[He laughs.]* (*Transcriber’s Note:* It seems possible he means “squirrel” here.) Woodchuck is always living in the trees, and dogs walk under the tree – immediately, *[whoosh]*, you know? But this action is to see his life in terms of instinct. He is always looking at his life [as] just a small world, in terms of instinct. 
 
 But the energy of the self is very powerful to look at this life and [other lives], all the world – understanding as a whole, as a one. That is a quality of the self. That quality of the self is very vital. So that is called *energy*, *life force*. 
 

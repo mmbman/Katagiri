@@ -79,7 +79,7 @@ That is called participating. Ok? Moving in the deep course of Prajñāpāramit�
 
 In order to understand the world, human beings, you have to practice like this, constantly. If you don't understand first, why don't you share the love with the people, compassion with the people, anyway. Or, even though you cannot know how to share the compassion with the people, anyway let's walk hand in hand with the people, practically. Just do it, with whole sincere heart, with warm heart. Anyway, let's walk day by day with the people. And then, you can feel love, compassion. And then, you can understand the people. 
 
-Then very naturally there is some communion. So that is spiritual, in Buddhism, in Japanese, we call it *kanno doko*, means spiritual communion between a person and buddha, person and the whole universe. In the intellectual sense, you don't understand this one. But practically, everyone experiences this one. Otherwise, your life is never supported by the universe, you never survive. 
+Then very naturally there is some communion. So that is spiritual, in Buddhism, in Japanese, we call it *kannō dōkō*, means spiritual communion between a person and buddha, person and the whole universe. In the intellectual sense, you don't understand this one. But practically, everyone experiences this one. Otherwise, your life is never supported by the universe, you never survive. 
 
 Then if you take care of your life with sincere heart, naturally you can experience this one. Then, how can you describe it? I don't know. Then, moving in the deep course of Prajñāpāramitā is described as *empty*. That’s it. 
 
