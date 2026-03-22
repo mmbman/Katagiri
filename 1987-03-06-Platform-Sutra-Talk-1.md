@@ -253,7 +253,7 @@ Sometimes people deal with the two poems separately, and evaluate which is right
 
 So, according to Shen Hsiu, I think he stands always in the dualistic world, looking at himself and [trying] to reach the buddha-nature. From this point, “the body is a Bodhi tree”: we are buddha-nature, but we are not buddha-nature, so we have to realize, we have to see into our own nature. 
 
-So “the body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana. So, we are Buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty.” That’s why we have to always brush it clean: “and let no dust alight.” So, constantly practice. 
+“The body is a Bodhi tree, the mind like a bright mirror stand”: this is exactly the same as the teaching of nirvana. So, we are Buddha. “Time and again brush it clean”: but we are living in the human world, so it’s easy for us to get “dusty.” That’s why we have to always brush it clean: “and let no dust alight.” So, constantly practice. 
 
 This is one aspect of the practice: seeking for the truth, constantly, from the beginning to end. Even [if] you attain enlightenment, even [if] you become buddha, constantly we have to seek. 
 

@@ -2262,9 +2262,9 @@ It is not the teaching’s fault; it is your fault. The Buddha just shows the wa
 
 ###### Commentary:
 
-This means that if you practice hard, research and study, teach and practice for many years, then you can experience what we call the absolute, or enlightenment. Very slightly you can glance at true eternity, eternal life. You will never be able to explain it, but as a practical matter you will be able to see a little bit of it. That’s pretty good, for us.
+This means that if you practice hard, research and study, teach and practice for many years, then you can experience what we call the absolute, or enlightenment. Very slightly you can glance at true eternity, eternal life. You will never be able to explain it, but as a practical matter you will be able to see a little bit of it. That’s pretty good for us.
 
-But if you try to experience this it will be hard and take a long time, because the eternal life is a really huge mansion. So you have to build up that mansion by means of psychology and philosophy and other subjects. And if you start to teach you have to teach this huge mansion, and it really takes time.
+But if you try to experience this, it will be hard and take a long time, because the eternal life is a really huge mansion. You have to build up that mansion by means of psychology and philosophy and other subjects. And if you start to teach you have to teach this huge mansion, and it really takes time.
 
 But if you experience it very naturally the eternal life is in your heart. So even if there are some aspects you cannot explain you can still demonstrate the eternal life.
 

@@ -75,7 +75,9 @@ My teacher showed me [this also]. When I didn’t get up in the morning, and the
 
 We are always arguing, but arguing means already that you have lots of space for you to do something as you like. Actually your life is forgiven, broadly speaking, but on the other hand your life [is never] forgiven, because you have to take care of your life by [yourself]. Who helps you? Actually you help yourself. Morning helps its own life. When the morning comes, morning should arrive, and then human life should fit into this rhythm of everyday life: morning, afternoon, evening. That’s what the teacher mentions in a concrete way. 
 
-So if you practice like this, very naturally dharma is coming to your life, and your life manifests yourself as dharma. So very naturally your life [manifests] as *total personality*. Do you know the [term] *total personality*? Total personality is your personality *including* trees’ life, others’ life, all beings. Your life is penetrating to the past, present, future, and also trees, birds... Japan, China, all of the world... pebbles, air... and then your personality becomes *whole*. This is *total personality*. 
+So if you practice like this, very naturally dharma is coming to your life, and your life manifests yourself as dharma. So very naturally your life [manifests] as *total personality*. 
+
+Do you know the [term] *total personality*? Total personality is your personality *including* trees’ life, others’ life, all beings. Your life is penetrating to the past, present, future, and also trees, birds... Japan, China, all of the world... pebbles, air... and then your personality becomes *whole*. This is *total personality*. 
 
 You can do [this]. My teacher did it. My teacher *showed me* this always. But I was young, that’s why I didn’t have enough eyes, enough ears to listen or to see it. That’s why I complained and I always was confused. But on the other hand, I felt relief when I came back to the temple, because the world is very busy, noisy, et cetera. That is [that] really, practically I can take a deep breath from his total personality. So that is wonderful. 
 
