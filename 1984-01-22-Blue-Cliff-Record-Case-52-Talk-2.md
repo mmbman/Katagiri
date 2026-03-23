@@ -30,7 +30,7 @@ Let’s read the verse to this case:
 
 “Solitary and dangerous” means a skillful method of a Zen teacher coming from his own peculiarities, which no one can imitate. So that in this case from this point his skillful method is very solitary; no one can imitate it. On the other hand, “it’s dangerous” means it’s very severe and very sharp; his words, his verbal explanation and his acts are very sharp, piercing people’s heart directly. So from this point it is called “dangerous,” but it’s not the usual meaning of danger.
 
-But in this case Joshu, Chao Cho, doesn’t use such a skillful method. So that’s why first it says, “he doesn’t set up solitary and dangerous in that his path is lofty.”
+But in this case Jōshū, Chao Cho, doesn’t use such a skillful method. So that’s why first it says, “he doesn’t set up solitary and dangerous in that his path is lofty.”
 
 In the commentary it says, 
 
@@ -38,13 +38,13 @@ In the commentary it says,
 
 Hsueh Tou is the Zen master who composed this verse. 
 
-Usually we want very naturally to set up something mysterious and mystical, and, what would you say, very smart and sharp. We want to show ourselves how smart we are, how mysterious our religious life is. So it’s very common. But for this, Joshu Zen master doesn’t show [us] in that way. He just uses regular usual words and the usual attitude. He is “just like a fool, an idiot.”
+Usually we want very naturally to set up something mysterious and mystical, and, what would you say, very smart and sharp. We want to show ourselves how smart we are, how mysterious our religious life is. So it’s very common. But for this, Jōshū Zen master doesn’t show [us] in that way. He just uses regular usual words and the usual attitude. He is “just like a fool, an idiot.”
 
 So that’s why the commentary says, “Chou doesn’t establish mysteries or marvels, and doesn’t set up the solitary and dangerous...” 
 
 > He isn’t like those in various places who say that only breaking up empty space, smashing Mount Sumeru to bits, producing dust on the bottom of the ocean and pounding waves on Mount Sumeru can be called the Path of the Patriarchal Teachers.
 
-That is a very common way of teaching which occurs in the *Blue Cliff Record*... particularly in the *Blue Cliff Record*, it’s really fancy words and methods there. But Joshu didn’t, because he became an abbot at 100 years old, and it says he lived to 119. So he was really soft and gentle – but behind the softness and kindness, there is a really lofty personality there, and very sharp, and very instructive. 
+That is a very common way of teaching which occurs in the *Blue Cliff Record*... particularly in the *Blue Cliff Record*, it’s really fancy words and methods there. But Jōshū didn’t, because he became an abbot at 100 years old, and it says he lived to 119. So he was really soft and gentle – but behind the softness and kindness, there is a really lofty personality there, and very sharp, and very instructive. 
 
 > Thus Hsueh Tou says, “He doesn’t set up the solitary and dangerous; in that his path is lofty.” Others may tower up like ten-mile-high walls to display the extraordinary spiritual effects of the Buddha Dharma...
 
@@ -74,7 +74,7 @@ Well, you cannot imitate. Only the person who can reach at this spiritual level,
 
 > The words are still in our ears. This goes back to his own provisions.
 
-There are lots of skillful methods: using a stick, using sharp words, [sometimes giving a blow], sometimes screaming, et cetera, in Zen – scaring you. But for Joshu Zen Master, all skillful methods go back to his method; nothing special to use. So “this goes back to his own provisions.” 
+There are lots of skillful methods: using a stick, using sharp words, [sometimes giving a blow], sometimes screaming, et cetera, in Zen – scaring you. But for Jōshū Zen Master, all skillful methods go back to his method; nothing special to use. So “this goes back to his own provisions.” 
 
 #### 10:16
 
@@ -86,11 +86,11 @@ The note says,
 
 “He cuts off the essential crossing place...”: That means cutting off the root of delusion, life and death, and the bodhi-mind, or nirvana, enlightenment, et cetera. Well, I will explain later. He cuts off this...
 
-“... and doesn’t let profane or holy pass.” While you call yourself holy or profane, it means you still have a certain bottom, so-called “profane” or “holy”. But Joshu always cut off the root of profane or holy. 
+“... and doesn’t let profane or holy pass.” While you call yourself holy or profane, it means you still have a certain bottom, so-called “profane” or “holy”. But Jōshū always cut off the root of profane or holy. 
 
 “People of power don’t come by twos and threes.” Yesterday I told you, we are always looking around immediately, and checking, and analyzing, synthesizing always. It’s very difficult for us to settle down, to settle yourself in the self, under all circumstances. We are immediately look around. So “people of power don’t come by twos and threes” means looking around. Trying to fill up the satisfaction of human desires, immediately. How to make a living in a better way, in order to get a high position, or whatever kind of a desire you have. 
 
-But for Joshu, always he’s aiming at the big tortoise. Even though in the ocean there are big whales, or even though there are huge, you know... crocodiles... *[Laughter.]* Crocodile doesn’t live in the ocean. *[Laughter.]* Uh... hippopotamus? *[Laughter.]* That’s wonderful: in the ocean, a hippopotamus; huge hippopotamus swimming in the ocean. Crocodiles. 
+But for Jōshū, always he’s aiming at the big tortoise. Even though in the ocean there are big whales, or even though there are huge, you know... crocodiles... *[Laughter.]* Crocodile doesn’t live in the ocean. *[Laughter.]* Uh... hippopotamus? *[Laughter.]* That’s wonderful: in the ocean, a hippopotamus; huge hippopotamus swimming in the ocean. Crocodiles. 
 
 But, he never looks around, he never pays attention to them. Just a big, huge, vast tortoise. That is called truth.
 
@@ -112,7 +112,7 @@ A hemp-soaking pool is a very small pool, with a little amount of water which is
  
 It’s very [quick]. *[He makes a shooting sound.]* “Zoop!” You know; a very quick stream. 
 
-So that is the same story that Kuan Hsi has, but his answer is quite different from Joshu. Joshu said, “Let the asses cross, let the horses cross.” That means everyday life. You know, everyday life, and whatever happens, he just lets all things cross. But Kuan Hsi says, “swift as a whistling arrow.” Very sharp. That is Kuan Hsi himself; you have to see Kuan Hsi like this. Kuan Hsi means the buddha-nature. What is a buddha? You see just a little pool, but you have to see the big stream, so-called Buddha. What is the Buddha? According to him, Buddha is “swift as a whistling arrow.” Very quick. Very sharp. 
+So that is the same story that Kuan Hsi has, but his answer is quite different from Jōshū. Jōshū said, “Let the asses cross, let the horses cross.” That means everyday life. You know, everyday life, and whatever happens, he just lets all things cross. But Kuan Hsi says, “swift as a whistling arrow.” Very sharp. That is Kuan Hsi himself; you have to see Kuan Hsi like this. Kuan Hsi means the buddha-nature. What is a buddha? You see just a little pool, but you have to see the big stream, so-called Buddha. What is the Buddha? According to him, Buddha is “swift as a whistling arrow.” Very quick. Very sharp. 
 
 That is this [line], “His contemporary the Elder of Kuan Hsi is worth a laugh.” So his answer is worthy of laughter. 
 
@@ -178,7 +178,7 @@ Well, whatever [it is]. If you attain enlightenment, if you experience somethin
 
 So that’s [why] the note says, “He cuts off the essential crossing place.” Whatever you say – bodhi-mind, nirvana, enlightenment, buddhas – whatever you say, holy or profane – that is nothing but to set up, establish the bottom of the bucket. 
 
-That’s why then Joshu Zen Master is always hooking the giant tortoise, without looking around, [among] crocodiles and hippopotamus and big whales and whatever. Never. Just [the big one], huge. 
+That’s why then Jōshū Zen Master is always hooking the giant tortoise, without looking around, [among] crocodiles and hippopotamus and big whales and whatever. Never. Just [the big one], huge. 
 
 #### 36:16
 
@@ -254,7 +254,7 @@ So finally she comes back to simplicity. She doesn’t know what simplicity is. 
 
 So that’s what I want to tell you. Simplicity is completely no bottom of the bucket. No bottom of personality, no bottom of capability you have. That is simplicity. Very simple. If you’re stupid, you have to take best care of yourself as stupid, anyway. *[Laughter.]* But if you look around, immediately criticism comes up and you put yourself down by yourself. 
 
-So what is Joshu, what is the stone bridge? That stone bridge is Buddha. For Joshu, Chao Chou, Buddha as a stone bridge is not something fancy. You can experience so-called spiritual life – well, that is alright. But it is nothing but the log bridge appearing; next moment it disappears. Then you come back to the daily routine, daily life. In daily life [there are] many beings, many occurrences there, so it’s pretty easy for us to look around. But the important point is wherever you may go, there is always the big tortoise, so-called buddha-nature or truth. 
+So what is Jōshū, what is the stone bridge? That stone bridge is Buddha. For Jōshū, Chao Chou, Buddha as a stone bridge is not something fancy. You can experience so-called spiritual life – well, that is alright. But it is nothing but the log bridge appearing; next moment it disappears. Then you come back to the daily routine, daily life. In daily life [there are] many beings, many occurrences there, so it’s pretty easy for us to look around. But the important point is wherever you may go, there is always the big tortoise, so-called buddha-nature or truth. 
 
 So that is [a] simple way of life. Just standing. Under each circumstance of pain, suffering, *gassho*, washing your face, we have to just stand up straight, without looking around so much. And that is called simplicity. 
 
@@ -310,13 +310,13 @@ So even if you feel this is not a real opportunity, [still] if the opportunity i
 
 #### 1:11:36
 
-**Question:** Hojo-san, I read that Joshu Zen Master’s lineage died out only after a couple more people in his lineage. Do you know if that’s right? I think it’s in the back of that book.
+**Question:** Hojo-san, I read that Jōshū Zen Master’s lineage died out only after a couple more people in his lineage. Do you know if that’s right? I think it’s in the back of that book.
 
-**Katagiri Roshi:** Mm-hmm. Joshu’s lineage is Rinzai line, and Nangaku Ejo (Nanyue Huairang), and you know Baso Zen Master (Mazu Daoyi). So [Baso] Zen Master has many disciples, among them there are three famous Zen Masters. One is Hyakujō [Ekai] (Baizhang Huaihai), who established first the regulation of monastic life in China. And next is Kisu Zen Master (Guizong Zhichang), who flourished [in] the 8th century, who is also pretty famous for his very strict way to teach. And the third one was Nansen Zen Master (Nanquan Puyuan). You know pretty well, Nansen was the Zen teacher who [killed] the cat in order to cut off the delusion of the monks, and thinking of whether the cat has buddha-nature or not. Do you know that? Well, [those] three Zen Masters. And then Joshu Zen Master was a disciple of this Nansen. 
+**Katagiri Roshi:** Mm-hmm. Jōshū’s lineage is Rinzai line, and Nangaku Ejo (Nanyue Huairang), and you know Baso Zen Master (Mazu Daoyi). So [Baso] Zen Master has many disciples, among them there are three famous Zen Masters. One is Hyakujō [Ekai] (Baizhang Huaihai), who established first the regulation of monastic life in China. And next is Kisu Zen Master (Guizong Zhichang), who flourished [in] the 8th century, who is also pretty famous for his very strict way to teach. And the third one was Nansen Zen Master (Nanquan Puyuan). You know pretty well, Nansen was the Zen teacher who [killed] the cat in order to cut off the delusion of the monks, and thinking of whether the cat has buddha-nature or not. Do you know that? Well, [those] three Zen Masters. And then Jōshū Zen Master was a disciple of this Nansen. 
 
-So Joshu really practiced very hard, I can imagine, because Nansen had very much his own peculiar way – very peculiar, strict way. So Joshu was very [suffering]. For instance, if you read *Mumonkan*, *Gateless Gate*, Number 19, there is a koan [where] Joshu Zen Master asked Nansen about the meaning of the Buddha Way. That means what is the truth, the Buddha Way. And then Nansen says [...] everyday mind. So [Joshu] asked what [is] everyday mind, always. So in this koan of the *Gateless Gate*, you can read what is everyday mind. 
+So Jōshū really practiced very hard, I can imagine, because Nansen had very much his own peculiar way – very peculiar, strict way. So Jōshū was very [suffering]. For instance, if you read *Mumonkan*, *Gateless Gate*, Number 19, there is a koan [where] Jōshū Zen Master asked Nansen about the meaning of the Buddha Way. That means what is the truth, the Buddha Way. And then Nansen says [...] everyday mind. So [Jōshū] asked what [is] everyday mind, always. So in this koan of the *Gateless Gate*, you can read what is everyday mind. 
 
-So Joshu practiced very hard, thinking about everyday mind, because he became a monk at 60 years old. He cannot have any energy to [go] far away, far out; or he didn’t have any energy to get a certain fantastic religious experience, and thinking something else apart from his life. His life was really rooted in everyday life. So that’s why he anyway asked these kind of questions. 
+So Jōshū practiced very hard, thinking about everyday mind, because he became a monk at 60 years old. He cannot have any energy to [go] far away, far out; or he didn’t have any energy to get a certain fantastic religious experience, and thinking something else apart from his life. His life was really rooted in everyday life. So that’s why he anyway asked these kind of questions. 
 
 So what is the Way? What is the Buddha’s teaching? What is the truth? Truth is everyday mind. That is a really difficult koan for us. But it’s pretty easy; [a] simple way – but we don’t understand that one. 
 

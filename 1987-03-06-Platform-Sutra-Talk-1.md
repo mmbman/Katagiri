@@ -104,7 +104,7 @@ And then, [...] \[what] can you call this buddha-nature, which is called nothing
 
 Finally, Dōgen Zenji [says], that buddha-nature may be called *no buddha-nature*. Because *no buddha-nature* is a very close term to explain the true picture of buddha-nature. Because it is nothing to hold; that’s why *no buddha-nature*. And then from that no-buddha-nature, we can see *buddha-nature* or *no-buddha-nature* – the idea of *buddha-nature* or the idea of *no-buddha-nature* – which means the phenomenal world coming up. 
 
-So that is in the chapter “Buddha Nature,” [where] Dōgen Zenji [talks] about Joshu’s koan, “Does a dog have buddha-nature or not.” 
+So that is in the chapter “Buddha Nature,” [where] Dōgen Zenji [talks] about Jōshū’s koan, “Does a dog have buddha-nature or not.” 
 
 #### 19:32
 

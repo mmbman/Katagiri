@@ -308,7 +308,7 @@ So I'm not [ignoring]. But I always taste how limited knowledge is, how knowledg
 
 **Same person:** ... yourself and the floor, and there’s also the activating of the belief system. It sounds like your belief system that “I have to take care of this as a Buddha.” So there's some idea of what a buddha is, et cetera, et cetera.
 
-**Katagiri Roshi:** Yes. That's why Dōgen Zenji [says], what is the buddha-nature you believe? That's why Joshu Zen Master says, “dog has no buddha-nature.” And sometimes he says, “dog has buddha-nature.” That is our belief system you mentioned, you know? So whatever you say  – [...] “I believe the truth that we are buddha” – this is already limited. So that's why Joshu has to say, “no buddha.” Okay?
+**Katagiri Roshi:** Yes. That's why Dōgen Zenji [says], what is the buddha-nature you believe? That's why Jōshū Zen Master says, “dog has no buddha-nature.” And sometimes he says, “dog has buddha-nature.” That is our belief system you mentioned, you know? So whatever you say  – [...] “I believe the truth that we are buddha” – this is already limited. So that's why Jōshū has to say, “no buddha.” Okay?
 
 But how can you know true buddha? That's why Dōgen Zenji finally says “no buddha” is pretty close to the true buddha-nature. That’s it. That's why finally we use the negative term. So again and again we have to use a negative term, and to awaken ourself. Is that clear? 
 

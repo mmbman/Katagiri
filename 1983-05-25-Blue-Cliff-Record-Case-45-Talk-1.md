@@ -211,7 +211,7 @@ So, this monk is a very sharp guy. That’s why in the comment, it says,
 
 > He’s pressing this old fellow. 
 
-[“Old fellow”] means Joshu, Chao Chou. You are pretty good, to drive Chao Chou into the corner where he can’t move an inch. *[He laughs.]* So pretty good, monk. You are pretty good. That is the comment here. 
+[“Old fellow”] means Jōshū, Chao Chou. You are pretty good, to drive Chao Chou into the corner where he can’t move an inch. *[He laughs.]* So pretty good, monk. You are pretty good. That is the comment here. 
 
 But anyway, where does the one return to? That is, constantly if you seek *where does the one return to* intellectually, you never get [the] place where the one returns to. Because intellectual understanding lets you go in parallel, always; [it] never comes together. Intellectually, probably two things come very close together, but always parallel. That’s why this guy is going fast, this guy slow, but very close, that’s why [they make] noise. The other one goes fast, the other one is slow. The world is going very quickly, [and] you try to catch up with this, but you cannot catch up, so you’re always making noise, so-called *despair*. You’re disappointed. So that intellectual understanding lets you go always in parallel with the world, people, friends, everything. So, always making noise. 
 

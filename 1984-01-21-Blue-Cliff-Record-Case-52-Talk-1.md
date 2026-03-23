@@ -51,7 +51,7 @@ Chao Chou said, “It lets asses cross, it lets horses cross.”
 
 That’s why Chao Chou said [it] in this way.
 
-[...] Chao Chou is a very famous Zen master. Dōgen Zenji mentions [him] very often in his works, with great admiration. It is said that he became a monk at 60 years old, and he studied and practiced under the guidance of his teacher, Nansen, for 20 years. And then after that, he started to travel, to see teachers and practice throughout China, for 20 more years. And then he became the abbot of the temple in the place of Chao Chou – Joshu in Japanese. So, in this case, I think this Chao Chou was almost 100 years old. Because when he was 60 years old, he became a monk and practiced for 20 years, and then after that he traveled for 20 years. So [...] 100 years. And then he became the abbot of the temple, so when he became the abbot of the temple he was already 100 years old.
+[...] Chao Chou is a very famous Zen master. Dōgen Zenji mentions [him] very often in his works, with great admiration. It is said that he became a monk at 60 years old, and he studied and practiced under the guidance of his teacher, Nansen, for 20 years. And then after that, he started to travel, to see teachers and practice throughout China, for 20 more years. And then he became the abbot of the temple in the place of Chao Chou – Jōshū in Japanese. So, in this case, I think this Chao Chou was almost 100 years old. Because when he was 60 years old, he became a monk and practiced for 20 years, and then after that he traveled for 20 years. So [...] 100 years. And then he became the abbot of the temple, so when he became the abbot of the temple he was already 100 years old.
 
 So in this case, I think he was already 100 years old. So he was a very wonderful, mature person. *[Laughter.]* Very mature. 100 years.
 
@@ -75,7 +75,7 @@ That is called *freedom*, *emancipation*. Or *maturity*, or *adept*.
 
 So, I think Chao Chou in this koan is really mature and perfect ripeness of fruit. So everything is going pretty smoothly, naturally. So nothing sharp in the words. He uses words, but those words are not very sharp. Priests’ words come up very naturally, smoothly. But lots of information is there, instruction is there.
 
-So that is Joshu in this koan.
+So that is Jōshū in this koan.
 
 #### 16:10
 
@@ -145,11 +145,11 @@ We have to understand this.
 
 So that’s why I say Buddhism is to let you participate in yourself, instead of researching yourself from outside. But even though I say you participate [in] yourself, “in yourself” means still you participate yourself from where? Outside. Psychologically, philosophically, or emotionally, you research yourself. So it’s pretty hard to participate *directly*. But Buddhism always mentions this point.
 
-[...] According to this koan, Joshu Zen Master says [...] that monk saw a log bridge: that is studying from the outside, through his imagination, through his ideas of what Chao Chuo was. But he didn’t participate in the stone bridge itself.  To see the stone bridge is to participate in himself, as he is. In other words, he has to understand, he has to be one real reality... of himself. That’s why Joshu Zen Master says it like this.
+[...] According to this koan, Jōshū Zen Master says [...] that monk saw a log bridge: that is studying from the outside, through his imagination, through his ideas of what Chao Chuo was. But he didn’t participate in the stone bridge itself.  To see the stone bridge is to participate in himself, as he is. In other words, he has to understand, he has to be one real reality... of himself. That’s why Jōshū Zen Master says it like this.
 
 But, “What is the stone bridge?” What is participating in yourself directly? What is it?
 
-Joshu Zen Master didn’t say anything sharp and instructive. He uses a very usual case: so-called stone bridge. Anything – donkeys, horses – anything can pass through. That means to participate in yourself is to learn yourself who is really boundless, vast. Accepting anything. Donkeys, horses... suffering, pain... all pass through. [Spring water gushing out] from the ground, constantly. If you knock on the door, anything comes up. Wonderful capability comes up, [which] you have never expected.
+Jōshū Zen Master didn’t say anything sharp and instructive. He uses a very usual case: so-called stone bridge. Anything – donkeys, horses – anything can pass through. That means to participate in yourself is to learn yourself who is really boundless, vast. Accepting anything. Donkeys, horses... suffering, pain... all pass through. [Spring water gushing out] from the ground, constantly. If you knock on the door, anything comes up. Wonderful capability comes up, [which] you have never expected.
 
 You don’t believe zazen, but if you do zazen, you can experience this.
 
@@ -157,7 +157,7 @@ I became a monk at 18 years old, and I didn’t have *any* idea of Buddhism, any
 
 This is not only my case: your case too. So, anyone. If you want to become a doctor, anyone can do it, okay? Even though according to your grade in high school or university it’s not good, still a possibility is there. Anyone.
 
-So that is, Joshu Zen master says, “Let the asses cross, let the horses cross.” It means your nature is really bottomless. Vast.
+So that is, Jōshū Zen master says, “Let the asses cross, let the horses cross.” It means your nature is really bottomless. Vast.
 
 #### 41:41
 
@@ -353,7 +353,7 @@ That is called to take care of life on the basis of emptiness.
 
 At that time, your life really works pretty well.
 
-That’s why Joshu Zen Master says... well, he doesn’t use such a big term [as] I have explained like this. He says, “Let the donkeys cross. Let the horses cross.” That means, when you are right in the middle of *kinhin*, let the *kinhin* cross. Next moment, [in] the zazen, let the zazen cross. When the thoughts come up right in the middle of *kinhin*, let the thoughts cross. But we don’t let the thoughts cross. We are stuck there. We are stuck in thought.
+That’s why Jōshū Zen Master says... well, he doesn’t use such a big term [as] I have explained like this. He says, “Let the donkeys cross. Let the horses cross.” That means, when you are right in the middle of *kinhin*, let the *kinhin* cross. Next moment, [in] the zazen, let the zazen cross. When the thoughts come up right in the middle of *kinhin*, let the thoughts cross. But we don’t let the thoughts cross. We are stuck there. We are stuck in thought.
 
 So he uses just a simple word, pointing out everyday life. But this is a great important teaching Buddha mentions constantly in his life.
 
