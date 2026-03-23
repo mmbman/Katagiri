@@ -29,7 +29,7 @@ And then this total dynamic working is something difficult to understand or to s
 
 So always there is a form, but simultaneously no form. That’s why *no form* means form returns to total dynamic working, so no form. That’s why [we say] “emptiness is form, form is emptiness.” 
 
-#### 1 - 5:50
+#### 1-5:50
 
 Ryokan Zen Master, when he was about to die, was asked by his disciples, “What do you think about life and death?” He said, “A maple leaf, showing its back and front. It is falling.” Can you see this? “A maple leaf showing its back and front; it is falling” means there is only total dynamic working, so-called *to be falling*. 
 
@@ -43,7 +43,7 @@ Finally, whatever you say, whatever ideas you make, whatever wonderful philosoph
 
 So that’s why Ryokan says [life and death is] just a maple leaf. Maple leaf is his life, his death; nothing but just a leaf. [What does] Ryokan’s life as a maple leaf teach us? Nothing special; just showing its front and back, and constantly it is falling. That’s it.
 
-#### 1 - 11:45
+#### 1-11:45
 
 Dōgen Zenji uses the term *the entire universe of the ten directions*. This is a technical term; Buddhism often uses this term. *Ten directions* means not only spatial dimensions but dimension in time too. Completely, totally. So what is the universe, what is universal life? Universal life is nothing but the entire total dynamic working, motion, function. That’s it. 
 
@@ -51,7 +51,7 @@ So very naturally, Dōgen Zenji [says] that is your body, [which is called] the 
 
 So your body is just like that. But you always see your body as just like “my body,” a form, nothing *[unintelligible]*. It’s very difficult for us to see that the body [is that] which is vividly jumping along, or vividly living. We don’t see it. That’s why Dōgen Zenji has to say this continually, and also we have to listen to it constantly, again and again... a thousand times, a million times. Otherwise it doesn’t penetrate your body; you don’t understand it. 
 
-#### 1 - 14:50
+#### 1-14:50
 
 And also, if our body is just like something vividly living, [in] which nothing is pinned down – if so, what is the practice of mindfulness, observing the body as impure? 
 
@@ -101,7 +101,7 @@ So constantly you have to work on this. How? Zazen is the simple, [straightforwa
 
 Do you have questions? 
 
-#### 2 - 7:30
+#### 2-7:30
 
 **Question:** Roshi, what do you mean by the term *time*? 
 
@@ -189,7 +189,7 @@ That’s very difficult to understand, the basic relationship among each individ
 
 So through this consciousness, we have to know the more basic nature of the mind, consciousness. That is called *mind-only*. Open to everything. That is the basic nature of existence. 
 
-#### 2 - 26:00
+#### 2-26:00
 
 **Question:** Does the practice help one become aware of the ten directions? The ten directions, I’m curious, is that in space and time?
 
@@ -205,7 +205,7 @@ So through this consciousness, we have to know the more basic nature of the mind
 
 The ten directions means myriad directions. Okay? 
 
-#### 2 - 27:34
+#### 2-27:34
 
 **Question:** [About] space and time ... In physics, they teach that [...] time and space and you are one point, and the next moment, here and now, so like each event, [...] occupies each point. And a person tends to think you are a person who is looking at those coordinates, but usually you are just a point, and sometimes you can draw the line of yourself, ...  *[unintelligible.]*
 
@@ -225,7 +225,7 @@ The ten directions means myriad directions. Okay?
 
 If you’re interested in that story, that’s pretty good. So you should study that in your whole life. It’s a very interesting koan there.
 
-#### 2 - 31:05
+#### 2-31:05
 
 **Question:** A quick question about mindfulness: is there something called mindfulness in thinking? Not only in action and doing something?
 
@@ -233,7 +233,7 @@ If you’re interested in that story, that’s pretty good. So you should study 
 
 So the definition of mindfulness is not to forget dharma. That is the definition of mindfulness. And the definition of *shamata*, *samadhi*, is to dwell in dharma. Do you understand the difference between *shamata* [or] *dhyāna* [or] *samadhi* and also *mindfulness*? Well, idealistically, okay? Idealistically, if you want to know the definition of mindfulness, it is not to forget the dharma. So you have to move toward dharma, in many ways, constantly. But you are very often backsliding. So that’s when we need that practice of mindfulness. But *dhyāna*, *samadhi*, is to dwell in, to be present constantly there. That is *samadhi*. We say *shamata*. 
 
-#### 2 - 33:00
+#### 2-33:00
 
 **Question:** Roshi? There’s something you said this morning, and I don’t even know if I understand it well enough to ask the question. The word might have been *shamata*, I don’t know, but you used one Japanese word and then you said that was right on the edge of human life. You said we’re one ... right on that edge, this other one [is also] the beginning. I didn’t understand how you were using human life, and I don’t understand the other word you used. 
 
@@ -259,7 +259,7 @@ So that is a moment. So very quick, *very* quick. So we cannot see it through th
 
 But anyway, moment is appear and disappear, from this point moment has its beginning and end. But strictly speaking, no end, no beginning, because it’s very quick. And then where does it go? Space. It’s just like atoms, you know... *[he laughs]* ... [splitting the atom], energy comes up. The nucleus itself is very tiny, but [very powerful when it works]. So the moment is very tiny; we don’t know it. But when it works, it’s huge. 
 
-#### 2 - 38:10
+#### 2-38:10
 
 **Question:** I have a question regarding free will. If what you do depends upon the previous efforts you made, then where does the freedom come in to make an effort that will determine your future? 
 

@@ -23,7 +23,7 @@ Katagiri Roshi discusses “demons-becoming-buddhas,” “buddhas-becoming-budd
 > 
 > (From Katagiri Roshi’s translation of *Sanjūshichi-bon-bodai-bunpō*, “Thirty-Seven Conditions Contributing to Bodhisattva Practice”, in *Shōbōgenzō*.)
 
-#### 1 - 02:16
+#### 1-02:16
 
 > Studying in such a manner, ...
 
@@ -53,7 +53,7 @@ Apparently [whether it’s] you washing your face or another person washing thei
 
 Anyway, that’s why Dōgen Zenji says, “Studying in such a manner.” We have to study, observe, contemplate, and research our life in this way. That is called deepening your life. Not seeing your life in the flat dimension. Seeing your life in the flat dimension, that life is very realistic, reasonable – but very thin. Not so deep. 
 
-#### 1 - 13:24
+#### 1-13:24
 
 So Dōgen Zenji first says like this, “Studying in such a manner, ...”, and,
 
@@ -113,7 +113,7 @@ So it’s very difficult to just bow; exactly *just bow* [is] very hard. But we 
 
 So that’s why that practice is really [to] *subdue* or profound[ly end]. This is cutting off that thread. That is simple. From moment to moment, day by day, we have to do it. Because we have a mind, this kind of mind; very sticky mind there. So in our whole life, we have to do it just like this.
 
-#### 1 - 38:16
+#### 1-38:16
 
 And then, “... and make buddha with demons.” So when you stumble in the realm of demons, you have to spring back in the realm of demons, not anything *else*. You have to stumble and you have to spring back again in *there*, not in [any] other. 
 
@@ -139,7 +139,7 @@ But we don’t do it. If we stumble over in the realm of woman, we try to get so
 
 But anyway, even [if] you don’t understand the meaning [of] “[in the time of] demons-becoming-buddha we subdue demons and make buddha with demons,” this is really true. So in your whole life, what does it mean? You have to contemplate, you have to observe the significance of Dōgen’s statement in your whole life. 
 
-#### 2 - 01:22
+#### 2-01:22
 
 Next he says, 
 
@@ -153,7 +153,7 @@ So “in the time of buddhas-becoming-buddha we are mindful of buddhas and make 
 
 That is called *bodhi mind*; I mention it very often. *Bodhi mind*, the way-seeking mind. At that time, [if even for a moment] you can return to the center, so-called quiescence, *shamatha*, you can be mindful of buddhas and make buddhas with the buddhas, because your body and mind is buddha. 
 
-#### 2 - 05:22
+#### 2-05:22
 
 So next, he says:
 

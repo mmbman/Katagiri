@@ -161,13 +161,13 @@ That’s why Buddhism [teaches] three meanings of permanence. So permanence is n
 
 #### 47:12
 
-**Question:** Hojo-san, when you’re mentioning that when you’re behaving morally and ethically, you say “I’m a very good boy,” “good saint” and so forth, and then that’s ego. At the moment that you realize that that’s ego coming in, is that manas?
+**Question:** Hojo-san, when you’re mentioning that when you’re behaving morally and ethically, you say “I’m a very good boy,” “good saint” and so forth, and then that’s ego – at the moment that you realize that that’s ego coming in, is that *manas*?
 
 **Katagiri Roshi:** Yes, ego.
 
 **Questioner:** Realizing that it’s ego?
 
-**Katagiri Roshi:** Yes; ego is *still* working there. Even though you do zazen and are constantly seeing and feeling who you are, how ego is working very deeply, still ego is working. So that’s why very naturally pride is coming up; it’s very difficult to be patient, or it’s very difficult to be humble. Always there is the ego. Even though you see the truth, [...] you attach to it, because it’s very beneficial to you. Ego consciousness realizes how beneficial realization of alayavijñāna is, and then *attaches* to it. *[He laughs.]* And then manas brings that attachment into the six consciousness world. 
+**Katagiri Roshi:** Yes; ego is *still* working there. Even though you do zazen and are constantly seeing and feeling who you are, how ego is working very deeply, still ego is working. So that’s why very naturally pride is coming up; it’s very difficult to be patient, or it’s very difficult to be humble. Always there is the ego. Even though you see the truth, [...] you attach to it, because it’s very beneficial to you. Ego consciousness realizes how beneficial realization of *alayavijñāna* is, and then *attaches* to it. *[He laughs.]* And then manas brings that attachment into the six consciousness world. 
 
 And then, at that time, manas really forces you to get everyone to believe something you have. That’s why, if you believe something religiously, you’re always forcing people, in many ways: “You should believe *this*; if you don’t, you are stupid.” *[He laughs.]* 
 
@@ -183,9 +183,9 @@ But that is nothing to hurt anything, because in that realm of the world, all se
 
 So that is the bodhisattva category and buddhas category; you should learn this. This is the advantage of practice for human beings. 
 
-[...] If you are a priest, you should taste and chew and digest what I told you today again and again. And then read this *Genjōkōan*; then you can really feel the spirit. 
+[...] If you are a priest, you should taste and chew and digest what I told you today again and again. 
 
-So tomorrow I want to get into this [*Genjōkōan*].
+And then read this *Genjōkōan*; then you can really feel the spirit. So tomorrow I want to get into this [*Genjōkōan*].
 
 One more thing. Usually people say, “You should attain enlightenment. You should be aware. If you’re not aware, if you don’t realize, if you don’t attain enlightenment, you are not Buddhist; you are a stupid guy.” *[Laughter]* That is not the Buddhistic way; no. It’s a complete misunderstanding. Alright?
 

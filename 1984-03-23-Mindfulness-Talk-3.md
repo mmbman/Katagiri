@@ -31,7 +31,7 @@ I translated [it] a different way from this [other version translated by Kōzen 
 
 But that’s a very interesting thing which always happens in *Shōbōgenzō*, [that is that] people don’t understand, and if people don’t understand it, we try to make *Shōbōgenzō* read in an easy way. But if you do that, the translation becomes very shallow. Through that translation you can convey Dōgen’s thought or religion in a sense, but in a shallow way. It’s pretty difficult to translate it into English, or into modern Japanese *[he laughs]*. It’s pretty hard. So that’s why we have to face directly the original text and try to understand it. That’s pretty important. For century after century, many priests and monks have done it in that way. 
 
-#### 1 - 6:56
+#### 1-6:56
 
 > Observing the body is body observing, that is not the observation of other things.
 
@@ -55,7 +55,7 @@ So [it is] not the idea of mindfulness, because... [Let me say] that observation
 
 Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it [...] by your sense... see something alive between [them], how subject and object are working together. That is interpenetration, or *interdependence*, we say. 
 
-#### 1 - 17:15
+#### 1-17:15
 
 Yesterday I told you about the poem composed by Ryokan: 
 
@@ -71,7 +71,7 @@ Real observation is just total dynamic working between the tape recorder and I. 
 
 So that is observation. Observation is completely oneness, and oneness is emptiness: nothing to pin down. That is called *the-same-and-one-nature*. So the front of the maple leaf is always functioning in the realm of the-same-and-one-nature, [the back] is always working in the realm of the-same-and-one-nature. What is this? What is the functioning, what is the total dynamic working of the maple leaf? That is called emptiness. 
 
-#### 1 - 22:42
+#### 1-22:42
 
 Yesterday I told you that liberation comes from action, but don’t misunderstand this *action*. That action must be based on emptiness. Don’t expect something liberated by the practice of liberation, by the practice of your action. No, because your action must be liberated. 
 
@@ -85,7 +85,7 @@ Action is important for us, but action shouldn’t be based on any ‘ism’. Yo
 
 It is pretty difficult to do that. It’s pretty difficult to act on the basis of emptiness, because if you act, very naturally act follows thinking, judging, evaluation, and next moment, [there are] affective preferences. So [it’s] very difficult; that’s why action itself must be free, liberated. [If] you want to act in order to get something by your action, your action must be liberated. How? That’s a pretty difficult practice for us! That’s why we’re always practicing like this, learning the teaching. You cannot just act as you like. No, you cannot act in that way. 
 
-#### 1 - 28:48
+#### 1-28:48
 
 So very naturally [Dōgen Zenji says], “Observing the body is body observing.” Observing the tape recorder, *who* observes? Finally, nothing. Right in the realm of nothing... and then something appears. In the world of nothing, it’s not nothing; simultaneously [something] comes up. That is a creation. So if you see the something created, so-called *I*, and then *I* observe, only *I* appears. *I* observe *I*. That’s it! And then, all sentient beings support *me*, support my observation. 
 
@@ -103,7 +103,7 @@ At this very moment, observation is very excellent. [There is] no [comparison]. 
 
 The total dynamic working consists of the idea of front and back, but right in the middle of total dynamic working you cannot pin down what is front or back, because it’s working. So it’s really something alive. That is called “far and away the most excellent occurrence.” Constantly going. 
 
-#### 1 - 36:20
+#### 1-36:20
 
 > When body observing is manifested, mind observing cannot be groped and found, nor manifested. 
 
@@ -157,7 +157,7 @@ So that is called *vajra samadhi* and *śūraṃgama samadhi*.
 
 So that is the practice of *mindfulness*.
 
-#### 2 - 8:36
+#### 2-8:36
 
 > The principle behind Shakyamuni’s sighting of the morning star at dawn is called *observing the body as not-pure*. 
 
@@ -193,7 +193,7 @@ And then, deal with [it].
 
 Do you have questions? 
 
-#### 2 - 16:14
+#### 2-16:14
 
 **Question:** What was the name of the poet who wrote the poem about the maple leaf?
 
@@ -249,7 +249,7 @@ That is Zen teaching. So it’s not art. It’s very boring. *[He laughs.]* It�
 
 So, Ryokan also says, “My poem is not a poem, people say.” So his poem is not a poem. So [...] his poem or Basho’s poem are not real poems. It’s life. But if you want to compose a wonderful poem, you have to say something more. Just like Ryokan. You have to stretch one simplicity, in a beautiful sense, in an artistic sense, and then you become a great poet, you become a great artist. Basho did sometimes, but Basho didn’t do it in that way. Very simple expressions. That’s why it’s not art. Ryokan says his poem is not a usual poem. 
 
-#### 2 - 29:16
+#### 2-29:16
 
 **Question:** Roshi? When you talk about emptiness and no-emptiness, and you say that how to attain or reach emptiness, you say practice. But how do we practice with no goal, and with nothing to attain, just being empty? So no purpose, no idea. Because I know practice is not a tool to emptiness, but how to do practice with no purpose? 
 
@@ -307,7 +307,7 @@ That is simplicity. Simplicity is very simple, pure simplicity, *[he laughs,]* b
 
 It’s very difficult to understand it, but practically, it’s very simple, that’s why you have to practice it. Still there is a universal openness to everyone, to get into that simplicity, through the practice. Even though you don’t understand the principle of that practice, still there is a chance. So let’s do it! But you cannot do it by yourself, because our action is already complicated. That’s why we need practice under the guidance [of a teacher]. Anyway, guidance. 
 
-#### 2 - 40:52
+#### 2-40:52
 
 **Question:** [In] Zen practice, are you supposed to pick out a spot on the wall and stare at it, and you’re actually supposed to be looking at the wall? At one point on the wall, and maintaining [that]?
 
@@ -333,7 +333,7 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 **Katagiri Roshi:** Oh, I think so! *[He laughs.]* Idealistically. I would like to have a big zendo! But it’s impossible now, so I should practice patience. *[Laughter.]* So, facing the wall: that’s alright. But not only one point. A certain area, a little bigger area. 
 
-#### 2 - 43:02
+#### 2-43:02
 
 **Question:** [...] When you said to practice Buddhism first you have to have a strong faith in the Buddhist teaching, and you have to keep listening to it. And when you’re doing those, I think it’s true in other religious groups, we’re the same way. And well, to find out that you have to be very careful to listen to those, but still for me we are doing something we don’t know yet. I mean, we know as a teaching, but we don’t know what kind of things we can base on to judge [whether] we are doing the right thing or the wrong thing... 
 
@@ -341,7 +341,7 @@ It’s very difficult to understand it, but practically, it’s very simple, tha
 
 Anyway, let’s have a white canvas of your life. *Faith* or *not faith* doesn’t matter: your life is a white canvas. Temporarily, it’s called *faith*, because that faith is supporting your life. That white canvas is open to you and to everyone. To your future. You can draw any kind of thing ...
 
-#### 2 - 45:22 end of recording
+#### 2-45:22 end of recording
 
 ---
 

@@ -41,7 +41,7 @@ That’s why this is *nen jo*. At that time, the place or occasion is really ope
 
 So, “We should clarify that principle or the truth”: that is really the truth... open, universal to *everyone*, regardless of whether you become a Buddhist or not. Christian or non-Christians, it’s really universal. So that is we should study *that* truth, or principle, open to everyone, or trees, birds, everything. That [is], there is a road, or passageway, [an] approach, at the place where we are moving in the deep course of practice.
 
-#### 1 - 09:10
+#### 1-09:10
 
 And then in the next passage, Dōgen Zenji takes the method of washing the robe as an example. Let me read it first: 
 
@@ -83,7 +83,7 @@ Just like a dancer always practices. If you want to be a dancer you have to cont
 
 So, “Although the robe is cleaned with the aid of water and by changing the water, water is still being used, and the robe is being washed.” Anyway, it’s communication. Dynamic communication is taking place, constantly. 
 
-#### 1 - 20:56
+#### 1-20:56
 
 And then next he says, 
 
@@ -173,7 +173,7 @@ So all you have to do is, no matter what situation happens – dirty water, clea
 
 That’s all I want to say today. Do you have questions? 
 
-#### 2 - 11:54
+#### 2-11:54
 
 **Question:** Hojo-san? When we’re sitting zazen and doing shikantaza, just following our breath, is that zazen contaminated too? 
 
@@ -199,7 +199,7 @@ In other words, I say, “Don’t think,” so you try to not think, and then in
 
 It’s very quiet.
 
-#### 2 - 15:07
+#### 2-15:07
 
 **Question:** I don’t quite understand what you’re talking about, about the persimmon. You said when the persimmon is just on the tree, it’s like saying, “I’m ready.” 
 
@@ -231,7 +231,7 @@ It’s very quiet.
 
 **Same person:** Yeah, that’s what I was wanting to [say].
 
-#### 2 - 17:15
+#### 2-17:15
 
 **Question:** Roshi? Your picture of preserving the seed, like in storage somehow, I don’t think I understand how that’s different than protecting oneself. 
 
@@ -267,7 +267,7 @@ So, living in peace and harmony is not taking a nap. It’s to be concerned abou
 
 But people don’t understand this one. If you say only “peace” – just peace, just like taking a nap. I don’t think it’s taking a nap, that’s not peace. That’s a *sleeping* peace. Peace must be alive, interconnected, interpenetrated with all sentient beings. 
 
-#### 2 - 22:34
+#### 2-22:34
 
 **Question:** Maybe it’s a kind of stupid question, but why do we like peace so much? Here we are, staying here, watching the wall for five days. And you are still saying [that] even then, you have to practice a lot, for life, maybe life after life, to get some kind of peace and harmony. But emptiness tells you, even if you practice a lot, you may be not going to get something like that. And still we want to do those things. Is it [obvious] that we like peace and harmony? 
 
@@ -283,7 +283,7 @@ So we are buddha. Why do we have to practice like this always? We are peace, we 
 
 Okay?
 
-#### 2 - 26:00
+#### 2-26:00
 
 **Question:** Hojo-san? [How long] did Tozan and Ungan...
 
@@ -313,7 +313,7 @@ Well, even if in the story he didn’t burn the hut, in the meaning, in the deep
 
 **Katagiri Roshi:** [He] had to go back to the monastery to have a meal and et cetera... if he [wasn’t burned up]. *[Laughter.]* If he [was burned] up, he has to *completely* go back. *[He laughs. Laughter.]* 
 
-#### 2 - 28:50
+#### 2-28:50
 
 **Question:** Hojo-san, could you say something about the practice of mindfulness in daily life? I’m a little bit confused about what it is now that you’ve explained. *[Laughter.]*
 
@@ -351,7 +351,7 @@ The same applies to mindfulness.
 
 So mindfulness is, simply speaking, mindfulness. *[He chuckles.]* For instance, if you see the book, and deal with the book, hold the book with mindfulness. Okay? That’s it.
 
-#### 2 - 33:05 end of recording
+#### 2-33:05 end of recording
 
 ---
 

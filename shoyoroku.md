@@ -6,7 +6,7 @@ Between 1973 and 1975, Katagiri Roshi gave talks on most of the cases in *Shōy�
 
 ##### Case 21: Yunyan Sweeps the Ground
 
-- [“Mindfulness – Talk 1” at 2 - 14:39](1984-03-21-Mindfulness-Talk-1#2---1439)
+- [“Mindfulness – Talk 1” at 2-14:39](1984-03-21-Mindfulness-Talk-1#2-1439)
 - [“Zazen: Dropping Off Body and Mind”](1987-01-24-Zazen-Dropping-Off-Body-and-Mind)
 
 ##### Case  23: Roso Faces the Wall

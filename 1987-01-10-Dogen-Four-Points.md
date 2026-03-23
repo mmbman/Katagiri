@@ -185,7 +185,7 @@ So don’t be disappointed. But don’t be proud of yourself too much. Anyway, b
 
 And then continue to practice it. That’s very important for us.
 
-#### 2 - 06:35 end of recording
+#### 2-06:35 end of recording
 
 ---
 

@@ -8,5 +8,3 @@ Search the Katagiri Transcripts site using the Google search engine. (Skip past 
 <script async src="https://cse.google.com/cse.js?cx=2232cceef1ab492af"></script>
 <div class="gcse-search"></div>
 </div>
-
-You can also try your luck with the incomplete [Topic Index](topics).

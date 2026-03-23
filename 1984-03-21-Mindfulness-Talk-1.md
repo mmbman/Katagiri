@@ -58,7 +58,7 @@ This is one paragraph. As a conclusion, this paragraph says [that] practice of t
 
 But [Dōgen also] explains why we have to do it. Because in ancient times, this practice was done by monks, contemplating the body as impure – why is it he has to say contemplating the body *beyond* the idea of purity or impurity? This is the explanation, here. So little by little, we want to [study it].
 
-#### 1 - 16:00
+#### 1-16:00
 
 First of all, he says:
 
@@ -86,7 +86,7 @@ If you [do] religious practice in the moral sense, you never get a peaceful mind
 
 So very naturally we have to consider again and again what religious practice is. We have to go beyond religious practice in the moral sense. That is very important for us. 
 
-#### 1 - 26:16
+#### 1-26:16
 
 I use the word *observation* or *contemplation*. I don’t know. In Sanskrit we say *vipassana*. Vipassana is “insight” or “discernment.”  
 
@@ -116,7 +116,7 @@ So that’s why you cannot pin down what is your human body. At that time, that 
 
 That’s why first he [speaks] like this. That’s why “the observation that the body is impure is observing that the body is a bag of skin that covers the entire universe of the ten directions.”
 
-#### 1 - 37:44
+#### 1-37:44
 
 [The next sentence is:]
 
@@ -148,7 +148,7 @@ That’s why Dōgen Zenji says, “This is the *true* body.” [...] Your body i
 
 So, this is the *true* body, and therefore it is observing the body as impure, which is vividly living. 
 
-#### 2 - 2:26
+#### 2-2:26
 
 And next he says,
 
@@ -182,7 +182,7 @@ But we always make effort to do zazen in terms of a result. We want to always se
 
 Even if you don’t see it or you don’t notice this, our life is going just like this. So that’s why we have to explain this. But actually we don’t believe it, because we always first [looking for] the result of what we have done, and then sometimes it is great encouragement for us, sometimes disappointment for us. So we give up, or we try to do it more... up and down, up and down, always. 
 
-#### 2 - 9:45
+#### 2-9:45
 
 So no body is no attainment of practice, no attainment of the teaching, no attainment of observation. *But*, he says:
 
@@ -202,7 +202,7 @@ What is the observation that has already been actualized? It is nothing but the 
 
 That’s why he says, “So you should know that it is attainment of jumping-around-ness”. That means *transcendent*. We say *transcendent*, but we don’t understand it. What does *transcendent* mean? It is not that you should keep away from something, going to something else; that’s not to transcend. *Transcend* is that you are always there, but there is no trace of you or your object. You are sick, but you are always right in the middle of sickness, [so] no trace of sickness is left; that is called transcendent. So it’s not to escape from sickness. You have to really be working constantly, just like spring water coming up. So that’s why it says it like this here. 
 
-#### 2 - 14:39
+#### 2-14:39
 
 > The attainment of observation lies in such daily activities as sweeping the grounds and wiping the floors. 
 
@@ -238,7 +238,7 @@ So doing zazen is exactly suchness, the vastness of the entire whole world. [It�
 
 Just like sleep; exactly like sleep. If you sleep, you cannot perceive sleep, so no object. If there is no object, no subject. So *who* sleeps? You don’t know. But *you* sleep, clearly. So second moon, third moon is there. But practically, all you have to do is, lift your broom. And then, you have to say, “You sleep with which moon?” Just sleep. 
 
-#### 2 - 21:34
+#### 2-21:34
 
 So that is the first paragraph [of “The Thirty-Seven Conditions Contributing to Bodhisattva Practice”], where Dōgen Zenji explains the meaning or significance of this practice of mindfulness. What does it mean to observe the body as impure? It is completely different from the usual, traditional understanding. 
 
@@ -254,7 +254,7 @@ But people misunderstand everyday activities in the common sense. [Everyday acti
 
 Do you have some questions?
 
-#### 2 - 25:50
+#### 2-25:50
 
 **Question:** Roshi, when you say “no trace,” do you mean no conscious perception?
 
@@ -290,7 +290,7 @@ The same applies to our activities. Zazen is exactly [like this]; you can practi
 
 **Katagiri Roshi:** That is called *shikan*: wholeheartedness. Or [speaking of consciousness], in *Tenzo Kyōkun* it says there are three minds: magnanimous mind, parental mind, joyous mind. If you want to express it in terms of the human emotional aspect, you can say magnanimous mind; psychologically, you can explain it like this. But your practice as activity is nothing but *shikan*: just [be].
 
-#### 2 - 30:10
+#### 2-30:10
 
 **Question:** *[Unintelligible]* *shikan*, doing things without any trace, is automatically leading to the right way and the bodhisattva way?
 
@@ -308,7 +308,7 @@ Don’t misunderstand this one. People always think, “that is zazen.” Someti
 
 Real Zen penetrates every area of human life; never only a certain area [like] stealing money from a bank. [After] stealing from the bank, washing your face, and walking on the street, *always* real Zen penetrates, helping. Or right in the middle of death, or after death, or before birth, wherever you may be – Zen helps. This is real Zen. 
 
-#### 2 - 36:03
+#### 2-36:03
 
 **Question:** Before you were saying that if we have a *[unintelligible]*, like bank robberies, in doing your zen, that’s short range. How about in taking vows then, too; if we vow to save all sentient beings, is that looking at things in the short range?
 
@@ -318,7 +318,7 @@ I always say [that] vow is just like to swim in the ocean, which is vast. There 
 
 That’s why, in a sense, consciousness always feels “boring.” Zazen is a little boring. That’s why people cannot stand up there. So very naturally, even the teacher also cannot stand up there. *[He laughs.]* Very naturally the teacher gives some candy [...] in the process of swimming, on the way to reach the other shore: “Here, eat this one,” always encouraging. Of course it is encouragement, but that encouragement really is available for a certain period of time [only]. But no [entertainments], anyway. This is life and death. You just swim. 
 
-#### 2 - 38:56
+#### 2-38:56
 
 **Question:** Can zazen be used as an escape from obligations in life?
 

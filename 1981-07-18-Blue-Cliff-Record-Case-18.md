@@ -37,7 +37,7 @@ What will we need after we die? What is the meaning of keeping silent? Keeping s
 > After the National Teacher passed on, the Emperor summoned Tan Yuan and asked him what the meaning of this was. Tan Yuan said,
 >
 
-(Here is Tan Yuan’s verse without [Hsueh Tou](glossary#setchō-jūken)’s comments:)
+(Here is Tan Yuan’s verse without Hsueh Tou’s comments:)
 
 > &nbsp;&nbsp;&nbsp;&nbsp;South of Hsiang, north of T’an;  
 > &nbsp;&nbsp;&nbsp;&nbsp;In between there is gold sufficient to a nation.  
@@ -72,9 +72,9 @@ This is a very common question to a person who is about to die: “What do you w
 
 A *seamless monument* is a very... what would you say... common term in Buddhism. (*Transcriber’s Note:* He might mean it’s a common concept.)
 
-If you go to [Eiheiji](glossary#eiheiji) monastery, in front of the gates there is a [huge] lantern by a small pond, where people let go of fish and turtles, whatever. That is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. So by this pond you have a big lantern. You know the lanterns in the temple? Not like this [little type of] lantern; you can see them in pictures. (*Transcriber’s Note*: A stone lantern, the size of a monument.) 
+If you go to Eiheiji monastery, in front of the gates there is a [huge] lantern by a small pond, where people let go of fish and turtles, whatever. That is *freedom*; that pond is a place for the fish and turtles to be free from the dangerous situation in life. So by this pond you have a big lantern. You know the lanterns in the temple? Not like this [little type of] lantern; you can see them in pictures. (*Transcriber’s Note*: A stone lantern, the size of a monument.) 
 
-[In Zen] this is called a *seamless lantern*. That means that pond is called *hosho-ike*, which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of them. [So it’s] *formless*. In [*Prajñāpāramitā \[Sutra\]*](glossary#prajnaparamita), we say *formless*, no form: no eyes, no ears, [et cetera]. 
+[In Zen] this is called a *seamless lantern*. That means that pond is called *hosho-ike*, which means “let the beings be alive” – just let go of [these beings]. So for this, you cannot have any attachment to fish and turtles you have caught; just let go of them. [So it’s] *formless*. In *Prajñāpāramitā [Sutra]*, we say *formless*, no form: no eyes, no ears, [et cetera]. 
 
 So a seamless lantern or a seamless monument is not a particular monument or lantern, but this is exactly [the] picture of life and death. Life is really a seamless lantern, seamless monument. 
 
@@ -82,7 +82,7 @@ So a seamless lantern or a seamless monument is not a particular monument or lan
 
 [When you] take care of life just like a seamless monument, then at that time you can really transmit human culture to the next generation. 
 
-Because in our life, what we can perceive is filled with pros and cons, successes and failures, pleasure and suffering. Lots of stuff there, named [zazen](glossary#zazen), and [Katagiri](glossary#katagiri), and the trees; and suffering, life and death, old age and sickness, et cetera. Lots of stuff in human life. But this is [to take up] those names. [...] You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them [out]. What’s left? 
+Because in our life, what we can perceive is filled with pros and cons, successes and failures, pleasure and suffering. Lots of stuff there, named zazen, and Katagiri, and the trees; and suffering, life and death, old age and sickness, et cetera. Lots of stuff in human life. But this is [to take up] those names. [...] You call it life and death. Take off those clothes completely – life and death, old age and sickness, and trees, birds, suffering, et cetera – completely take them [out]. What’s left? 
 
 That *what’s left* is really important, because this is the *quality* of life. *Life* is already a name you put on it, but you have to know the *quality* of life. You say death, but that death is a *name* of death which you put on it. You have to know the real quality of death. What is the quality of death?
 
@@ -126,7 +126,7 @@ And then,
 
 Well, this “I don’t understand” has two meanings, okay?
 
-[Bodhidharma](glossary#bodhidharma) also said this: when Emperor Wu asked him, “Who are you, in front of me,” he said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one, at that time there is nothing to dichotomize, or contaminate. 
+Bodhidharma also said this: when Emperor Wu asked him, “Who are you, in front of me,” he said, “I don’t know.” This is also “I don’t [understand].” He knows pretty well; he knows very clearly who he is. [But] becoming one, at that time there is nothing to dichotomize, or contaminate. 
 
 For instance, when you really do something with wholeheartedness – cleaning the room, [or] putting the [coins] in the [slot] machine – at that time you don’t know who you are, or you don’t know how fast time is going. You don’t care about the time; you’re really one. At that time if people ask you, “What time is it,” you say, “I don’t know.” But it’s really late, you know?
 
@@ -148,7 +148,7 @@ The “I don’t know” of Emperor Wu – I don’t know which of the two it wa
 
 So finally, the National Teacher was silent for a long time. Then he said, “Do you understand?” 
 
-In [Shōbōgenzō “Four Horses” (Japanese: *Shime*)](topics#four-horses), Dōgen Zenji says, \[quoting from a] [Saṃyukta Āgama](glossary#saṃyukta-āgama) sutra:
+In *Shōbōgenzō* “Four Horses” (Japanese: *Shime*), Dōgen Zenji says, \[quoting from a] *Saṃyukta Āgama* sutra:
 
 > The Buddha said to the assembled monks, “There are four kinds of horses. The first kind immediately follows its rider's will when, in surprise and fear, it sees the shadow of a whip. The second does likewise when the whip strikes its hair. The third, however, does not obey its master until after the whip has struck its flesh. The fourth, finally, does not do so until the whip has reached its very bones.”
 > 
@@ -222,7 +222,7 @@ If so – is zazen just to sit down without doing anything? No, it doesn’t mea
 
 That is teaching coming from your back. This is teaching coming from a *powerless power* [that] you can get from your practice. Behind the effort, there is a great power. Effort is not something [where] you can create power to teach or to understand behind this effort. *Behind the effort* means the world unfolded totally, beyond the name of concentration, the name of practicer, the name of stinkiness – whatever you say, it doesn’t hit the mark. Anyway, take off any [of these] clothes. And then what’s left? Nothing to say. 
 
-So keep silent. *Keep silent* is what? *Keep silent* is not just [stumbling toward], it’s really working, which is called zazen. You have to really work. That is [Buddhistic](glossary#buddhistic) silence; really silent. Silence is [to] totally accept your life, including the whole world. 
+So keep silent. *Keep silent* is what? *Keep silent* is not just [stumbling toward], it’s really working, which is called zazen. You have to really work. That is Buddhistic silence; really silent. Silence is [to] totally accept your life, including the whole world. 
 
 Just like touching a hair: if you touch your hair, that means touching the whole world. It is really true, because from where does your hair come? Does your hair come from you? Or from the function of the organs [in] your body? Of course, but that’s still an explanation. But broadly speaking, your hair comes from where? *[Unintelligible.]* That’s great. That’s why a single hair is very important. 
 

@@ -40,7 +40,7 @@ If you do something good, you will get a good result: this is a very natural and
 
 So very naturally, we consider three kinds of *karmic retribution* in Buddhism. One is that if you do something good, that good cause will bring a good result in *this* life. The next is, maybe not in *this* life, but maybe *next* life. And then the third is, maybe *not* next life; good cause will bring good result in the life after next life. In other words, life after life: life is constantly going, that’s why maybe the good cause will bring good result in the life after next life after next life – something like that. Very naturally Buddhism considers it in that way, because if you look at human action based on causation, it teaches us how complicated it is; it’s not so simple. Dōgen Zenji also talks about these three kinds of retribution. 
 
-#### 1 - 11:50
+#### 1-11:50
 
 The question is: if you think of karma in Buddhism like this – where is this karma? [In] what part of your life does karma exist? 
 
@@ -62,7 +62,7 @@ From this point, I think Buddhism developed [even] more, [for example with] the 
 
 Anyway, karma is working in the realm of interdependent co-origination. [It is a little bit like] karma is not only belonging to human life or particular beings, but it belongs to the depths of general existence, cosmic existence. So in Mahayana Buddhism, the idea of karma is accepted in a broader perspective.
 
-#### 1 - 25:28
+#### 1-25:28
 
 So very naturally, I think if you study Buddhism in order to research what karma is, it’s still very vague. So I would like to say [something] paying attention to the human life which you are taking care of day to day. How do we accept karma [in day-to-day human life]? 
 
@@ -88,7 +88,7 @@ So from this point, I can say [it] like this: First of all, by your intellect yo
 
 That’s why we so much love the world which is clear and neat. We don’t want the “dark” aspect of the human world; we don’t want to have what we don’t understand; we try to understand *everything*. So we always ignore the back. *The back* is [what you] don’t understand. 
 
-#### 1 - 34:13
+#### 1-34:13
 
 *The back* means *space*. [...] What is space? 
 
@@ -110,7 +110,7 @@ But it is a fact that we have intellectual understanding. So from now on, what w
 
 That [is what change means]. So from now on, what you have to do is to practice a changing of the usual pattern of your intellectual system. Alright? 
 
-#### 1 - 39:03
+#### 1-39:03
 
 Another thing is, intellectual understanding always fully believes that there is nothing [after] you die. Your skin, muscle, bones and marrow burn out [like a candle]. Including consciousness. *All gone*. So intellectual understanding always fully believes that death takes away everything; there is nothing left, including the other world. But – is that true? We have to think about it. 
 
@@ -126,7 +126,7 @@ Because you have to understand the whole personality – not only your life, but
 
 But we don’t believe this. We always [understand,] “Oh, that is a tree. I understand it. *I* know that.” But we never know. 
 
-#### 1 - 43:54
+#### 1-43:54
 
 So the second [point] is, even if you find a solution for the life and death problem, saying that there is the other world – it’s not enough. It’s not a final solution. Because nobody proves whether the other world exists or not. Through a book, or through philosophy, through religions, or through the words of wise people, et cetera, we [may] believe in that way, but there is *no practical proof* ...
 
@@ -150,7 +150,7 @@ So I think there is nothing to know *clearly*, [no way] to find [a] perfect solu
 
 So the first point is how narrow your intellectual world is, and that you should change a little bit, day by day, in order to understand the human world in the cosmic perspective. This is our practice. How? That is meditation. Second, [there is no way] to find a perfect solution about the problem of life and death, so all you have to do is entrust yourself to the life given to you, or [in other words,] as your life really is. 
 
-#### 2 - 04:38
+#### 2-04:38
 
 Another [point] is that to “entrust yourself to your life as it really is” doesn’t mean just to accept. No, [it means] to accept your life by the practice of faith, deep understanding. *Faith* means very profound belief; *belief* means profound understanding *and* also awareness. 
 
@@ -184,7 +184,7 @@ That is called what? *Shikan*. Zazen. Day-to-day life.
 
 But taking care of day-to-day life is not “what will be, will be.” It doesn’t mean that. Day-to-day life *is* day-to-day life, but day-to-day life directs you to the destination, through which you can see the vast expanse of human life. That is your destination. 
 
-#### 2 - 17:34
+#### 2-17:34
 
 From this way of life, you can really understand why you have to have a funeral service. [If a person dies and their ashes are scattered wherever] – that’s fine. But are you satisfied, or not? It’s questionable. So finally, we want to do something for her or him, after his or her death, *beyond* the idea of “nothing left behind after death.” It doesn’t matter; just perform a funeral service. 
 
@@ -204,7 +204,7 @@ This is karma. Practically speaking, I don’t know [what it is], but everyone c
 
 Do you have some questions? 
 
-#### 2 - 22:15
+#### 2-22:15
 
 **Question:** You said two things that I wanted to hear more about. I don’t remember them exactly. One of them was something like trusting your life. And the other one, you said when we die there is nothing left, and before we die, you were saying we can touch it, and I wanted to know if what you’re saying we can touch is *nothing left*. 
 
@@ -220,7 +220,7 @@ Why is it necessary to be aware? What is it? Don’t you think this is questiona
 
 So finally, what you have to do is what? Researching awareness? Yes! But day-to-day life, what is it? What do you have to do? Should you believe in something? Yes! But what is most important [that] you have to do? Not only that you have to do in the realm of the intellectual world, [but that] you have to do in the vast expanse of the world, something more than the intellectual world. *That’s* what I want to say: what you have to do. 
 
-#### 2 - 27:14
+#### 2-27:14
 
 **Question:** Hojo-san, there are so many references in traditional practice to “evil karma.” And when you talk, you’re talking about something much more basic, about acts and deeds that just *are*, and it’s very much broader than [that]. But then at the very end, almost the last thing you said, when you came back to talk about karma, I thought you said “maybe it’s not so good,” or something like that. What do you mean? [...]
 
@@ -232,7 +232,7 @@ So what is karma? *[He laughs.]* Finally you don’t know. Karma is bad, or karm
 
 I don’t know what karma is. But I can feel practically, deeply, something about karma extending into the past, present, future.
 
-#### 2 - 29:23
+#### 2-29:23
 
 **Question:** I understand how there can be an individual karma and a non-individual karma, but I wondered if you could say any more about how non-individual karma can apply to a certain group, like a Japanese karma, or an American karma, or a Brazilian karma. I don’t understand how there can be a non-individual karma that applies to a group, rather than to all things. 
 
@@ -282,7 +282,7 @@ But, should we ignore the individual different characters? Where should we find 
 
 That’s why Thich Nhat Hanh says, “Breathing in, I calm my body and mind. Breathing out, I smile with joy.” What is this practice? What does he mean? No discussion. But still, discussion there. But I think sooner or later we have to stop discussing, and then day-by-day we have to build up peace in the very complicated overall picture of global existence, so-called human being. This is our peace work, [religiously speaking].
 
-#### 2 - 41:05 end of recording
+#### 2-41:05 end of recording
 
 ---
 

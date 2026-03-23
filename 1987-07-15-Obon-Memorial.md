@@ -153,7 +153,7 @@ So anyway, that's why if you practice, if you do zazen, that merit of the practi
 
 So if you read *Jijuyu Samadhi*, *Jijuyu Zanmai*, on the sutra card, Dōgen [talks] about this. This is the real significance of doing zazen exactly. Sitting truly with wholeheartedness, you can taste it, this one. 
 
-#### 2 - 14:44
+#### 2-14:44
 
 Well, next, the fourth point is how do we practice this one.
 
