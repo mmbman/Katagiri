@@ -71,9 +71,9 @@ So, the ripeness of the fruit is not good enough. Because, for instance, finishi
 
 But it’s not good enough. So, you have to make your life *more* mature – until the maturity of fruit falls down to the ground and all the guts come out. That means your personality is not only working in your territory, so-called [field of] medicine, or psychology, or music. But also, when your maturity is perfected, completed, at that time your maturity, personality is working everywhere, even in daily routine, even though [it is] out of your music area or psychological area as a professional. Wherever you may go, your life is really working smoothly.
 
-That is called *freedom*, *emancipation*. Or *maturity*, or *adept*.
+That is called *freedom*, *emancipation*. Or *maturity*. Or *adept*.
 
-So, I think Chao Chou in this koan is really mature and perfect ripeness of fruit. So everything is going pretty smoothly, naturally. So nothing sharp in the words. He uses words, but those words are not very sharp. Priests’ words come up very naturally, smoothly. But lots of information is there, instruction is there.
+I think Chao Chou in this koan is really mature and perfect ripeness of fruit. Everything is going pretty smoothly, naturally. So nothing sharp in the words. He uses words, but those words are not very sharp. Priests’ words come up very naturally, smoothly. But lots of information is there, instruction is there.
 
 So that is Jōshū in this koan.
 

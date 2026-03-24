@@ -57,7 +57,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 >  
 > [SZ] The true vehicle is self-sufficient. What need is there for special effort? 
 > 
-> [EB] The Dharma-vehicle is free and untrammelled. What need is there for one’s concentrated effort? 
+> [EB] The Dharma-vehicle is free and untrammeled. What need is there for one’s concentrated effort? 
 > 
 > [KR] The dharma vehicle is free and unrestricted, why should we expend sustained effort?
 
