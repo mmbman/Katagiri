@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 13: Tathāgatagarbha & Alayavijnana"
+title: "The Awakening of Faith – Talk 13: Tathāgatagarbha & Ālāyavijñāna"
 ---
 ## May 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -40,13 +40,13 @@ So *tathāgatagarbha* is the teaching that all sentient beings are already a bud
 
 #### 15:03
 
-So still [it’s] a little bit abstract, philosophical term. Next, we have to understand how *tathāgatagarbha* works in our human life. That’s why next this book has another term: *alayavijnana*. 
+So still [it’s] a little bit abstract, philosophical term. Next, we have to understand how *tathāgatagarbha* works in our human life. That’s why next this book has another term: *ālāyavijñāna*. 
 
-So very naturally, *vijnana* means mind... not mind, *consciousness*. So this book has another term, a different term, *alayavijnana*, in order to explain how *tathāgatagarbha* works in us. 
+So very naturally, *vijnana* means mind... not mind, *consciousness*. So this book has another term, a different term, *ālāyavijñāna*, in order to explain how *tathāgatagarbha* works in us. 
 
-*Alayavijnana* is almost the same meaning as *tathāgatagarbha*, but *alayavijnana* is a *closer* idea of understanding *tathāgatagarbha* – a more *intimate* expression or intimate term, in order to understand what *tathāgatagarbha* is. *Alayavijnana* is the consciousness which has two aspects – one is the absolute, the other one is *samsara*. *Samsara* and [absolute truth]. And then this is mainly *alayavijnana* focuses on a human life in reality. In other words, you have to face human life in reality: how it is going, what is human life. 
+*Ālāyavijñāna* is almost the same meaning as *tathāgatagarbha*, but *ālāyavijñāna* is a *closer* idea of understanding *tathāgatagarbha* – a more *intimate* expression or intimate term, in order to understand what *tathāgatagarbha* is. *Ālāyavijñāna* is the consciousness which has two aspects – one is the absolute, the other one is *samsara*. *Samsara* and [absolute truth]. And then this is mainly *ālāyavijñāna* focuses on a human life in reality. In other words, you have to face human life in reality: how it is going, what is human life. 
 
-So very naturally, to tell the truth, if you look at your life, it’s very difficult for us to believe that our life is really Buddha, or the absolute. Very naturally, if you look at your life honestly, our life is really covered with delusion. That is called *ignorance*. So *alayavijnana* kind of has *ignorance*. 
+So very naturally, to tell the truth, if you look at your life, it’s very difficult for us to believe that our life is really Buddha, or the absolute. Very naturally, if you look at your life honestly, our life is really covered with delusion. That is called *ignorance*. So *ālāyavijñāna* kind of has *ignorance*. 
 
 If so, why is it that this discourse [says] that *samsara* is produced by ignorance, instead of by *tathāgatagarbha*? So, why don’t you say about samsara produced by ignorance? Because honestly if you look at human life, human life is exactly covered with ignorance. So this is also a question in the same as the absolute. But I said before, ignorance is not “original sin”. We usually consciously or unconsciously believe [that], but ignorance is not original sin. In Buddhism ignorance is *no root*.
 
@@ -76,7 +76,7 @@ But, *mumyo*, ignorance, means that it is something you cannot try to wake up, b
 
 So that is *mumyo*. So, *mumyo* means exactly beginningless, and endless. 
 
-So that is the *alayavijnana*. 
+So that is the *ālāyavijñāna*. 
 
 So, from this point, it’s impossible for us to think *samsara* comes from *mumyo*. No. Because ignorance, *mumyo*, is beginningless. Because *samsara* exists on the same and one ground. “Same and one ground” means the basic state of existence which is going constantly; this is the same and one ground. 
 
@@ -86,7 +86,7 @@ So, that is the same and one ground. So that’s why without this we cannot exis
 
 So that’s why it’s impossible for us to think samsara [is] coming from ignorance. Because ignorance is beginningless. No, it’s not the same and one ground. 
 
-So that’s why very naturally it comes from *tathāgatagarbha*, and psychologically speaking it is called *alayavijnana*. 
+So that’s why very naturally it comes from *tathāgatagarbha*, and psychologically speaking it is called *ālāyavijñāna*. 
 
 #### 33:33
 
@@ -122,7 +122,7 @@ So that is the samsaric world.
  
 So when the *tathāgatagarbha* moves and vibrates, always it shows two aspects. Self-confidence and not self-confidence. Then through learning both the two aspects, then you can understand the being as one, through the guitar. That is the relationship among the truth [and] *tathāgatagarbha*. 
 
-And then, *alayavijnana* tries to explain how guitar works, how guitar creates sound. That is the structure of the guitar, structure of the *tathāgatagarbha*. That is called *alayavijnana*. *Alayavijnana* tries to know the structure of the *tathāgatagarbha*, how *tathāgatagarbha* works, how guitar works. That is, psychologically, this book uses [the term] *alayavijnana*. 
+And then, *ālāyavijñāna* tries to explain how guitar works, how guitar creates sound. That is the structure of the guitar, structure of the *tathāgatagarbha*. That is called *ālāyavijñāna*. *Ālāyavijñāna* tries to know the structure of the *tathāgatagarbha*, how *tathāgatagarbha* works, how guitar works. That is, psychologically, this book uses [the term] *ālāyavijñāna*. 
 
 Do you have a question? Is that alright? Do you understand the little difference? 
 
@@ -130,7 +130,7 @@ Do you have a question? Is that alright? Do you understand the little difference
 
 **Question:** I have a question about ignorance. Is ignorance also grounded on the absolute?
 
-**Katagiri Roshi:** Uh, no. It is *connected* with the *tathāgatagarbha* – *alayavijnana*, psychologically speaking. Not *grounded*, because there’s no ground. But it’s always involved in the *tathāgatagarbha*.
+**Katagiri Roshi:** Uh, no. It is *connected* with the *tathāgatagarbha* – *ālāyavijñāna*, psychologically speaking. Not *grounded*, because there’s no ground. But it’s always involved in the *tathāgatagarbha*.
 
 **Same person:** Mm-hmm. Because you said it [wasn’t produced] with the samsara, so I saw it as being a part of samsara... *[unintelligible]*
 

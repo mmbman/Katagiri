@@ -341,7 +341,7 @@ So originally, according to primitive Buddhism, that is called Four Noble Truths
 
 So that is always the one piece of paper with the two aspects. If you see one, always there is a one, so-called *awareness*. But *un-awareness* is hidden behind. But it’s not separate; it’s already with it. 
 
-And then in the next chapter, this book explains the *alayavijnana*. That is *alayavijnana*. Why we have to say that *tathāgatagarbha*, that is psychologically, *tathāgatagarbha* will be explained as *alayavijnana*. *Alayavijnana* is just one piece of paper with the two aspects, always. And then always it is working, showing the back, showing the front. When you see the front, the whole world [is] front. The back of the piece of paper is hidden, so you cannot see it – but it’s there, always. That is the situation of oneness, okay? *[He chuckles.]* So it’s not one, it’s not two, in terms of common sense. Because it’s working, just like a falling leaf. 
+And then in the next chapter, this book explains the *ālāyavijñāna*. That is *ālāyavijñāna*. Why we have to say that *tathāgatagarbha*, that is psychologically, *tathāgatagarbha* will be explained as *ālāyavijñāna*. *Ālāyavijñāna* is just one piece of paper with the two aspects, always. And then always it is working, showing the back, showing the front. When you see the front, the whole world [is] front. The back of the piece of paper is hidden, so you cannot see it – but it’s there, always. That is the situation of oneness, okay? *[He chuckles.]* So it’s not one, it’s not two, in terms of common sense. Because it’s working, just like a falling leaf. 
 
 **Someone:** Or like waves in water. 
 
@@ -351,7 +351,7 @@ Intellectually we can say waves are different from water, but without water we c
 
 So always there is one piece of paper with the two aspects, alright? That is a very good example. 
 
-You have to use the front of the piece of paper, well, completely. The back is hidden, but it’s always [present]. That’s why Dōgen Zenji says, “When one side appears, the other side is darkness.” That is characteristic of *alayavijnana*, which will be explained next. 
+You have to use the front of the piece of paper, well, completely. The back is hidden, but it’s always [present]. That’s why Dōgen Zenji says, “When one side appears, the other side is darkness.” That is characteristic of *ālāyavijñāna*, which will be explained next. 
 
 Okay, any other questions? 
 

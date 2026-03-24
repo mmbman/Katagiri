@@ -257,7 +257,7 @@ Is that alright?
 
 And then the world is coming up. Alright? 
 
-But ignorance... According to *The Awakening of Faith*, ignorance is the bottom of the *alayavijnana*, exactly the bottom of the *alayavijnana*. Which is *very* close to *tathāgatagarbha*, so-called *eternity*. So that is a real partition between *tathāgatagarbha* and *alayavijnana*. And then when something goes through this partition – something happens. 
+But ignorance... According to *The Awakening of Faith*, ignorance is the bottom of the *ālāyavijñāna*, exactly the bottom of the *ālāyavijñāna*. Which is *very* close to *tathāgatagarbha*, so-called *eternity*. So that is a real partition between *tathāgatagarbha* and *ālāyavijñāna*. And then when something goes through this partition – something happens. 
 
 So that is *ignorance*, we say. We don’t know *what* [it is]. Ignorance comes into existence by causes and conditions, conditioned elements – *that* we can say. Because we cannot trace back to [where ignorance comes from].
 
