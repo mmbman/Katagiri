@@ -34,7 +34,7 @@ There are [a few] terms: *tathāgatagarbha*, *storehouse consciousness*. I have 
 
 *The Discourse on the Awakening of Mahayana Faith* begins with investigation of the *truth* first. This is a pretty peculiar characteristic of this discourse, which is different from other *shastra* [or] discourses on *vijnanavada*, “mere consciousness”. *The Discourse on Mere Consciousness*, *Vijnanavada*, begins with *ālāyavijñāna*. But this *Discourse on the Awakening of Mahayana Faith* begins with the truth. 
 
-*Ālāyavijñāna*, simply speaking, is [our] consciousness. So, *Vijnanavada* investigates what *our consciousness* is. So, analyzing, synthesizing; that is an interesting discourse. It is very difficult to believe in the truth in terms of investigation of our consciousness, because our consciousness seems to be filled with [delusions or] illusions, so it’s very difficult to believe in the truth. If you get into the depth of the human world in terms of investigation of human consciousness, it’s very hard. 
+*Ālāyavijñāna*, simply speaking, is consciousness. So, *Vijnanavada* investigates what *our consciousness* is. So, analyzing, synthesizing; that is an interesting discourse. It is very difficult to believe in the truth in terms of investigation of our consciousness, because our consciousness seems to be filled with [delusions or] illusions, so it’s very difficult to believe in the truth. If you get into the depth of the human world in terms of investigation of human consciousness, it’s very hard. 
 
 But this discourse on Mahayana faith begins with truth. So we step inside truth; investigation of the truth. That is a little bit different [...] from other books. 
 

@@ -123,7 +123,9 @@ If so, what is taking refuge? What is the point? How can we realize, how can we 
 
 > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 
-Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. Spiritual communion means interacting communion of appeal and response. Appeal means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you, constantly, for help. 
+Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*).
+
+Appeal means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you, constantly, for help. 
 
 *I appeal* not to [a particular *I*] for help; this appeal is not open to the particular existence. I appeal [to the] *whole universe* for help. In this case, *the whole universe* means [you] don’t know what it is. You realize there is nothing to ask for help in this world, but you realize there is something you can appeal to beyond the human samsaric world, even though you don’t know what it is. 
 
