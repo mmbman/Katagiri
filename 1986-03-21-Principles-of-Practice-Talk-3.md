@@ -162,9 +162,7 @@ Let’s do this. And then, very naturally, we can come back to the source of *sa
 
 So that’s why mindfulness is pretty important for us. Let’s come back. *Mindfulness* [means] constantly remember. You must remember not only with a thought, but you must remember that first thought of *samsara* with the whole body and mind. So, that’s why you can come back. And then, you can be in *dhyana*, so-called meditation, or *samādhi*. You can be there. 
 
-That is the practice of egolessness. 
-
-So that’s why Buddha says, “Suffering begets selflessness.” Egolessness. 
+That is the practice of egolessness. So that’s why Buddha says, “Suffering begets selflessness.” Egolessness. 
 
 Impermanence begets suffering, and suffering begets egolessness, naturally. That’s why Dōgen Zenji says, if you want to have bodhi-mind, you have to observe very closely or contemplate impermanence: how transient the world is, how fragile human life is. Because yesterday I mentioned, human beings always forget returning to the source of *samsara*, and are always stirring up the world created after second thought. So this is real suffering, constantly. 
 

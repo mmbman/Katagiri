@@ -180,7 +180,7 @@ And then Dōgen Zenji says, “But don’t be discouraged by realizing no hit am
 
 So don’t be discouraged; please continue to practice, by virtue of the turning [your] willing the ears to listen to Buddha’s teaching, and giving your willing hands to great teachers, ancestors, and buddhas. 
 
-[...] Continually you do like this. This is called “to learn the backward step that turns your light inwardly to illuminate yourself.” Which is called *reflection*. This is a reflection. 
+[...] Continually you do like this. This is called “to learn the backward step that turns your light inwardly to illuminate yourself.” Which is called *reflection*. This is reflection. 
 
 [...] “Learn the backward step” means, let’s return to that very inception of the moment. The very inception of the time and space. The very inception of *gassho*, or zazen. In other words, just put yourself right in the midst of the inception of doing zazen, *gassho*, standing, et cetera. It means let’s go back to the original moment, the first moment. Again and again, again and again. And then, if you *do it*, even for a moment, it “turns your light inwardly to illuminate yourself.” Very naturally you create a wholesome world, a peaceful, harmonious world, even [if] you don’t see it. This is, naturally it’s going. 
 
@@ -226,7 +226,9 @@ So that is called “Avalokiteshvara turns the sound-perceiving stream of the mi
 
 [You may ask,] “Shall I do zazen forever, in order to deepen my life, in order to make my life happy?” Yes, you should do it. 
 
-But you don’t want to [have] the physical pain, and you don’t want to get up early in the morning, et cetera. So, well... if you don’t want, please, don’t do zazen. But still you want. If you want, please come. But you don’t want. So always back and forth, back and forth. How can I help? 
+But you don’t want to [have] the physical pain, and you don’t want to get up early in the morning, et cetera. So, well... if you don’t want, please, don’t do zazen. 
+
+But still you want. If you want, please come. But you don’t want. Always back and forth, back and forth. How can I help? 
 
 So all you have to do is, you have to forsake knowing and being known, “shall I” or “shall I not.” You just be. At that time, you are a really great person, so-called Avalokiteshvara Bodhisattva, who can have a really willing ear to listen to the sound of the world, the sound of you. And then, you can help. This is *compassion*. 
 
@@ -234,7 +236,7 @@ So, this is the point of the practice in terms of Buddhist faith.
 
 Constantly, first of all, you are a great container. Trust in this: you are a great container, beyond good or bad, right or wrong. Don’t put yourself down, don’t despise yourself. Anyway, encourage yourself constantly, and do it. 
 
-That’s why Dōgen Zenji says practice is just like walking in the mist. It’s a really good example: walking in the mist, constantly, and then, before you are conscious of it, your dress gets wet. This is our practice. Otherwise, you cannot continue to practice, no. It’s very difficult to build up peaceful world. But if your practice is exactly just like walking in the mist, before you are conscious of it, your dress gets wet. If you practice like this, you really create peaceful life. And you can help all sentient beings. 
+That’s why Dōgen Zenji says practice is just like walking in the mist. It’s a really good example: walking in the mist, constantly, and then, before you are conscious of it, your dress gets wet. This is our practice. Otherwise, you cannot continue to practice, no. It’s very difficult to build up peaceful world. But if your practice is exactly just like walking in the mist: before you are conscious of it, your dress gets wet. If you practice like this, you really create peaceful life. And you can help all sentient beings. 
 
 Okay. Do you have a question? 
 
