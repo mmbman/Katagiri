@@ -109,7 +109,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 >  
 > [SZ] Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation.
 >
-> [EB] Suppose one gains pride of understanding and [inflate’s] one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the Way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation.
+> [EB] Suppose one gains pride of understanding and inflates one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the Way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation.
 
 - This is extensively discussed in [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5”](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5).
 

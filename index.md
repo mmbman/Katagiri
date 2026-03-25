@@ -46,6 +46,7 @@ More:
 
 ### Latest Updates
 
+- March 25, 2026: I’ll be leading a four-week class on Katagiri Roshi’s teachings on *Fukanzazengi* starting on April 8, 2026. Information [here](https://app.etapestry.com/cart/CloudsInTheWaterZenCenter/default/item.php?ref=25.0.76296285).
 - February 27, 2026: Posted first version of [“Notes on *Genjōkōan*”](genjokoan-notes).
 - February 25, 2026: Posted [“*Blue Cliff Record* Case 54: Yun Men Extends Both Hands”](1984-02-08-Blue-Cliff-Record-Case-54).
 - February 20, 2026: Posted [“Disporting with the Buddhas: Transformation through Play”](1987-12-19-Transformation-through-Play).

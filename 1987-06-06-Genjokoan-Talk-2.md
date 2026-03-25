@@ -161,7 +161,7 @@ That’s why Buddhism [teaches] three meanings of permanence. So permanence is n
 
 #### 47:12
 
-**Question:** Hojo-san, when you’re mentioning that when you’re behaving morally and ethically, you say “I’m a very good boy,” “good saint” and so forth, and then that’s ego – at the moment that you realize that that’s ego coming in, is that *manas*?
+**Question:** Hojo-san, when you’re mentioning that when you’re behaving morally and ethically you say “I’m a very good boy,” “good saint” and so forth, and then that’s ego – at the moment that you realize that that’s ego coming in, is that *manas*?
 
 **Katagiri Roshi:** Yes, ego.
 
