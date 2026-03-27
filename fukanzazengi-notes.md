@@ -139,7 +139,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 
 - Note that “turning the light around to shine within” immediately leads to the next line: “Body and mind of themselves will drop away, and your original face will manifest.”
 
-- “The backward step” is closely related to *prajna* (“wisdom”). See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where the backward step is discussed as the function of *prajna*.
+- “The backward step” is closely related to *prajñā* (“wisdom”). See [“*Platform Sutra* – Talk 2”](1987-03-20-Platform-Sutra-Talk-2), where the backward step is discussed as the function of *prajñā*.
 
 - In [“Principles of Practice, Talk 5: Direct Transmission”](1986-03-23-Principles-of-Practice-Talk-5), the backward step is also considered as *reflection*, in relation to *ignorance*.
 

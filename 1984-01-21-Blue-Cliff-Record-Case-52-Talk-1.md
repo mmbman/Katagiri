@@ -69,7 +69,7 @@ That is the three stages.
 
 So, the ripeness of the fruit is not good enough. Because, for instance, finishing high school or university, and getting the degrees, [like] doctorate degrees – it’s *ripe*, but it’s not ripe *exactly*. After that you have to polish yourself again and again. And then, maybe [...] you can let your life mature and ripen, so then you become a great medical doctor et cetera as a human being, because you can help. 
 
-But it’s not good enough. So, you have to make your life *more* mature – until the maturity of fruit falls down to the ground and all the guts come out. That means your personality is not only working in your territory, so-called [field of] medicine, or psychology, or music. But also, when your maturity is perfected, completed, at that time your maturity, personality is working everywhere, even in daily routine, even though [it is] out of your music area or psychological area as a professional. Wherever you may go, your life is really working smoothly.
+But it’s not good enough. So, you have to make your life *more* mature – until the mature fruit falls down to the ground and all the guts come out. That means your personality is not only working in your territory, so-called [field of] medicine, or psychology, or music – but also, when your maturity is perfected, completed, at that time your mature personality is working everywhere, even in daily routine, even out of your music area or psychological area as a professional. Wherever you may go, your life is really working smoothly.
 
 That is called *freedom*, *emancipation*. Or *maturity*. Or *adept*.
 
@@ -325,7 +325,7 @@ Let’s participate in ourselves internally... [no,] not “internally”. If I 
 
 Because your existence is *yours*. Just like the trees. But not yours! There is a huge vastness of existence, life force there, life energy there. Behind you or inside you, your body, your name. One tree, your tree, teaches you the name of the tree, but simultaneously the rhythm of the vastness of existence is there.
 
-So that is you. That is you. So you have to participate in that one.
+So that is you. That is you. So you have to participate in that.
 
 That’s why if you do zazen, just the sitting zazen is pretty good. But if I give something sweet to you, you immediately turn toward. Alright? You understand? I am not criticizing any other kind of zazen. But beyond this one, I want to give you... well, give you a chance to participate in real zazen, real you, beyond a sense of turning toward, or having affective preferences.
 

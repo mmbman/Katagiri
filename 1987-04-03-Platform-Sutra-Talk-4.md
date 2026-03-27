@@ -19,7 +19,7 @@ Katagiri Roshi comments further on whether the point of Zen is actually “to se
 
 **Katagiri Roshi:** Page 101:
 
-> “Good Knowing Advisors, my Dharma-door produces 84,000 wisdoms from the one Prajna. Why? Because worldly people have 84,000 kinds of defilement. In the absence of defilement, wisdom is always present, since it is not separate from the self-nature.
+> “Good Knowing Advisors, my Dharma-door produces 84,000 wisdoms from the one Prajñā. Why? Because worldly people have 84,000 kinds of defilement. In the absence of defilement, wisdom is always present, since it is not separate from the self-nature.
 >
 > “Understand that this dharma is just no-thought, no-remembrance, non-attachment, and the non-production of falsehood and error. Use your own true-suchness nature, and, by means of wisdom, contemplate and illuminate all dharmas without grasping or rejecting them. That is to see one’s own nature and realize the Buddha Way.
 > 
@@ -29,7 +29,7 @@ Here it says, “To see one’s own nature and realize the Buddha Way.” [I sai
 
 One more paragraph: 
 
-> “Good Knowing Advisors, if you wish to enter the extremely deep Dharma realm and the Prajna samadhi, you must cultivate the practice of Prajna. Hold and recite *The Diamond Prajna Sutra* and that way you will see your own nature.”
+> “Good Knowing Advisors, if you wish to enter the extremely deep Dharma realm and the Prajñā samadhi, you must cultivate the practice of Prajñā. Hold and recite *The Diamond Prajñā Sutra* and that way you will see your own nature.”
 
 I think here [it says that] wisdom is always present since it is not separate from the self-nature, however, worldly people have 84,000 kinds of defilements. So, I think by the practice, or by the absence of 84,000 kinds of defilement, you can see this wisdom which is not separate from human body and mind, in other words, self-nature. So I think by the practice you have to see into this nature, one’s own nature, which is not separate from the self, or [is] present always in everyone. That’s why here it says, [...] “Understand that this dharma is just no-thought, no-remembrance, non-attachment, and the non-production of falsehood and error.” This is characteristic of the dharma. And then, this is [the] original nature of the self, and also [the] original nature of the dharma. So we have to see into this nature. That is simultaneously to realize the buddha way. 
 

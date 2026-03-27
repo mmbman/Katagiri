@@ -182,23 +182,23 @@ So don’t be discouraged; please continue to practice, by virtue of the turning
 
 [...] Continually you do like this. This is called “to learn the backward step that turns your light inwardly to illuminate yourself.” Which is called *reflection*. This is reflection. 
 
-[...] “Learn the backward step” means, let’s return to that very inception of the moment. The very inception of the time and space. The very inception of *gassho*, or zazen. In other words, just put yourself right in the midst of the inception of doing zazen, *gassho*, standing, et cetera. It means let’s go back to the original moment, the first moment. Again and again, again and again. And then, if you *do it*, even for a moment, it “turns your light inwardly to illuminate yourself.” Very naturally you create a wholesome world, a peaceful, harmonious world, even [if] you don’t see it. This is, naturally it’s going. 
+[...] “Learn the backward step” means, let’s return to that very inception of the moment. The very inception of time and space. The very inception of *gassho*, or zazen. In other words, just put yourself right in the midst of the inception of doing zazen, *gassho*, standing, et cetera. It means let’s go back to the original moment, the first moment. Again and again, again and again. 
 
-So that’s why, if you continue to do it, naturally you will come to enhance or to deepen your life. Even though you don’t know how much your practice is progressing or not, it doesn’t matter. Sometimes you can see how much; sometimes you cannot see. *Most of* the time you don’t see how much your practice is making progress. No. But all you have to do is constantly go back to that source of being, existence. Anyway, let’s go back, let’s go back, every day. And then, that is called *the backward step*. Not withdraw. Anyway, let’s go [back]. 
+And then, if you *do it*, even for a moment, it “turns your light inwardly to illuminate yourself.” Very naturally you create a wholesome world, a peaceful, harmonious world, even [if] you don’t see it. This is [that] naturally it’s going. 
 
-That is called *backward step*, that is called *reflection*. That’s why this reflection [begets] suffering, really suffering. (*Transcriber’s Note:* It’s not clear here whether he means reflection begets suffering, or suffering begets reflection.) But that suffering is completely beyond your intellectual understanding, [it’s] before your intellect is suffering there. Because everyone has to go back to there. Consciously or unconsciously, the root of your being is coming from that realm. 
+So that’s why, if you continue to do it, naturally you will come to enhance or to deepen your life. Even though you don’t know how much your practice is progressing or not, it doesn’t matter. Sometimes you can see how much; sometimes you cannot see. *Most of* the time you don’t see how much your practice is making progress; no. But all you have to do is constantly go back to that source of being, existence. 
 
-So very naturally, everyone always goes back to there, consciously or unconsciously. But most people don’t realize it. Even though they are standing there, they don’t realize it. But they are very interested in the world *after* second moment, second thought, third thought. That is the so-called *samsaric world*. That’s why the problem is going on and on. There is no peace. The more they try to get the peace, the more they beget not peace, in order to get the peace. That is *samsara*. 
+Anyway, let’s go back, let’s go back, every day. And then that is called *the backward step*. [It is] not “withdraw.” [...] That is called *reflection*. 
+
+That’s why this reflection is [and] begets suffering; [it’s] really suffering. But that suffering is completely beyond your intellectual understanding; [it’s] before your intellect is suffering. Because everyone has to go back to there; consciously or unconsciously, the root of your being is coming from that realm. So very naturally, everyone always goes back to there, consciously or unconsciously. 
+
+But most people don’t realize it! Even though they are standing there, they don’t realize it. But they are very interested in the world *after*: the second moment, second thought, third thought. That is the so-called *samsaric world*. That’s why the problem is going on and on; there is no peace. The more they try to get the peace, the more they beget not-peace in order to get the peace. That is *samsara*. 
 
 That’s why if you want to be peaceful, please go back to the source of the first moment of the peace you have thought. Let’s go back. This is the backward step. The backward step is not escaping from. Anyway, let’s go back to that first moment of peace you have thought. 
 
 In other words, cutting off the root of discriminating mind, be peace *right now*. Right now, with your whole body and mind. And that is immediately you create peace, peaceful world. 
 
-But it is [an] event which occurs just in a moment. So you don’t see it. 
-
-So that’s why very naturally according to your intellectual sense, you can see “no hit” among a hundred thousand attempts to try to hit the bullseye. Nothing. 
-
-That’s why we need the encouragement – “please, follow like this” – [which] Dōgen mentions. 
+But it is [an] event which occurs just in a moment, so you don’t see it. That’s why very naturally according to your intellectual sense, you can see “no hit” among a hundred thousand attempts to try to hit the bullseye. Nothing. That’s why we need the encouragement – “please, follow like this” – [which] Dōgen mentions. 
 
 #### 55:14
 

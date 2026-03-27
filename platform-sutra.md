@@ -4,7 +4,7 @@ title: "Platform Sutra"
 
 The *Platform Sutra* is a text containing teachings attributed to Hui Neng, the Sixth Ancestor of Chan (Zen) in China.
 
-Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March and April of 1987. The talks focus on Chapter 1, “Action and Intention,” and Chapter 2, “Prajna.”
+Katagiri Roshi gave this series of seven talks on the *Platform Sutra* in March and April of 1987. The talks focus on Chapter 1, “Action and Intention,” and Chapter 2, “Prajñā.”
 
 ---
 
@@ -16,13 +16,13 @@ Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This 
 
 ##### [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
 
-Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajna*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
+Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajñā*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajñā*. 
 
 ---
 
 ##### [*Platform Sutra* – Talk 3](1987-03-27-Platform-Sutra-Talk-3)
 
-Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajñā* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 ---
 

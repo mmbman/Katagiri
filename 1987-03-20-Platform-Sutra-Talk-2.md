@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 2"
 
 ### Summary
 
-Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajna*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajna*. 
+Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajñā*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajñā*. 
 
 ### Transcript
 
@@ -17,9 +17,9 @@ Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajn
 
 #### 0:00
 
-**Katagiri Roshi:** ... Page 89. Chapter 2: “*Prajna*”. 
+**Katagiri Roshi:** ... Page 89. Chapter 2: “*Prajñā*”. 
 
-> The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajna Paramita.”
+> The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajñā Paramita.”
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
@@ -27,19 +27,19 @@ Look at page 40 in the sutra:
 
 > The Great Master said to the assembly, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish Buddhahood. Good Knowing Advisors, listen while I tell you about the actions and intentions by which Hui Neng obtained the Dharma.”
 
-I think here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish the buddha way,” that teaching is connected with this first paragraph of the sutra in Chapter 2, “Prajna”.
+I think here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish the buddha way,” that teaching is connected with this first paragraph of the sutra in Chapter 2, “Prajñā”.
 
- “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’”: “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajna*. You have to think about that wisdom, *prajnaparamita*. That is what it says here.
+ “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’”: “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajñā*. You have to think about that wisdom, *prajnaparamita*. That is what it says here.
 
 #### 3:26
 
-I think *prajna* can be considered in terms of three points. 
+I think *prajñā* can be considered in terms of three points. 
 
-One point is the *essence* of prajna, the essence of wisdom. The essence of wisdom is [that] the self nature is originally pure and clean. This is the essence of *prajnaparamita*.
+One point is the *essence* of prajñā, the essence of wisdom. The essence of wisdom is [that] the self nature is originally pure and clean. This is the essence of *prajnaparamita*.
 
-And the *function* of prajnaparamita is... how can I say it. In *Fukanzazengi,* Dōgen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajna. 
+And the *function* of prajnaparamita is... how can I say it. In *Fukanzazengi,* Dōgen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajñā. 
 
-[...] The essence of prajna is [that] the self nature is originally clean and pure, that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to the original nature of existence, it simultaneously illuminates. If you come back, *you* illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn [around]. That is *illuminate*.
+[...] The essence of prajñā is [that] the self nature is originally clean and pure, that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to the original nature of existence, it simultaneously illuminates. If you come back, *you* illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn [around]. That is *illuminate*.
 
 So no one helps you; you have to do it. If you practice sincerely, more or less everyone experiences this [...] 180 degree or 360 degree turn-[around]. 
 
@@ -51,7 +51,7 @@ So, many kinds of experience. But more or less, people can turn over their lives
 
 #### 7:48
 
-And the third point is *essential principle*. [The] essential principle of prajna is *nondualism*. 
+And the third point is *essential principle*. [The] essential principle of prajñā is *nondualism*. 
 
 Nondualism is [that] there are two, but not two, they are one. But not *one* exactly – they are two. So you cannot say anything. They are two, but it’s not two, it’s one. 
 
@@ -67,7 +67,7 @@ So you don’t say anything. But you have to say [something] about God. So, what
 
 So [...] you have to be very careful to deal with, or to live in the nondualistic world. It really depends on your activities. It’s not ideas. 
 
-So, that is *prajna*. That’s why prajna is very profound wisdom to look at the structure of human beings, in terms of *essence*, and *function*, and also *essential principle* of wisdom. You have to see the human world very clearly. So it’s not an idea or discussion, it really depends on your activity: you have to *do* right now, right here. Because original nature is very pure, and [the] function is turning yourself inwardly to illuminate [yourself]. So you have to just come back. In other words, you become you, and you settle yourself – you are *you*-ing, and then you settle down right now. Then you illuminate. That wisdom illuminates. 
+So, that is *prajñā*. That’s why prajñā is very profound wisdom to look at the structure of human beings, in terms of *essence*, and *function*, and also *essential principle* of wisdom. You have to see the human world very clearly. So it’s not an idea or discussion, it really depends on your activity: you have to *do* right now, right here. Because original nature is very pure, and [the] function is turning yourself inwardly to illuminate [yourself]. So you have to just come back. In other words, you become you, and you settle yourself – you are *you*-ing, and then you settle down right now. Then you illuminate. That wisdom illuminates. 
 
 In other words, if you want to be peaceful, *you* must be peaceful right now. How? Be peaceful. Peace is not *outside*. Peace is not [something] you can get now in your hand. So with your whole body and mind, demonstrate peace, right now, right here. And then, peace illuminates peace. 
 
@@ -79,9 +79,9 @@ So you have to see the human world like this, and then that is why peace illumin
 
 Well, in the conceptual world, they are two. But in terms of reality, true reality, they are not two, they are one, exactly. 
 
-That is wisdom. And then all three: the *essence* and *function* and *essential discipline* (essential principle?), all three work together: that is called *prajna*, wisdom.
+That is wisdom. And then all three: the *essence* and *function* and *essential discipline* (essential principle?), all three work together: that is called *prajñā*, wisdom.
 
-So wisdom is what? That is to be resolute, to do something. *Resolute* means, “Yes, I will.” Whoever you are, whatever you think, right now: yes, I will. That’s all you can do. And *then*, you can do. You can really *take care of* in the best way, as a buddha. That is *prajna*. 
+So wisdom is what? That is to be resolute, to do something. *Resolute* means, “Yes, I will.” Whoever you are, whatever you think, right now: yes, I will. That’s all you can do. And *then*, you can do. You can really *take care of* in the best way, as a buddha. That is *prajñā*. 
 
 #### 17:07
 
@@ -91,7 +91,7 @@ Page 90. (Returning to the beginning of Chapter 2.)
 
 I’m sorry – the other [day] I [talked about] “Good Knowing Advisors”; here I think that means the audience, all the assembly. The assembly [is] called “good knowing advisors.” The other day I [said that] this is the meaning of the *teacher*. Sometimes it is used as a teacher, but here, I think [it means] the people of the assembly. 
 
-> “... the wisdom of Bodhi and Prajna is originally possessed by worldly people themselves. 
+> “... the wisdom of Bodhi and Prajñā is originally possessed by worldly people themselves. 
 
 That means everyone is buddha-nature. Everyone is based on, everyone is amply present in original nature of the self, [which] is pure and clean, exactly, beyond human speculation. That is called buddha-nature. So that original nature, which is pure and clean, is not [the] conceptual world, it is actions, the world of activities. Because there is nothing to pin down. But [there is] something there. 
 
@@ -141,19 +141,19 @@ Basically not different. But the difference is that sometimes people are very se
 
 But if you are not wise, you really become short-tempered. Short-tempered? *[He chuckles.]* [Meaning] you are pretty [easy to] get mad at somebody. 
 
-> I will now explain for you the Maha Prajna Paramita Dharma in order that each of you may become wise. 
+> I will now explain for you the Maha Prajñā Paramita Dharma in order that each of you may become wise. 
 
 That’s why Buddha expresses his compassion over all sentient beings: to let you know what wisdom is. So [now this] is the explanation of wisdom.
 
 > Pay careful attention, and I will explain it to you.
 
-Then from now, it starts to explain wisdom, *maha prajna paramita*. 
+Then from now, it starts to explain wisdom, *maha prajñā paramita*. 
 
-> “Good Knowing Advisors, worldly people recite ‘Prajna’ with their mouths all day long and yet do not recognize the Prajna of their self-nature.”
+> “Good Knowing Advisors, worldly people recite ‘Prajñā’ with their mouths all day long and yet do not recognize the Prajñā of their self-nature.”
 
-“Recite ‘prajna’ with their mouth”: I think in Buddhism you have to recite, or read, or practice, whatever you have to do, with the three categories of human actions: the mouth and words, and mind. *Mind* means mind and body. So mind, mouth, and... well, body and mind. You have to do this. So here it says that most people recite ‘prajna’ with the mouth. That is just talking about wisdom. If they know something, they always just talk, discuss, but they don’t practice. Here it says they don’t practice *prajna* with the mind: that *mind* means mind and body. 
+“Recite ‘prajñā’ with their mouth”: I think in Buddhism you have to recite, or read, or practice, whatever you have to do, with the three categories of human actions: the mouth and words, and mind. *Mind* means mind and body. So mind, mouth, and... well, body and mind. You have to do this. So here it says that most people recite ‘prajñā’ with the mouth. That is just talking about wisdom. If they know something, they always just talk, discuss, but they don’t practice. Here it says they don’t practice *prajñā* with the mind: that *mind* means mind and body. 
 
-Here it says, “... and yet do not recognize the Prajna of their self-nature.” *Self-nature* and *prajna* are the same thing. Wisdom and self-nature, exactly the same. So they don’t see [the] true state of existence in terms of wisdom; always there is a separation. The world of *wisdom* is non-separation. But if you recite prajna with just words, you can [only] see your life just in terms of separations of the world. So that’s why here it says they “don’t recognize the prajna of their self-nature.” 
+Here it says, “... and yet do not recognize the Prajñā of their self-nature.” *Self-nature* and *prajñā* are the same thing. Wisdom and self-nature, exactly the same. So they don’t see [the] true state of existence in terms of wisdom; always there is a separation. The world of *wisdom* is non-separation. But if you recite prajñā with just words, you can [only] see your life just in terms of separations of the world. So that’s why here it says they “don’t recognize the prajñā of their self-nature.” 
 
 > “Just as talking about food will not make you full...
 
@@ -165,19 +165,19 @@ It means no matter how long you do it, it doesn’t penetrate you. So,
 
 > “In the end you will not have obtained any benefit.
 > 
-> “Good Knowing Advisors, Maha Prajna Paramita is a Sanskrit word which means ‘great wisdom which has arrived at the other shore.’”
+> “Good Knowing Advisors, Maha Prajñā Paramita is a Sanskrit word which means ‘great wisdom which has arrived at the other shore.’”
 
-That is the explanation of the meaning of *maha prajna paramita*. As a whole, it means “great wisdom which has arrived at the other shore.” 
+That is the explanation of the meaning of *maha prajñā paramita*. As a whole, it means “great wisdom which has arrived at the other shore.” 
 
-I think you can read *The Perfect Wisdom Sutra* by Doctor Conze, [and] the commentary on the *Diamond Sutra* and *Heart Sutra*. In that book, I think you can find the explanation of *prajna paramita* in Sanskrit. He [talks about] it a little bit in that book. (*Transcriber’s Note:* The current edition of the book is titled *Buddhist Wisdom: The Diamond Sutra and The Heart Sutra*, by Edward Conze.)
+I think you can read *The Perfect Wisdom Sutra* by Doctor Conze, [and] the commentary on the *Diamond Sutra* and *Heart Sutra*. In that book, I think you can find the explanation of *prajñā paramita* in Sanskrit. He [talks about] it a little bit in that book. (*Transcriber’s Note:* The current edition of the book is titled *Buddhist Wisdom: The Diamond Sutra and The Heart Sutra*, by Edward Conze.)
 
-*Prajna* is wisdom, we usually [say] “perfect wisdom.” *Pra* means perfect, completion. *Jna* is wisdom. So *prajna*, perfect wisdom. 
+*Prajñā* is wisdom, we usually [say] “perfect wisdom.” *Pra* means perfect, completion. *Jna* is wisdom. So *prajñā*, perfect wisdom. 
 
 *Paramita*: I don’t know... *param* means “gone beyond.” *Ita* means “she or he who has gone.” In other words, she or he who has *arrived*. In other words, you who are present right here. That’s it. You are a person who has arrived already. That is, we are buddha. “We are buddha” means you are a person who has gone. 
 
 Next, *param* means “gone beyond.” [That] means gone beyond the world of conceptualization. Gone beyond, already. That is the meaning of the truth that we are buddha. 
 
-So that is *prajna.* You have to see this truth with your deep knowledge; that is *prajna paramita*. 
+So that is *prajñā.* You have to see this truth with your deep knowledge; that is *prajñā paramita*. 
 
 But here, in the Chinese, we say “great wisdom which has arrived at the other shore.” The other shore is *nirvana*; nirvana means the nondualistic world, and exactly perfect peace, right now. That is the other shore. So you are already arrived at the other shore; this is called great wisdom, perfect wisdom, which guides you to demonstrate your life as nirvana, peace and harmony. 
 

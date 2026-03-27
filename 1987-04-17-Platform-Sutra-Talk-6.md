@@ -19,13 +19,13 @@ Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, o
 
 **Katagiri Roshi:** Page 105: 
 
-> “Good Knowing Advisors, the ability to cultivate the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration, is basically no different from *The Prajna Sutra*.”
+> “Good Knowing Advisors, the ability to cultivate the conduct of not dwelling inwardly or outwardly, of coming and going freely, of casting away the grasping mind, and of unobstructed penetration, is basically no different from *The Prajñā Sutra*.”
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
 “The ability to cultivate the conduct of not dwelling inwardly or outwardly”: In this book, *inwardly* means seeing one's own nature. *Outwardly* means the Buddhist scripture written in words. 
 
-So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajna paramita* in the *Diamond Sutra*. In this book [...] the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever. Then he attained enlightenment. 
+So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajñā paramita* in the *Diamond Sutra*. In this book [...] the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever. Then he attained enlightenment. 
 
 And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary says, page 95:
 
@@ -59,7 +59,7 @@ For example, when he practiced *takuhatsu*, begging, [in one village he walked] 
 
 “... of casting away the grasping mind”: this is also [that] very strongly, minutely, this grasping mind is always working in individual life. This is our everyday practice, “casting away the grasping mind.” I think you cannot cast away [grasping mind], you cannot take out grasping mind and throw it away. You cannot do it. So in order to do this, I think from moment to moment you must be just present there, and then next moment you have to do it with wholeheartedness. That [way], naturally, grasping mind drops off. 
 
-“... and of unobstructed penetration”: that is concentration, *samadhi*. *Shikan*, wholeheartedness, is basically no different from the *Prajna Sutra*; this is the meaning of *prajna*.
+“... and of unobstructed penetration”: that is concentration, *samadhi*. *Shikan*, wholeheartedness, is basically no different from the *Prajñā Sutra*; this is the meaning of *prajñā*.
 
 #### 12:52
 

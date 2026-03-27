@@ -1,5 +1,5 @@
 ---
-title: "Prajna Paramita and Emptiness"
+title: "Prajñā Paramita and Emptiness"
 ---
 ## May 2, 1987 Dharma Talk by Dainin Katagiri Roshi
 

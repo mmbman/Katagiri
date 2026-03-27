@@ -140,9 +140,7 @@ So, how can we be free from karmic life? Well, just be there and practice. Very 
 
 But our consciousness doesn’t believe it. *[He laughs.]* Because consciousness is already involved in the very complicated world, so we don’t believe it. But if you make your mind very clear and simple, going to the bottom of that reflection and discriminating world, then you can see how the first thought is working. And then, this is a really great light of instruction, how to live. 
 
-So, all we have to do is to be there and practice, as best as we can. 
-
-This is called *egolessness*. 
+So, all we have to do is to be there and practice, as best as we can. This is called *egolessness*. 
 
 So, very naturally, suffering begets selflessness. Okay? Suffering. Because suffering is fabricated [by] reflection and discriminating mind, and simultaneously it is constantly unconscious effort, which allows you to go on and on, knowing the bottom of the samsaric world. So, very naturally, you can see how to live, how to take care of the samsaric world. 
 
@@ -170,11 +168,9 @@ That’s why Buddha gives sympathy to all human beings like this. Because human 
  
 And then if you go back to that source, you don’t know what it is, but there is really a kind of astonishment, enormous astonishment. 
 
-And then from this astonishment, you can build up philosophy, psychology – Buddha’s teaching. 
- 
-So what is the beginning of the teaching – philosophy, and psychology, Buddhism? It is just astonishment, just surprise. That surprise is described as the Buddha land, [in a] literary sense. You know, the beautiful Buddha land is coming up, adorned with various seven jewels, et cetera. 
+And then from this astonishment, you can build up philosophy, psychology – Buddha’s teaching. What is the beginning of the teaching – philosophy, and psychology, Buddhism? It is just astonishment, just surprise. 
 
-So very naturally you can build up a wonderful world, because it is just astonishment. Nothing to pin down. But directly you can feel it, you can touch it. Something touches your heart. 
+That surprise is described as the Buddha land, [in a] literary sense. You know, the beautiful Buddha land is coming up, adorned with various seven jewels, et cetera. Very naturally you can build up a wonderful world, because it is just astonishment. Nothing to pin down. But directly you can feel it, you can touch it. Something touches your heart. 
 
 So just surprise; *big* surprise. Then from this big surprise, the human world is coming up, and philosophy is coming up. *Physics* is coming up. Buddhism is coming up, Christianity is coming up. God, [and] any ideas are coming up from this. So finally what you have to do is, let’s go back to that simple and silent and clear world. So-called “just surprise,” huge surprise. 
 

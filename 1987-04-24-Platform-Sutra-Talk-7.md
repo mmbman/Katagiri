@@ -163,7 +163,7 @@ Just like I told you before, maybe [there is a] person who wants run a business,
 
 Okay, one more. Page 114:
 
-> “If you give rise to genuine Prajna contemplation and illumination, in the space of an instant all false thoughts are extinguished. If you recognize your self-nature, in a single moment of enlightenment you will arrive at the stage of a Buddha.”
+> “If you give rise to genuine Prajñā contemplation and illumination, in the space of an instant all false thoughts are extinguished. If you recognize your self-nature, in a single moment of enlightenment you will arrive at the stage of a Buddha.”
 
 This is salvation, it’s exactly salvation. *Salvation* means peace, perfect peace. Perfect peace and harmony. 
 
@@ -171,7 +171,7 @@ Where is the peace and harmony? Nowhere you expect. *Nowhere* means activities, 
 
 But we are always thinking, even [of] practice, as a concept, idea. We fall into ideas, so-called *practice*. We never know the flow of practice, the flow of activity as a practice, we don’t know. [So] there is no chance to get salvation, to [get] peace, no. In any ideas, any concept, in the world of conceptualization – no peace, no salvation. You can build up beautiful idealistical philosophy, psychology, Buddhist philosophy – you can do it. But never salvation. No salvation there. 
 
-That’s why it says here, “If you give rise to genuine Prajna contemplation and illumination...” *Illumination* is the functioning of life, aliveness of life, that is illumination. “... in the space of an instant all false thoughts are extinguished.” Exactly if you do it, the ordinary person, karmic life, becomes exactly buddha, karmic life shows buddha-nature. We don’t believe this one, but that is salvation. 
+That’s why it says here, “If you give rise to genuine Prajñā contemplation and illumination...” *Illumination* is the functioning of life, aliveness of life, that is illumination. “... in the space of an instant all false thoughts are extinguished.” Exactly if you do it, the ordinary person, karmic life, becomes exactly buddha, karmic life shows buddha-nature. We don’t believe this one, but that is salvation. 
 
 If you want to get revelation from the God in church, what do you do? You have to pray, you have to pray to God. It’s not the idea of *pray*, but to participate in the deep course of prayer. That’s it. 
 

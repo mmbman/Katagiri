@@ -19,11 +19,11 @@ Katagiri Roshi continues to discuss *three-fold emptiness*, and how to *achieve 
 
 **Katagiri Roshi:** Page 101: 
 
-> “Good Knowing Advisors, my Dharma-door produces 84,000 wisdoms from the one Prajna. Why? Because worldly people have 84,000 kinds of defilement.
+> “Good Knowing Advisors, my Dharma-door produces 84,000 wisdoms from the one Prajñā. Why? Because worldly people have 84,000 kinds of defilement.
 > 
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
-“The dharma door produces 84,000 wisdoms from the one Prajna.” [...] *Dharma-door* is the truth, the universe, [which] produces 84,000 wisdoms from the one *prajna*, [the] one perfect wisdom. So *one perfect wisdom* is [that] the true wisdom is one truth. So, one truth. 
+“The dharma door produces 84,000 wisdoms from the one Prajñā.” [...] *Dharma-door* is the truth, the universe, [which] produces 84,000 wisdoms from the one *prajñā*, [the] one perfect wisdom. So *one perfect wisdom* is [that] the true wisdom is one truth. So, one truth. 
 
 84,000 wisdoms: that is not only 84,000, [but] myriad, myriad wisdoms. Wisdoms of trees, plants, walls, fences... myriad, myriad beings. As long as there are myriad, myriad beings, there are myriad wisdoms. And then those wisdoms are one truth, one wisdom. That’s [what it says here]. 
 
@@ -55,7 +55,7 @@ So that's why ignorance turns into wisdom. Is that clear?
 
 [...] That's why through the everyday life – when you see winter, when you see the trees, when you see the definite changes of the four seasons – very naturally you can see the manifestation of the three poisons transforming into the three [learnings], which is called wisdom.
        
-So, that's why it says here, “My Dharma-door produces 84,000 wisdoms from one Prajna.” So truth and phenomena become one. That is *total manifestation of being*.
+So, that's why it says here, “My Dharma-door produces 84,000 wisdoms from one Prajñā.” So truth and phenomena become one. That is *total manifestation of being*.
 
 “Why? Because worldly people have 84,000 kinds of defilement.” So [the] phenomenal world, [or words], are nothing but [the] manifestation of wisdom, 84,000 wisdoms. 
 
@@ -161,13 +161,13 @@ So what do [we] mean by “seeing into your own original nature,” called *kens
 
 #### 48:11
 
-> “Good Knowing Advisors, if you wish to enter the extremely deep Dharma realm and the Prajna samadhi, you must cultivate the practice of Prajna. Hold and recite The Diamond Prajna Sutra and that way you will see your own nature.”
+> “Good Knowing Advisors, if you wish to enter the extremely deep Dharma realm and the Prajñā samadhi, you must cultivate the practice of Prajñā. Hold and recite The Diamond Prajñā Sutra and that way you will see your own nature.”
 
-“If you wish to enter the extremely deep Dharma realm and the Prajna samadhi...”: *dharma realm* is the true oneness of phenomena and existence, that is the dharma realm. Beyond time, past, present, future; all are one. And also, all are based on emptiness: full function, total function, beyond your speculation. That is called *prajna*; wisdom. So wisdom is the state of understanding, state of realization, [in] which you achieve continuity of wisdom *beyond* wisdom. So constantly you achieve continuity of emptiness, day by day. You have to go deep into existence. That continuation of practice is so-called *emancipation* or *liberation*, we say. 
+“If you wish to enter the extremely deep Dharma realm and the Prajñā samadhi...”: *dharma realm* is the true oneness of phenomena and existence, that is the dharma realm. Beyond time, past, present, future; all are one. And also, all are based on emptiness: full function, total function, beyond your speculation. That is called *prajñā*; wisdom. So wisdom is the state of understanding, state of realization, [in] which you achieve continuity of wisdom *beyond* wisdom. So constantly you achieve continuity of emptiness, day by day. You have to go deep into existence. That continuation of practice is so-called *emancipation* or *liberation*, we say. 
 
-So, “if you wish to enter the extremely deep Dharma realm and the Prajna samadhi, you must cultivate the practice of Prajna.” Very naturally, prajna is there. So if you take care of your zazen, your body and mind, with compassion, very naturally, there is wisdom.
+So, “if you wish to enter the extremely deep Dharma realm and the Prajñā samadhi, you must cultivate the practice of Prajñā.” Very naturally, prajñā is there. So if you take care of your zazen, your body and mind, with compassion, very naturally, there is wisdom.
 
-“Hold and recite *The Diamond Prajna Sutra* and that way you will see your own nature”: because *Diamond Sutra* always [says] the mind is produced without [staying on anything], without relying on anything. So mind always [speaks] about the true state of human consciousness and its object. 
+“Hold and recite *The Diamond Prajñā Sutra* and that way you will see your own nature”: because *Diamond Sutra* always [says] the mind is produced without [staying on anything], without relying on anything. So mind always [speaks] about the true state of human consciousness and its object. 
 
 Next page, page 103:
 
@@ -219,7 +219,7 @@ Very naturally, we understand the rains as [troubles], separate [from] human lif
 
 So all become one.
 
-> “If people of the Great Vehicle, the Most Superior Vehicle, hear *The Diamond Sutra*, their minds open up, awaken, and understand. They then know that their original nature itself possesses the wisdom of Prajna. Because they themselves use this wisdom constantly to contemplate and illuminate, they do not rely on written words.
+> “If people of the Great Vehicle, the Most Superior Vehicle, hear *The Diamond Sutra*, their minds open up, awaken, and understand. They then know that their original nature itself possesses the wisdom of Prajñā. Because they themselves use this wisdom constantly to contemplate and illuminate, they do not rely on written words.
 
 So very naturally, people who have wisdom can continue [to] practice emptiness – liberation, emancipation. 
 
@@ -227,7 +227,7 @@ So very naturally, people who have wisdom can continue [to] practice emptiness �
 
 So that is the dragon; dragon means dependent co-origination or emptiness. That is the truth. So it is not used for particular beings, but for all living beings. That's why, “in order that all living beings...”
 
-> “... all plants and trees, all those with feeling and those without feeling may receive its moisture. In a hundred streams it flows into the great sea and there unites in one substance. The wisdom of the Prajna of the original nature of living beings acts the same way.”
+> “... all plants and trees, all those with feeling and those without feeling may receive its moisture. In a hundred streams it flows into the great sea and there unites in one substance. The wisdom of the Prajñā of the original nature of living beings acts the same way.”
 
 #### 1:05:14 end of recording
 

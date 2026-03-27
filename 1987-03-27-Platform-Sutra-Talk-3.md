@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 3"
 
 ### Summary 
 
-Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajna* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajñā* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 ### Transcript
 
@@ -37,19 +37,19 @@ I think this is, how can I say it... in this sutra I think *emptiness of emptine
 
 #### 7:16
 
-Then “Prajna”... Page 94: [...]
+Then “Prajñā”... Page 94: [...]
 
-> “Good Knowing Advisors, all Prajna wisdom is produced from one’s own nature; it does not enter from the outside. Using the intellect correctly is called the natural function of one’s true nature. One truth is all truth. The mind has the capacity for great things, and is not meant for practicing petty ways. Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of. That would be like a common person calling himself the king of a country, which cannot be. People like that are not my disciples.”
+> “Good Knowing Advisors, all Prajñā wisdom is produced from one’s own nature; it does not enter from the outside. Using the intellect correctly is called the natural function of one’s true nature. One truth is all truth. The mind has the capacity for great things, and is not meant for practicing petty ways. Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of. That would be like a common person calling himself the king of a country, which cannot be. People like that are not my disciples.”
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
-This paragraph [talks about] the general meaning of *prajna*, wisdom. 
+This paragraph [talks about] the general meaning of *prajñā*, wisdom. 
 
 The meaning of wisdom [is] characterized by two meanings. 
 
 One is *self-functioning of the true nature*. So wisdom means the self-functioning of the true nature, the original ultimate nature of existence. 
 
-So prajna is not only human knowledge but prajna is knowledge open to all living beings, because wisdom is the self-functioning of the ultimate nature of existence. This is called wisdom, because it is a kind of principle, but [it is] not only the principle but also it is functioning, helping all sentient beings. That’s why it is called sometimes *dharma*. That dharma is that which supports or upholds [or] maintains all living beings. 
+So prajñā is not only human knowledge but prajñā is knowledge open to all living beings, because wisdom is the self-functioning of the ultimate nature of existence. This is called wisdom, because it is a kind of principle, but [it is] not only the principle but also it is functioning, helping all sentient beings. That’s why it is called sometimes *dharma*. That dharma is that which supports or upholds [or] maintains all living beings. 
 
 So, that is characteristic of [the] ultimate nature of existence.  So [...] the principle is simultaneously wisdom, because it is that which we can realize. So the truth is the truth as a principle, but also as wisdom, because [it] helps all living beings.
 
@@ -57,7 +57,7 @@ So that is one.
 
 The other one is: *one truth is all truth*. If [...] you learn the self, [it] is to learn the world. If you learn the sublimity of human life, it is simultaneously to learn the sublimity of the trees, and the birds, all living beings. The one truth is *all* truth.  Because it is universal; wisdom is characterized by *maha*: vastness, boundlessness. 
 
-So from this point, *prajna* doesn’t mean to understand [something] intellectually or philosophically, it is something you have to practice. So that’s why it says here, “Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of.” We have to put it into practice, every day. If you don’t do it, that will be “like a common person calling himself the king of a country, which cannot be.” 
+So from this point, *prajñā* doesn’t mean to understand [something] intellectually or philosophically, it is something you have to practice. So that’s why it says here, “Do not talk about emptiness with your mouth all day and in your mind fail to cultivate the conduct that you talk of.” We have to put it into practice, every day. If you don’t do it, that will be “like a common person calling himself the king of a country, which cannot be.” 
 
 “People like that are not my disciples.” That “not my disciples” [is not that they] are not human beings – they are human beings, but they don’t behave as human beings. That [is the meaning of] “people like that are not by disciples.”
 
@@ -65,55 +65,55 @@ So from this point, *prajna* doesn’t mean to understand [something] intellectu
 
 So next,
 
-> “Good Knowing Advisors, what is meant by ‘Prajna?’ Prajna in our language means wisdom. Everywhere and at all times, in thought after thought, remain undeluded and practice wisdom constantly; that is Prajna conduct.
+> “Good Knowing Advisors, what is meant by ‘Prajñā?’ Prajñā in our language means wisdom. Everywhere and at all times, in thought after thought, remain undeluded and practice wisdom constantly; that is Prajñā conduct.
 
-So the meaning of *prajna*: “Prajna in our language means wisdom.”
+So the meaning of *prajñā*: “Prajñā in our language means wisdom.”
 
-“Everywhere and at all times, in thought after thought, ...” I think thought occurs in certain circumstances, times, places. So from this point, whatever you may be, whatever you do, that is “everywhere and at all times.” Under all circumstances, not under particular circumstances [but] under all circumstances, wisdom remains undeluded, and practice wisdom constantly. This is *prajna*; prajna remains undeluded, undefiled; very pure and clean. “And practice wisdom [constantly],” because it is always within us.
+“Everywhere and at all times, in thought after thought, ...” I think thought occurs in certain circumstances, times, places. So from this point, whatever you may be, whatever you do, that is “everywhere and at all times.” Under all circumstances, not under particular circumstances [but] under all circumstances, wisdom remains undeluded, and practice wisdom constantly. This is *prajñā*; prajñā remains undeluded, undefiled; very pure and clean. “And practice wisdom [constantly],” because it is always within us.
 
 If you look at your body, I think you can know [what wisdom is]. You can know how wondrous the human body is. You cannot hate your human body. Regardless of whether you are weak or strong, you should appreciate the presence of your human body, because the myriad cells [and] nerves [are] functioning smoothly, beyond your speculation. Interconnected, interpenetrated: past, present, and future, and air, sky, stars, all the universe. This is your body. If you look at your body, you will really feel this. 
 
 That wondrous function of your body is called wisdom. Because it’s not a principle, it’s not a philosophical structure of your human body. No matter how long you explain your human body, it is not right. So practically, you have to take best care of human body. 
 
-So, that is “practice wisdom constantly.” Your body is always practicing wisdom. That is prajna conduct: it means that is the activity of prajna, wisdom. 
+So, that is “practice wisdom constantly.” Your body is always practicing wisdom. That is prajñā conduct: it means that is the activity of prajñā, wisdom. 
 
 #### 18:50
 
-> “Prajna is cut off by a single deluded thought. 
+> “Prajñā is cut off by a single deluded thought. 
 
-Because prajna is functioning constantly, beyond human speculation, before the vibration of your consciousness. This is prajna, so prajna is cut off by a single deluded thought. So usual, common people don’t realize the functioning of the wisdom, because they constantly depend on the human world fabricated by the vibration of human consciousness. That’s why here it says, “Prajna is cut off by a single deluded thought.”
+Because prajñā is functioning constantly, beyond human speculation, before the vibration of your consciousness. This is prajñā, so prajñā is cut off by a single deluded thought. So usual, common people don’t realize the functioning of the wisdom, because they constantly depend on the human world fabricated by the vibration of human consciousness. That’s why here it says, “Prajñā is cut off by a single deluded thought.”
 
-> “By one wise thought, Prajna is produced. 
+> “By one wise thought, Prajñā is produced. 
 
 In other words, you can cultivate, nurture the wisdom. By one wise person. 
 
-In terms of threefold emptiness, the first one is *emptiness of form*. Prajna is considered in terms of emptiness of mark. At that time, prajna is characterized by vastness, no boundary, boundlessness. So from this point, [there are] no frames [of] each-other. Prajna doesn’t have any frames, partitions, so it’s vast. That’s why prajna remains undeluded “and practice wisdom constantly.” 
+In terms of threefold emptiness, the first one is *emptiness of form*. Prajñā is considered in terms of emptiness of mark. At that time, prajñā is characterized by vastness, no boundary, boundlessness. So from this point, [there are] no frames [of] each-other. Prajñā doesn’t have any frames, partitions, so it’s vast. That’s why prajñā remains undeluded “and practice wisdom constantly.” 
 
-And in terms of *emptiness of dharma*, prajna is based on emptiness. So from this point, in order to realize prajna, you have to practice prajna beyond prajna. We say “wisdom beyond wisdom” every morning, all the time we say “wisdom beyond wisdom.” You cannot attach to the emptiness which you have realized. So you have to go beyond emptiness if you really have arrived, because it is emptiness. 
+And in terms of *emptiness of dharma*, prajñā is based on emptiness. So from this point, in order to realize prajñā, you have to practice prajñā beyond prajñā. We say “wisdom beyond wisdom” every morning, all the time we say “wisdom beyond wisdom.” You cannot attach to the emptiness which you have realized. So you have to go beyond emptiness if you really have arrived, because it is emptiness. 
 
-That’s why “the wise person can produce prajna”: because he can have capacity enough to see minute vibration of human consciousness by which prajna is cut off. 
+That’s why “the wise person can produce prajñā”: because he can have capacity enough to see minute vibration of human consciousness by which prajñā is cut off. 
 
 So that is [what it says here]. And next, 
 
-> “Worldly men, deluded and confused, do not see Prajna. They speak of it with their mouths, but their minds are always deluded.
+> “Worldly men, deluded and confused, do not see Prajñā. They speak of it with their mouths, but their minds are always deluded.
 
-So they can talk. Well, we can talk prajna, we can talk compassion, we can talk Buddha’s teaching, but there are many people who don’t practice. But I think the words people [say] about some aspect of Buddha’s teaching are also important, but are not perfect. So we should respect the [talking] in language, even though they don’t practice it. But it is not perfect. 
+So they can talk. Well, we can talk prajñā, we can talk compassion, we can talk Buddha’s teaching, but there are many people who don’t practice. But I think the words people [say] about some aspect of Buddha’s teaching are also important, but are not perfect. So we should respect the [talking] in language, even though they don’t practice it. But it is not perfect. 
 
 So [a] wise person respects language, words, even though people don’t practice it. A wise person respects both language and [the] person. 
 
 “But their minds are always deluded...”
 
->  “They constantly say of themselves, ‘I cultivate Prajna!’ and though they continually speak of emptiness, they are unaware of true emptiness. Prajna, without form or mark, is just the wisdom mind. If thus explained, just this is Prajna wisdom.”
+>  “They constantly say of themselves, ‘I cultivate Prajñā!’ and though they continually speak of emptiness, they are unaware of true emptiness. Prajñā, without form or mark, is just the wisdom mind. If thus explained, just this is Prajñā wisdom.”
 
 Okay? 
 
 So I think wisdom must be something we should practice. 
 
-[Before we go to the] next page, do you have questions about the meaning of *prajna*?
+[Before we go to the] next page, do you have questions about the meaning of *prajñā*?
 
-**Question:** When it says, “prajna is cut off,” I would have thought prajna goes on. 
+**Question:** When it says, “prajñā is cut off,” I would have thought prajñā goes on. 
 
-**Katagiri Roshi:** Mm-hmm, yes, prajna is going constantly.
+**Katagiri Roshi:** Mm-hmm, yes, prajñā is going constantly.
 
 **Same person:** And so in what sense is it cut off?
 
@@ -153,7 +153,7 @@ So the other shore is not *far* from us. The other shore is here in this shore. 
 
 So if you arrived, you cannot stay there, you have to go beyond. 
 
-That’s why *prajna paramita* means wisdom *beyond* [the] wisdom which you have arrived. Because you already [have] wisdom, so you have already arrived there. But you have to go beyond. 
+That’s why *prajñā paramita* means wisdom *beyond* [the] wisdom which you have arrived. Because you already [have] wisdom, so you have already arrived there. But you have to go beyond. 
 
 It means, if you stay with wisdom which you have gone, I think [a] question comes up, like Cory said: what’s going on if we cut off the wisdom? But real wisdom must be something alive in our everyday life. So, wisdom *beyond* wisdom. That is real wisdom. 
 
@@ -161,7 +161,7 @@ It means, if you stay with wisdom which you have gone, I think [a] question come
 
 Okay, next, page 97... this is also talking about the meaning of *paramita*. This (previous) paragraph [talks about] the meaning of paramita in terms of *emptiness of mark*, and in the next paragraph on page 97, paramita is [talked about] in terms of *emptiness of dharma*:
 
-> “Good Knowing Advisors, deluded people recite with their mouths, but while they recite they live in falsehood and in error. When there is practice in every thought, that is the true nature. You should understand this dharma, which is the Prajna dharma; and cultivate this conduct, which is the Prajna conduct. Not to cultivate is to be a common person, but in a single thought of cultivation, you are equal to the Buddhas.”
+> “Good Knowing Advisors, deluded people recite with their mouths, but while they recite they live in falsehood and in error. When there is practice in every thought, that is the true nature. You should understand this dharma, which is the Prajñā dharma; and cultivate this conduct, which is the Prajñā conduct. Not to cultivate is to be a common person, but in a single thought of cultivation, you are equal to the Buddhas.”
 
 From this point, this paramita is mentioned in terms of *emptiness of dharma*, because everything exists in the emptiness, so you have to always go beyond something which you have understood, which you have been. You have to go beyond. Always you have to move, [that] means constantly you should maintain actualization [or] flow, the flow of activities. 
 
@@ -209,19 +209,19 @@ That is [what] Dōgen Zenji [always says] in *Shōbōgenzō*: life and death, or
 
 Page 100: 
 
-> “Good Knowing Advisors, Maha Prajna Paramita is the most honored, the most supreme, the foremost. It does not stay; it does not come or go. All Buddhas of the three periods of time emerge from it. You should use great wisdom to destroy affliction, defilement, and the five skandhic heaps. With such cultivation as that you will certainly realize the Buddha Way, transforming the three poisons into morality, concentration, and wisdom.
+> “Good Knowing Advisors, Maha Prajñā Paramita is the most honored, the most supreme, the foremost. It does not stay; it does not come or go. All Buddhas of the three periods of time emerge from it. You should use great wisdom to destroy affliction, defilement, and the five skandhic heaps. With such cultivation as that you will certainly realize the Buddha Way, transforming the three poisons into morality, concentration, and wisdom.
 
-This paragraph [talks about] the meaning of *maha prajna paramita* as a whole. 
+This paragraph [talks about] the meaning of *maha prajñā paramita* as a whole. 
 
-The first [sentence says], “Maha Prajna Paramita is the most honored, the most supreme, the foremost.” This is maha prajna paramita. It means, who are you? You are supreme. You are the most honored, the most supreme, the foremost. It means, you can forget *you*, forget yourself. That is wisdom – perfect wisdom. That’s why there is the practice of egolessness. Otherwise, we always attach; we are very selfish. 
+The first [sentence says], “Maha Prajñā Paramita is the most honored, the most supreme, the foremost.” This is maha prajñā paramita. It means, who are you? You are supreme. You are the most honored, the most supreme, the foremost. It means, you can forget *you*, forget yourself. That is wisdom – perfect wisdom. That’s why there is the practice of egolessness. Otherwise, we always attach; we are very selfish. 
 
-So that’s why the first [sentence] says, prajna paramita – your life – “is the most honored, the most supreme, the foremost.” That means you should forget yourself. That is to learn the self. Without this, you cannot master anything, you don’t understand anything. 
+So that’s why the first [sentence] says, prajñā paramita – your life – “is the most honored, the most supreme, the foremost.” That means you should forget yourself. That is to learn the self. Without this, you cannot master anything, you don’t understand anything. 
 
 Next it says, “It does not stay; it does not come or go.” “Not stay” means *present*, “not go” means *past*, and “not come” means *future*. So it means time. So if you forget yourself, then next, you can go beyond time. 
 
-Without this practice, you cannot understand anything. Naturally you do, but using your consciousness you have to *taste* this practice. That’s why here it says *maha prajna paramita* is not to stay, not to come, not to go. This is prajna; this is the nature of your life. 
+Without this practice, you cannot understand anything. Naturally you do, but using your consciousness you have to *taste* this practice. That’s why here it says *maha prajñā paramita* is not to stay, not to come, not to go. This is prajñā; this is the nature of your life. 
 
-[It is not something.] If we say “your life is wisdom,” [then] we try to know, “What is wisdom?” That means you are attached to the present. And then we say, “We have *prajna*, but we don’t notice, that’s why by practice we have to know it.” This is [that] we attach to the future. Or we say, “In the past, we have prajna, we have it already, we are gifted with wisdom.” That means we already attach to the past. But it’s not real wisdom.
+[It is not something.] If we say “your life is wisdom,” [then] we try to know, “What is wisdom?” That means you are attached to the present. And then we say, “We have *prajñā*, but we don’t notice, that’s why by practice we have to know it.” This is [that] we attach to the future. Or we say, “In the past, we have prajñā, we have it already, we are gifted with wisdom.” That means we already attach to the past. But it’s not real wisdom.
 
 So wisdom means you should accept yourself right now, right here, and you should behave, you should do it. That means you have to forget yourself, then next, go beyond time. 
 
