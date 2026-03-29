@@ -11,13 +11,13 @@ title: "The Way of Precept Practice: Restraint and Extermination"
 
 **This transcript is in draft stage.**
 
-**Katagiri Roshi**: Today I would like to speak about the Buddhist Precepts. I cannot talk about all of the Ten Prohibitory Precepts, but I would like to speak about the important key point of the Precepts. 
+**Katagiri Roshi**: Today I would like to speak about the Buddhist Precepts. I cannot talk about all of the Ten Prohibitory Precepts, et cetera, but I would like to speak about the important key point of the Precepts. 
 
 The Precepts are very important for human beings. But if you misunderstand or if you misuse the Precepts, not only you but everyone will be frightened always by guilt. Even if you obey the Precepts completely, still you [will be] frightened that you could [break them]. Just like in business: if you are successful in doing business, you seem to be happy, but in the bottom of your life still there is uneasiness, because you are afraid of failure. So the more you are successful in your business, I think the more you make effort to continue to do it; that’s why finally you are exhausted. 
 
-So how can you use the Precepts, how can you use your energy in balance? “In balance” doesn’t mean a comfortable way of life. You have to use your energy for a certain period of time strongly or with full concentration; but sometimes you must use the energy a little bit in a relaxed [fashion]. I don’t know *how*; no one teaches you in that way, because this is [what] individual people should practice. 
+So how can you use the Precepts and how can you use your energy in balance? “In balance” doesn’t mean a comfortable way of life. You have to use your energy for a certain period of time strongly or with full concentration; but sometimes you must use the energy in a little bit relaxed [fashion]. I don’t know *how*; no one teaches you that, because this is [what] individual people should practice. 
 
-That’s why the Precepts are very important [yet] we don’t understand the Precepts and how to deal with them. So finally most of people are very confused by the Precepts. Just like a business, as I mentioned; just like the other aspects of human life. 
+That’s why [even though] the Precepts are very important we don’t understand the Precepts and how to deal with them. So finally most of people are very confused by the Precepts. Just like a business, as I mentioned; just like the other aspects of human life. 
 
 Here is Kyōgō Zen Master, who was one of Dōgen Zenji’s disciples, commenting on the meaning of the Buddhist Precepts. This is a very simple sentence, but there is a very profound meaning. So in your whole life you have to understand this, okay? Through the practice, through meditation, through zazen. So let me read this:
 
@@ -25,19 +25,19 @@ Here is Kyōgō Zen Master, who was one of Dōgen Zenji’s disciples, commentin
 >
 > (From *Bonmokyo Ryakusho*, Kyōgō’s commentary on the *Brahmajala Sutra*.)
 
-There are two points: *precept* refers to *restraint* and *extermination*, and Kyōgō Zen Master comments on this. 
+There are two points: *precept* refers to *restraint* and *extermination*. Kyōgō Zen Master comments on this. 
 
-[...] What is the precept originally? Is the precept made by someone, or are precepts produced by some divinity or spirit, or whatever it is? 
+So [about restraint]: What is the precept originally? Is the precept made by someone, or are precepts produced by some divinity or spirit, or whatever it is? 
 
-Here it says, “In attaining enlightenment under the Bodhi tree Shakyamuni Buddha fruited the precepts.” So when Shakyamuni became Buddha, to become buddha is the contents of the precepts; he expressed, manifested, unfolded his experience of enlightenment, of becoming Buddha, then that is [the precepts]. That’s why in attaining enlightenment – “attaining enlightenment” means becoming buddha - under the Bodhi tree, then Shakyamuni Buddha fruited the precepts. So precepts come naturally because precepts are the contents of Buddha’s life. In other words, precepts are Buddha’s life, Buddha’s life are precepts; no difference between them. 
+Here it says, “In attaining enlightenment under the Bodhi tree Shakyamuni Buddha fruited the precepts.” So when Shakyamuni became Buddha, to become buddha is the contents of the precepts; he expressed, manifested, unfolded his experience of enlightenment, of becoming Buddha, then that is [the precepts]. That’s why in attaining enlightenment – “in attaining enlightenment” means “in becoming Buddha” - under the Bodhi tree, then Shakyamuni Buddha fruited the precepts. So precepts come naturally because precepts are the contents of Buddha’s life. In other words, precepts *are* Buddha’s life, Buddha’s life are precepts; no difference between them. 
 
-So that is [why] Kyōgō Zen master says here, “In attaining enlightenment under Bodhi tree Shakyamuni Buddha fruited the precepts.” Shakyamuni Buddha did not try to fruit the precepts; *fruit* is [that] naturally something is matured, nurtured. Not only by one person; no, you cannot mature anything [that way], you cannot ripen anything by yourself. You need lots of help. You know, others: trees, birds, all sentient beings, past, present, future. All sentient beings, *then* something is ripened. 
+So that is [why] Kyōgō Zen master says here, “In attaining enlightenment under Bodhi tree Shakyamuni Buddha fruited the precepts.” Shakyamuni Buddha did not try to fruit the precepts; *fruit* is [that] naturally something is matured, nurtured. Not only by one person; no, you cannot mature anything [that way], you cannot ripen anything by yourself. You need lots of help. You know, others: trees, birds, all sentient beings, past, present, future. All sentient beings [are there], *then* something is ripened. 
 
-You can see the fruit on the tree. You say, “Oh, fruit.” No one pays attention to the depth of the fruit’s life; how fruit becomes fruit. We don’t pay attention to it. And then immediately we pick it up and eat it. That is really a hungry ghost attitude, you know? *[There are some chuckles.]* 
+You can see the fruit on the tree. You say, “Oh, fruit!” No one pays attention to the depth of the fruit’s life, how fruit becomes fruit; we don’t pay attention to it. And then immediately we pick it up and eat it. That is really a hungry ghost attitude, you know? *[There are some chuckles.]* 
 
 That is important: A precept is not something produced or created by somebody or something. Realization of the whole universe, how it is going: fruit ripens. The person’s life, tree’s life, and all sentient beings, that is called *precept*, we say. First, you should remember this [point].
 
-#### 
+#### 9:01
 
 But if you say *precept*, I think there are two meanings. One is *restraint*, and also *extermination*. Two points there. So let’s look the meaning of the *restraint*. What is *restraint*? 
 

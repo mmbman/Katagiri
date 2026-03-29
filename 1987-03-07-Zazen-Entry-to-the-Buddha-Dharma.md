@@ -105,7 +105,7 @@ Within the “ah” – who are they? Can you pick up something particular? Pay
 
 *After* “ah,” you pick up *you*, who says “ah.” But I am talking about *before* you say “ah.” Okay? 
 
-Here is a partition, a very thin partition, just like a very thin curtain.Very thin silk. Not silk... silk is still touchable, but that partition is not touchable, but it’s still something there. Just like a mist. A mist is pretty hard to grasp, but it’s there. And then if you touch it, it disappears, and you can get next door. This is a [...] door. 
+Here is a partition, a very thin partition, just like a very thin curtain. Very thin silk. Not silk... silk is still touchable, but that partition is not touchable, but it’s still something there. Just like a mist. A mist is pretty hard to grasp, but it’s there. And then if you touch it, it disappears, and you can get next door. This is a [...] door. 
 
 So [...] you are coming back to your home, and you put your body and mind in the bathtub. And then immediately within this partition you create your own life, so-called “ah.” Simple life. And then right before this partition, right before you touch [it] – this is the very beginning of the moment, okay? The very moment, before you think of it, before something runs through your consciousness. In that [situation], I think your body and your consciousness and the water become exactly one. That situation is never described. But your body and the water [are] functioning simultaneously, together.
 

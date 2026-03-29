@@ -69,9 +69,9 @@ Anyway, shikantaza is the zazen which allows you to be free from any kind of fee
 
 But we don’t see that. Always we see zazen *before* zazen and *after* zazen. If you deal with zazen like this, there are lots of techniques. Because, the life we can see before we do zazen is very comfortable, and then after zazen, you can see your life is still confusion, and you can see lots of things more than before. So gradually [your] technique of practice is increasing, again and again, day after day. No matter how long you try to master each technique – you never reach, you never be free of.
 
-That’s why we have to see zazen directly, zazen itself. This is shikantaza. 
+That’s why we have to see zazen directly, zazen itself. This is shikantaza. If you don’t do this, you cannot educate any person. You cannot grow; you cannot deepen your personality. 
 
-If you don’t do this, you cannot educate any person. You cannot grow; you cannot deepen your personality. If you handle zazen just as a means, you are still tied up with the dualistic world; you create *more* confusion. For a certain period of time, you will be happy. But after that, I don’t think you will be happy. Because [time is] going on; change.
+If you handle zazen just as a means, you are still tied up with the dualistic world; you create *more* confusion. For a certain period of time, you will be happy. But after that, I don’t think you will be happy. Because [time is] going on; change.
 
 #### 22:10
 
