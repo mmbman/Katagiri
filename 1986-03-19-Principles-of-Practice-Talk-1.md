@@ -80,7 +80,7 @@ This is the purpose of practice, the purpose of spiritual life.
 
 So what is the purpose of spiritual life? It is not the kind of individual experience [where] we usually believe that spiritual life is accompanied by mysterious or [miraculous] experiences. That is not the main purpose of spiritual life. You have to learn something *huge*. 
 
-This is [the] purpose of spiritual life. That’s why in the *Prajñāpāramitā Sutra* we say we have to attain *anuttara-samyak-sambodhi*: the complete, perfect, supreme enlightenment. [This is] in the *Prajñāpāramitā* we chant every day. And then, you can attain *wisdom*, *prajnaparamita*. 
+This is [the] purpose of spiritual life. That’s why in the *Prajñāpāramitā Sutra* we say we have to attain *anuttara-samyak-sambodhi*: the complete, perfect, supreme enlightenment. [This is] in the *Prajñāpāramitā* we chant every day. And then, you can attain *wisdom*, *prajñāpāramitā*. 
 
 So in order to attain *anuttara-samyak-sambodhi*, perfect supreme enlightenment, that means you have to learn something more than you think or you cannot think. This is something very profound. 
 

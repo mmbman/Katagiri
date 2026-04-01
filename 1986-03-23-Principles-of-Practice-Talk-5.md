@@ -137,11 +137,7 @@ So, this is what is called “to learn the backward step which turns your light 
 
 So, in a sense, *reflection* is considered as human suffering beyond human consciousness. [It’s considered] in terms of hard practice. It’s really hard practice, because suffering is really a serious matter in life. [...] Because you cannot get out from this. 
 
-But [because of] this suffering, you can survive. You have to appreciate this suffering, because we are seeking constantly for something more than the conscious world or unconscious world. We are seeking for it, always. This is the suffering. So, that suffering comes into existence beyond the functioning of your consciousness. So, it is very serious in life. 
-
-But if you realize that suffering, real suffering coming from the first moment of your being, exactly – then you can attain enlightenment. 
-
-So, suffering makes you sad and painful, but on the other hand, suffering makes you become big laughter, relief. You can [be relieved], exactly. 
+But [because of] this suffering, you can survive. You have to appreciate this suffering, because we are seeking constantly for something more than the conscious world or unconscious world. We are seeking for it, always. This is the suffering. So, that suffering comes into existence beyond the functioning of your consciousness. So, it is very serious in life. But if you realize that suffering – real suffering coming from the first moment of your being, exactly – then you can attain enlightenment. So, suffering makes you sad and painful, but on the other hand, suffering makes you become big laughter, relief. You can [be relieved], exactly. 
 
 Well, you can experience this in your life. If you cry day [after] day, one moment completely crying [turns into] big laughter. Just like the bottom of a bucket broken and the water rushing away from it, all of a sudden. 
 

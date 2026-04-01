@@ -152,13 +152,13 @@ But still, in the samsaric world it is very difficult. That’s why there are se
 
 ... So, *giving*. Constantly giving. This giving is not the usual giving; [it is] giving *paramita*. *Paramita* means “perfect accomplishment.” So, giving must be accomplished perfectly. That means, completely open, and just do it. 
 
-And also *precepts*. Precepts are Buddha’s suggestion how to live. Buddha’s suggestions – not moral suggestions, not ethical suggestions – *Buddha’s* suggestions. The suggestion of the truth, how to live. 
+And also *precepts*. Precepts are Buddha’s suggestion how to live. Buddha’s suggestions – not moral suggestions, not ethical suggestions, *Buddha’s* suggestions. The suggestion of the truth, how to live. 
 
-And also *effort*, and *patience*. And also *wisdom* and *dhyana*. 
+And also *effort*, and *patience*. And also *wisdom* and *dhyana* (meditation). 
 
 Let’s do this. And then, very naturally, we can come back to the source of *samsara*. 
 
-So that’s why mindfulness is pretty important for us. Let’s come back. *Mindfulness* [means] constantly remember. You must remember not only with a thought, but you must remember that first thought of *samsara* with the whole body and mind. So, that’s why you can come back. And then, you can be in *dhyana*, so-called meditation, or *samādhi*. You can be there. 
+So that’s why mindfulness is pretty important for us. Let’s come back. *Mindfulness* [means] constantly remember. You must remember not only with a thought, but you must remember that first thought of *samsara* with the whole body and mind. That’s why you can come back. And then, you can be in *dhyana*, so-called meditation, or *samādhi*. You can be there. 
 
 That is the practice of egolessness. So that’s why Buddha says, “Suffering begets selflessness.” Egolessness. 
 

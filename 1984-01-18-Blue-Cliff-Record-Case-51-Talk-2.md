@@ -176,7 +176,7 @@ That’s why next it says,
 
 “Born of the same lineage” means be present with nature and the trees, the beautiful life force of nature. Anyway, dwelling in, constantly to dwell in. That [is the meaning of] “born of the same lineage.”
 
-The other day I told you, when you want to be great mountaineer, you have to be one with the mountains. How can you do it? Just climb, climb the mountain. Every day; even in the snow. In winter and summer, we have to be one with, be present with the mountains. 
+The other day I told you, when you want to be great mountaineer, you have to be one with the mountains. How can you do it? Just climb; climb the mountain. Every day; even in the snow. In winter and summer, we have to be one with, be present with the mountains. 
 
 To be present, be one with the mountain is to make your life deepen and mature. If your life is mature, very naturally you can live with the mountain exactly in the same way as the mountain’s life. So, mountains give your maturity to you. 
 

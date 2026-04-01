@@ -190,7 +190,7 @@ So that’s why, if you continue to do it, naturally you will come to enhance or
 
 Anyway, let’s go back, let’s go back, every day. And then that is called *the backward step*. [It is] not “withdraw.” [...] That is called *reflection*. 
 
-That’s why this reflection is [and] begets suffering; [it’s] really suffering. But that suffering is completely beyond your intellectual understanding; [it’s] before your intellect is suffering. Because everyone has to go back to there; consciously or unconsciously, the root of your being is coming from that realm. So very naturally, everyone always goes back to there, consciously or unconsciously. 
+That’s why this reflection is [and] begets suffering; [it’s] really suffering. But that suffering is completely beyond your intellectual understanding; [it’s] before your intellect is suffering. Because everyone has to go back to there: consciously or unconsciously, the root of your being is coming from that realm. So very naturally, everyone always goes back to there, consciously or unconsciously. 
 
 But most people don’t realize it! Even though they are standing there, they don’t realize it. But they are very interested in the world *after*: the second moment, second thought, third thought. That is the so-called *samsaric world*. That’s why the problem is going on and on; there is no peace. The more they try to get the peace, the more they beget not-peace in order to get the peace. That is *samsara*. 
 
@@ -210,11 +210,11 @@ That is called *reflection*. And also Dōgen Zenji mentions in this book – Num
 
 This is cutting off the root of discriminating mind, so-called reflection. “Learn the backward step, and turn your light inwardly to illuminate yourself.” How do you do this? This is “Avalokiteshvara turns the sound-perceiving.” 
 
-Avalokiteshvara is a Bodhisattva who listens to the sound of perfect observation of the world. By means of observing very closely what the human world is, what human beings are, then he can listen to the kind of sound, very deep sound – in other words, very minute vibration of the world and of the human beings. Very deep. That is called *suffering*. 
+Avalokiteshvara is a bodhisattva who listens to the sound of perfect observation of the world. By means of observing very closely what the human world is, what human beings are, then he [or she] can listen to the kind of sound, very deep sound – in other words, very minute vibration of the world and of the human beings. Very deep. That is called *suffering*. 
 
-Suffering is completely beyond your consciousness. It’s there. Because constantly we are return to the source, return to the source, even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep, beyond consciousness or unconsciousness. That is they try to get that first moment of being present *right now, right here*. Where two worlds make one: intellect, spiritual world. This is this partition. Okay?  
+Suffering is completely beyond your consciousness. It’s there. Because constantly we are return to the source, return to the source, even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep, beyond consciousness or unconsciousness. That is they try to get that first moment of being present *right now, right here*. Where two worlds make one: intellect, spiritual world. This is this partition.
 
-So constantly there. Constantly we want to get it! But this is so-called reflection. Whatever we do, always we reflect upon ourselves. “Are you sure? Are you sure? Are you are happy? Yes, you are happy. But are you sure?” Constantly you ask yourself, and then try to get something which makes it possible for your happiness to *be*. Still you want. Because this is to try to come back to the source, naturally. This is *suffering*, so-called. 
+So, constantly there. Constantly we want to get it! But this is so-called reflection. Whatever we do, always we reflect upon ourselves. “Are you sure? Are you sure? Are you are happy? Yes, you are happy. But are you sure?” Constantly you ask yourself, and then try to get something which makes it possible for your happiness to *be*. Still you want. Because this is to try to come back to the source, naturally. This is *suffering*, so-called. 
 
 So does suffering come from your intellect or your six senses? No. Completely beyond. That’s why [it’s a] “noble truth” – suffering is noble truth. So suffering is pretty deep. 
 

@@ -16,7 +16,7 @@ Katagiri Roshi introduces a series of seven talks on the *Platform Sutra*. This 
 
 ##### [*Platform Sutra* – Talk 2](1987-03-20-Platform-Sutra-Talk-2)
 
-Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajñā*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajñā*. 
+Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajñā*,” or “Wisdom.” This talk includes the meaning of the term *maha prajñāpāramitā*, and three aspects of *prajñā*. 
 
 ---
 

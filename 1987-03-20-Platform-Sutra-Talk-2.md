@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 2"
 
 ### Summary
 
-Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajñā*,” or “Wisdom.” This talk includes the meaning of the term *maha prajnaparamita*, and three aspects of *prajñā*. 
+Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Prajñā*,” or “Wisdom.” This talk includes the meaning of the term *maha prajñāpāramitā*, and three aspects of *prajñā*. 
 
 ### Transcript
 
@@ -29,15 +29,15 @@ Look at page 40 in the sutra:
 
 I think here [where] it says, “Good Knowing Advisors, the self-nature of Bodhi is originally clear and pure. Simply use that mind, and you will straightaway accomplish the buddha way,” that teaching is connected with this first paragraph of the sutra in Chapter 2, “Prajñā”.
 
- “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’”: “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajñā*. You have to think about that wisdom, *prajnaparamita*. That is what it says here.
+ “The Master took his seat and said to the great assembly, ‘All of you purify your minds...’”: “Purify your minds” means own-being, [which] means self-nature. Self-nature is clear and pure originally. That’s why you have to use this mind directly, straightforwardly, “straightaway,” without inserting any defilement, and then accomplish buddhahood. That is his teaching: purify your mind, and think about *maha prajñā*. You have to think about that wisdom, *prajñāpāramitā*. That is what it says here.
 
 #### 3:26
 
 I think *prajñā* can be considered in terms of three points. 
 
-One point is the *essence* of prajñā, the essence of wisdom. The essence of wisdom is [that] the self nature is originally pure and clean. This is the essence of *prajnaparamita*.
+One point is the *essence* of prajñā, the essence of wisdom. The essence of wisdom is [that] the self nature is originally pure and clean. This is the essence of *prajñāpāramitā*.
 
-And the *function* of prajnaparamita is... how can I say it. In *Fukanzazengi,* Dōgen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajñā. 
+And the *function* of prajñāpāramitā is... how can I say it. In *Fukanzazengi,* Dōgen Zenji [says], “Learn the backward step that turns your light inwardly to illuminate yourself.” This is the *function* of the prajñā. 
 
 [...] The essence of prajñā is [that] the self nature is originally clean and pure, that’s why if wisdom works, [there is] nothing to bring in from outside. You have [it] already. So if you return to the original nature of existence, it simultaneously illuminates. If you come back, *you* illuminate. In other words, if you come back to *original nature of existence*, you can experience religious transformation at 360 degrees: exactly turn [around]. That is *illuminate*.
 
