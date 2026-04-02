@@ -255,7 +255,7 @@ So, according to Shen Hsiu, I think he stands always in the dualistic world, loo
 
 This is one aspect of the practice: seeking for the truth, constantly, from the beginning to end. Even if you attain enlightenment, even if you become buddha, constantly we have to seek. 
 
-And on the other hand, the other aspect of practice is to descend to the human world to share your life with all sentient beings. [This is the spirit of Hui Neng’s poem.] “Originally Bodhi has no tree, the bright mirror has no stand.” Because our foundation is already buddha-nature, so there is no particular thing to discuss or to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
+And on the other hand, the other aspect of practice is to descend to the human world to share your life with all sentient beings. [This is the spirit of Hui Neng’s poem.] “Originally Bodhi has no tree, the bright mirror has no stand”: because our foundation is already buddha-nature, so there is no particular thing to discuss or to forget. So constantly we have to stand up there, and then we can deal with the human world. “Originally there is not a single thing: where can dust alight?” So, we have to descend to the human world and save all sentient beings. 
 
 So [we need] both. Both work together in our practice. 
 

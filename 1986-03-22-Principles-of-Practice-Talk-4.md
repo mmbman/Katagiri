@@ -84,15 +84,15 @@ So this is the so-called *one person with no second person*, exactly.
 
 This is called *belief*. It’s belief. With no confusions, no perverted views, no increase or decrease, no misunderstanding. Because it is very pure nature of reality, which is going on from moment to moment. Life is going exactly like this. 
 
-Not only the waking up. When you stand up here – right here, right now – where is the very inception of the standing, being here? What do we mean? *Who* stands up? *I* stand up? That means it’s too late, [it’s] already conceptual world. The floor lets me stand up? It’s already a concept, conceptual world. The universe lets me stand up? It is still conceptual world. So who lets me stand up? I don’t know. Even though I don’t know, I stand up right here. 
+Not only the waking up. When you stand up here – right here, right now – where is the very inception of the standing, being here? What do we mean? *Who* stands up? *I* stand up? That means it’s too late, [it’s] already conceptual world. Does the floor lets me stand up? It’s already a concept, conceptual world. Does the universe lets me stand up? It is still conceptual world. So who lets me stand up? I don’t know. Even though I don’t know, I stand up right here. 
 
 So that is very difficult to say: “I don’t know,” but here is standing, here is the reality that I stand up. 
 
 So in the very inception of being here and now – in other words, the very inception of the birth – [it] is completely out of questions. But in that realm of the world, you are creating your life, constantly. That’s why everyone has a great capability to create a world, life. 
 
-So everyone has great capability to create the human world. Whichever [way] to go: bad, good, whichever. But if you realize that realm of the one world, so-called *partition* I mentioned, I think you cannot create an unwholesome world – because it is very pure, and because you can see all sentient beings living in peace and harmony. This is one world in the realm of the partition. So you cannot do something wrong, you cannot hurt anybody. So very naturally you create a peaceful world. That is so-called *creative* life *with* all sentient beings. 
+Everyone has great capability to create the human world. Whichever [way] to go: bad, good, whichever. But if you realize that realm of the one world, so-called *partition* I mentioned, I think you cannot create an unwholesome world – because it is very pure, and because you can see all sentient beings living in peace and harmony. This is one world in the realm of the partition. You cannot do something wrong, you cannot hurt anybody, so very naturally you create a peaceful world. That is so-called *creative* life *with* all sentient beings. 
 
-That is [that] first we have to *believe* [we ourselves are] exactly present right in the midst of this Way.
+That is [why] first we have to *believe* [we ourselves are] exactly present right in the midst of this Way.
 
 #### 25:23
 
