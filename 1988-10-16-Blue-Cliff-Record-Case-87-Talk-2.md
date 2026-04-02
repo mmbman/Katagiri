@@ -109,7 +109,7 @@ For instance, Ryokan Zen Master in Japan, who is pretty well known by Zen studen
 
 This is life, for him. You can understand it, you know? What is life? Life is just like a maple leaf is falling. “Falling” means your life is marching toward death. *[He chuckles.]* Marching to the graveyard. And on the way to the grave, what happens? Showing your back, showing your front – that’s it. Showing crying, showing pleasure – showing suffering, always. This is life. 
 
-Somebody asked me to write a calligraphy, so I added one more thing: death. And about death I said, “When [fall of the maple leaf] is taking place, it is no failure [to] fall.” Do you understand? It is no failure in [falling]. In other words, right in the midst of falling, there is no failure. Do you understand? 
+Somebody asked me to write a calligraphy, so I added one more thing: death. And about death I said, “When [fall of the maple leaf] is taking place, it is no failure [to] fall.” Do you understand? It is no failure in [falling]. In other words, right in the midst of falling, there is no failure.
 
 “No failure” means completely beyond success and failure: just going. *[He laughs.]* No way. This is life; this is death. Because death is completely beyond. 
 

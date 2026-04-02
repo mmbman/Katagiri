@@ -54,7 +54,7 @@ But I think this is a little bit questionable.
 
 Dōgen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shōbōgenzō*. And also in [the book] *Zen Master Dōgen*, Dōgen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
 
-> The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
+> The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this is a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
 > (From *Zen Master Dōgen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, by Yuho Yokoi with Daizen Victoria.)
 
