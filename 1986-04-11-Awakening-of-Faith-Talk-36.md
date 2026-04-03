@@ -180,9 +180,9 @@ The specific coordinating causes are divided into two categories: immediate caus
 
 Immediate causes means to give immediate opportunity to enable the practicer to attain buddhahood. Remote causes mean to give gradual opportunity to enable the practicer to attain buddhahood, through countless span of time. In other words, there are many kinds of type of the people – mature person or immature person. When you educate immature person, you have to be patient, and give opportunity to learn the Buddha way for long, long run. Even though they don't understand, anyway, we must be patient and try to give opportunity to learn and to reach Buddha's way. Using the lots of time, countlessly. So very naturally, you must be compassionate, and you must be patient. So that what it says here. 
 
-And each of these two is further divided into two kinds. One is the causes that strengthen the practices. It means to help out the practicer to increase the strength of six paramitas. In this case, constantly we try to help people, giving the immediate opportunity to learn the Buddha way, and to giving the gradual opportunity to learn the Buddha way. But at that time, we need a certain skillful method, that is the six paramitas, in this book mentions. 
+And each of these two is further divided into two kinds. One is the causes that strengthen the practices. It means to help out the practicer to increase the strength of six pāramitās. In this case, constantly we try to help people, giving the immediate opportunity to learn the Buddha way, and to giving the gradual opportunity to learn the Buddha way. But at that time, we need a certain skillful method, that is the six pāramitās, in this book mentions. 
 
-And then, the cause that enables man to attain wisdom. By the practice of the six paramitas, you can have the experience of wisdom. 
+And then, the cause that enables man to attain wisdom. By the practice of the six pāramitās, you can have the experience of wisdom. 
 
 Do you have questions? 
 

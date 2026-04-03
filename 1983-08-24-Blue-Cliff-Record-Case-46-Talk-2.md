@@ -224,9 +224,9 @@ Fifth, “explaining preaching” – that teaching of [the] process of how you 
 
 #### 42:31
 
-The first one is “explaining the eye of the path.” That means you should have the third eye; that means the eye of the path: deep understanding. In other words, that is your magnanimity, tolerance, patience, effort, [...]. And also wisdom and tranquility. [The] six *paramitas*. That is *the eye of the path*. 
+The first one is “explaining the eye of the path.” That means you should have the third eye; that means the eye of the path: deep understanding. In other words, that is your magnanimity, tolerance, patience, effort, [...]. And also wisdom and tranquility. [The] six *pāramitās*. That is *the eye of the path*. 
 
-With your third eye you have to see the human world. For this, you cannot understand mountains in terms of your views, and you cannot judge it immediately. So you have to be patient, and you have to be magnanimous, to understand total picture of the mountains, including the clouds and skies, human beings, birds, trees, et cetera. For this, you have to continue to practice at least the six *paramitas*.
+With your third eye you have to see the human world. For this, you cannot understand mountains in terms of your views, and you cannot judge it immediately. So you have to be patient, and you have to be magnanimous, to understand total picture of the mountains, including the clouds and skies, human beings, birds, trees, et cetera. For this, you have to continue to practice at least the six *pāramitās*.
 
 That is with *the eyes of the path*. At that time, you can understand the whole world, which is buddha. Everything is buddha.
 

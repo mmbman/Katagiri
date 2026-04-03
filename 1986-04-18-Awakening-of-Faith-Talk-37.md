@@ -31,9 +31,9 @@ So specific coordinating causes means *individually*, helping from inside and ou
 
 So from this point, everyone has great possibility to grow or to develop in this life.
 
-And next, the causes that strengthen activity. So this is for the people, for the human beings, to try to give help in concrete way, they try to help us as six paramitas. That is the causes that strengthen activity. 
+And next, the causes that strengthen activity. So this is for the people, for the human beings, to try to give help in concrete way, they try to help us as six pāramitās. That is the causes that strengthen activity. 
 
-And then, the causes that enable one to attain enlightenment through through the practice of the six paramitas, people can experience the truth, suchness.
+And then, the causes that enable one to attain enlightenment through through the practice of the six pāramitās, people can experience the truth, suchness.
 
 The next, today, *general coordinating causes*. Generally, universally, how the suchness helps us. So number B, page 63.
 

@@ -90,7 +90,7 @@ So very naturally we have to consider again and again what religious practice is
 
 I use the word *observation* or *contemplation*. I don’t know. In Sanskrit we say *vipassana*. Vipassana is “insight” or “discernment.”  
 
-According to the six *paramitas*, which [is also] one of the traditional Buddhist practices, [we have] *concentration* and *wisdom*. Concentration and wisdom are always functioning together; you can’t separate them. If you are explaining them, you can separate them, but actually they function together. So [in a sense] concentration means *samatha* and *vipassana* working together. *Samatha* is *quiescence*, *tranquility*, *stillness*, or sometimes *samadhi*, *one-pointedness*. And wisdom, [which] means *vipassana*, means *insight*, *discernment*. 
+According to the six *pāramitās*, which [is also] one of the traditional Buddhist practices, [we have] *concentration* and *wisdom*. Concentration and wisdom are always functioning together; you can’t separate them. If you are explaining them, you can separate them, but actually they function together. So [in a sense] concentration means *samatha* and *vipassana* working together. *Samatha* is *quiescence*, *tranquility*, *stillness*, or sometimes *samadhi*, *one-pointedness*. And wisdom, [which] means *vipassana*, means *insight*, *discernment*. 
 
 *Insight* and *discernment* is to see a distant object clearly. The “distant object” [is] the source of existence. *Existence* means the phenomenal world: human life, the human world. So that is insight. 
 

@@ -275,7 +275,7 @@ Do you have a question?
 
 So, what is the compassion? Something more than the idea of kindness, et cetera. 
 
-So how can you experience salvation, that is seeing very deeply into the human world with wisdom? How? This is a practice. You know, meditation, and at least the six *paramitas*. Like this. 
+So how can you experience salvation, that is seeing very deeply into the human world with wisdom? How? This is a practice. You know, meditation, and at least the six *pāramitās*. Like this. 
 
 Is that okay? Do you have any other questions? We will have a discussion class.
 

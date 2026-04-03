@@ -303,7 +303,7 @@ Is there anyone [else]... ?
 
 You don’t like it? *[He chuckles.]*
 
-Well, even though you don’t like it, that is a final thing you can do; a unique, final thing you can do... after struggling for a long time. *[He laughs.]*
+Well, even if you don’t like it, that is a final thing you can do; a unique, final thing you can do... after struggling for a long time. *[He laughs.]*
 
 So that is a unique way to allow you to exist fully. 
 

@@ -33,7 +33,7 @@ The commentary by Conze here is very interesting. Let me read it first:
 > 
 > (From *Buddhist Wisdom: The Diamond Sutra and the Heart Sutra* by Edward Conze)
 
-In Mahayana Buddhism, the practice of perfection of giving is one of the most important practices for us, because it is one of the six *paramitas*. Giving is the first item of the six paramitas. 
+In Mahayana Buddhism, the practice of perfection of giving is one of the most important practices for us, because it is one of the six *pāramitās*. Giving is the first item of the six pāramitās. 
 
 In primitive Buddhism, the most important practice for Buddhists is [Right View]; to view the world, the human world, human beings, in the proper way, which is one of the Eightfold Noble Truths (the Eightfold Path). But in Mahayana, the practice which is important is a little bit different from primitive Buddhism, it is giving. The first important thing is to practice the perfection of giving. 
 

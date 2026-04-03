@@ -220,7 +220,7 @@ Is that okay?
 
 So that’s why trust and acceptance – right acceptance requires what [of you]? Simply speaking: wisdom, compassion. 
 
-And then wisdom, compassion requires you to practice actually, day to day. That is the six *paramitas*. 
+And then wisdom, compassion requires you to practice actually, day to day. That is the six *pāramitās*. 
 
 So very naturally, right acceptance, right trust – well, has lot of contents...
 

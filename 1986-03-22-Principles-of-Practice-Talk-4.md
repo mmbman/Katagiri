@@ -34,11 +34,11 @@ That’s why in a sense, one world is constantly manifesting a state of purity a
 
 It’s very difficult to say, but that is *reality*. That’s why we have to understand that one world as clear as we can – through the practice, and through the understanding with your wisdom, as best as we can, we have to understand. 
 
-So, yesterday I mentioned that one world is kind of a very thin partition between complete sleep and waking up. The very first beginning of the waking up is not the *concept* of the waking up. Temporarily I say “the first thought,” but this is not thought – but it’s thought, because it is the *very* first. So, temporarily I say that is a partition. But this partition is *very* thin, very thin. The last moment of coming out of the complete sleep is exactly the very first moment of entering the waking up. So that partition is very difficult to say what it is. Because it is completely sleep – you don’t know you are sleeping, this is complete sleep – and on the other hand, you are waking up. There are two worlds there. 
+So, yesterday I mentioned that “one world” is kind of [like] a very thin partition between complete sleep and waking up. The very beginning of the waking up is not the *concept* of waking up. Temporarily I say “the first thought,” but this is not thought – but it’s thought, because it is the *very* first. Temporarily I say that is a partition, but this partition is *very* thin, very thin. The last moment of coming out of complete sleep is exactly the very first moment of entering the waking up. So that partition is very difficult to say what it is. Because it is completely sleep – you don’t know you are sleeping, this is complete sleep – and on the other hand, you are waking up. There are two worlds there. 
 
-The two worlds are not separated, but we believe they are separated. That is intellectual understanding; dualistic [understanding]. But [both worlds] are functioning in the same and one ground, so-called *partition*. This partition is very thin, but I am talking about this partition with a boundless expanse in space; [the partition] is very [three dimensional], it’s not thin [like] paper. Temporarily I say *partition*, you know, very plain dimension, but it’s not plain, it’s very [three dimensional].
+The two worlds are not separated, but we believe they are separated. That is intellectual understanding, dualistic [understanding]. But [both worlds] are functioning in the same and one ground, so-called *partition*. This partition is very thin, but I am talking about this partition as a boundless expanse in space; [the partition] is very [three dimensional], it’s not thin [like] paper. Temporarily I say *partition*, you know, very plain dimension, but it’s not plain, it’s very [three dimensional].
 
-But let me say like it this: when you come out of the sleep, and then are entering the waking up, that real moment – you don’t know, you never know, but there is [one]. That is a practice; we don’t know what’s going on there. 
+But let me say like it this: when you come out of the sleep, and then are entering the waking up, that real moment – you don’t know, you never know. But there is [something]. That is practice: we don’t know what’s going on there. 
 
 For instance, according to *The Awakening of Faith*: at the *tathāgata* stage, Buddha knows the finer of the fine vibration of the mind. Among the fine vibration of the mind, there is the *finest* vibration there; very minute vibration of the mind. Because mind is constantly moving. Even though you say *moment* – the *Abhidharmakosha* says the moment consists of 65 instances. If so, what is a moment, you know? So the moment is a very fine vibration of the mind, but still there is the finest vibration of the mind within the moment – that is at the 65th vibration of the mind. How can you touch it? You don’t know what it is. But it’s there. Through zazen you can notice this.
 
@@ -46,9 +46,7 @@ So, if you are engaged in a perfect state of concentration, let’s [look at] yo
 
 But no matter how long you recognize this minute movement, vibration of the mind, you never be free from vibration. No; because even though you say, “I am perfectly calm now” – that is already vibration. *[He laughs.]* So “thinking not thinking” begets thinking. Realization of the perfect *samadhi* begets vibration of the mind. So you are never free from vibrations. 
 
-So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say *how* you do it. No, we don’t know. But this is the *tathāgata* stage, according to *The Awakening of Faith*. It is true! 
-
-So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by buddha-*tathāgata*. At that time, buddha-*tathāgata* knows how to live there. 
+So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say *how* you do it. No, we don’t know. But this is the *tathāgata* stage, according to *The Awakening of Faith*. It is true! So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by buddha-*tathāgata*. At that time, buddha-*tathāgata* knows how to live there. 
 
 Because whatever you think, no matter how long you cognize or you realize that very minute vibration of the mind, you never stop vibrating your mind. So how do you stop vibrating your mind? This is, it’s very simple, *very* simple. It’s very simple, but it’s too simple to know. *[He laughs.]* So all you have to do is just *be there*. 
 
@@ -64,13 +62,13 @@ That [is what Dōgen Zenji talks about] in the chapter “Buddha Nature.” The 
 
 >  ... is not bred by illusory causations, does not come into being naturally, is not practiced or realized through miraculous powers. Were sentient beings, whole being contingent on the power of karma or on causes or on coming into being naturally, then the realization of all saints and the enlightenment of all Buddhas and the eye pupils of buddhas and patriarchs also will be produced in these ways, and they are not. The entire world is completely free of all dusts as object to the self. Right here there is no second person.
 
-“Right here there is no second person”: karmic life. How can you be free from karmic life? By realization of the karmic life, you can be free from karmic life. 
+“Right here there is no second person”: [that is,] karmic life. How can you be free from karmic life? By realization of the karmic life, you can be free from karmic life. 
 
 But what do we mean, “realization of karmic life?” That is still vibration of the mind. You have to understand what is karmic life. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says, “karmic life is exactly Buddha’s world, all sentient [beings,] whole being.” That means the whole universe. 
 
-If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*. That’s why it exists. 
+If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. 
 
-If so, we cannot be free from it? But you can be free from it, because [...] “free from” means [there is] no karmic life because it is exactly connected with the one world, so-called whole universe. That means the karmic life is exactly the whole world by itself – not karmic life *is* the whole world, karmic life *exactly whole world*, no partition between. This is the reality of karmic life, the reality of the samsaric world, which is constantly going in the realm of this partition I mentioned. 
+If so, can we not be free from it? But you can be free from it, because [...] “free from” means [there is] no karmic life because it is exactly connected with the one world, so-called whole universe. That means the karmic life is exactly the whole world by itself – not karmic life *is* the whole world, karmic life *exactly whole world*, no partition between. This is the reality of karmic life, the reality of the samsaric world, which is constantly going in the realm of this partition I mentioned. 
 
 How can you [talk about] the very first moment of the karmic life? When you get into the karmic life, can you say [something about] the very first moment of karmic life? Nothing to say. It’s very pure. It’s immediately connected to the eternal world, truth, so it’s very vast. Vastness of karmic life means *nothing*: no concept, no perception of karmic life. 
 
@@ -78,41 +76,37 @@ But on the other hand, as long as you get into karmic life, there is karmic life
 
 This is a little bit difficult to understand, but that’s why you can think about this state of the partition, what’s going on there. When you think about what’s going on there in the realm of partition between, you can see it is not a dream, it is not waking up. It is *something*; waking up and sleep, completely both come into [it] as one. Nothing to leave any trace.
 
-But if so, [is it] nothing? Yes it is; you can go *any* place. So that is a dead end, but it’s not a dead end, it’s a beginning. You can go [to] a world of waking up, you can go [to] a world of one-world, eternity. You can go anyplace. 
+But if so, [is it] nothing? Yes it is, [because] you can go *any* place. So that is a dead end, but it’s not a dead end, it’s a beginning. You can go [to] a world of waking up, you can go [to] a world of one-world, eternity. You can go anyplace. 
 
-So this is the so-called *one person with no second person*, exactly. 
+So this is the so-called *one person with no second person*, exactly. This is called *belief*. It’s belief. With no confusions, no perverted views, no increase or decrease, no misunderstanding. Because it is very pure nature of reality, which is going on from moment to moment. Life is going exactly like this. 
 
-This is called *belief*. It’s belief. With no confusions, no perverted views, no increase or decrease, no misunderstanding. Because it is very pure nature of reality, which is going on from moment to moment. Life is going exactly like this. 
+Not only the waking up. When you stand up here – right here, right now – where is the very inception of the standing, being here? What do we mean? *Who* stands up? *I* stand up? That means it’s too late, [it’s] already conceptual world. Does the floor lets me stand up? It’s already a concept, conceptual world. Does the universe lets me stand up? It is still conceptual world. So who lets me stand up? I don’t know. Even though I don’t know, I stand up, right here. So that is very difficult to say: *I don’t know*, but here is the reality that I stand up. 
 
-Not only the waking up. When you stand up here – right here, right now – where is the very inception of the standing, being here? What do we mean? *Who* stands up? *I* stand up? That means it’s too late, [it’s] already conceptual world. Does the floor lets me stand up? It’s already a concept, conceptual world. Does the universe lets me stand up? It is still conceptual world. So who lets me stand up? I don’t know. Even though I don’t know, I stand up right here. 
+So in the very inception of being, here and now – in other words, in the very inception of birth – [it] is completely [beyond] questions. But in that realm of the world, you are creating your life, constantly. That’s why everyone has a great capability to create a world, life. 
 
-So that is very difficult to say: “I don’t know,” but here is standing, here is the reality that I stand up. 
+Everyone has great capability to create the human world. Whichever [way] to go: bad, good, whichever. But if you realize that realm of the one world, the so-called *partition* I mentioned, I think you cannot create an unwholesome world – because it is very pure, and because you can see all sentient beings living in peace and harmony. This is one world in the realm of the partition. You cannot do something wrong, you cannot hurt anybody, so very naturally you create a peaceful world. That is so-called *creative* life *with* all sentient beings. 
 
-So in the very inception of being here and now – in other words, the very inception of the birth – [it] is completely out of questions. But in that realm of the world, you are creating your life, constantly. That’s why everyone has a great capability to create a world, life. 
-
-Everyone has great capability to create the human world. Whichever [way] to go: bad, good, whichever. But if you realize that realm of the one world, so-called *partition* I mentioned, I think you cannot create an unwholesome world – because it is very pure, and because you can see all sentient beings living in peace and harmony. This is one world in the realm of the partition. You cannot do something wrong, you cannot hurt anybody, so very naturally you create a peaceful world. That is so-called *creative* life *with* all sentient beings. 
-
-That is [why] first we have to *believe* [we ourselves are] exactly present right in the midst of this Way.
+That is [why] first we have to *believe* [in ourselves, that we are] exactly present right in the midst of this Way.
 
 #### 25:23
 
-But next, in the process of reaching this one world – so-called *belief*, *faith* – Dōgen Zenji says there are two processes. One is, *cut off the root of discriminating thinking*. Second, *body and mind dropping off*. 
+But next, in the process of reaching this one world – so-called *belief*, *faith* – Dōgen Zenji says there are two processes. One is, *cut off the root of discriminative thinking*. Second: *body and mind dropping off*. 
 
-This is our practice. This is [...] one of the processes to reach that belief: one world; you are present right in the midst of the Way, without any delusions, confusions, perverted views, mistakes. How can we reach there? That is first, we have to cut off the root of discriminating thinking. 
+This is our practice. This is [the process] to reach that belief, one world, [that] you are present right in the midst of the Way, without any delusions, confusions, perverted views, mistakes. How can we reach there? That is first, we have to cut off the root of discriminative thinking. 
 
-I mentioned the root of discriminating thinking is very minute vibration of the mind. This is called *root*, the root of the discriminating mind. We are *always* discriminating. Do you understand? Even though I am talking about this with wholeheartedness, still I am discriminating! “Hey, Katagiri” – right in the middle of talking, I am talking to myself simultaneously as I am talking to you: so-called “Hey, Katagiri... you are pretty good.” *[He laughs.]* But at that time, very minute vibration of the mind. Or if you dance on the stage, you are completely devoting yourself into dance, but still your very minute vibration of the mind is poking into that perfect state of the dancing – and then thinking, evaluating, discriminating. Do you understand what I mean? This is called *root*, root of discriminating mind. 
+I mentioned the root of discriminative thinking is very minute vibration of the mind. This is called *root*, the root of the discriminating mind. We are *always* discriminating. Even though I am talking about this with wholeheartedness, still I am discriminating! Right in the middle of talking, I am talking to myself simultaneously as I am talking to you: “Hey, Katagiri... you are pretty good.” *[He laughs.]* At that time [this is] very minute vibration of the mind. Or if you dance on the stage, you are completely devoting yourself into dance, but still your very minute vibration of the mind is poking into that perfect state of the dancing – and then thinking, evaluating, discriminating. Do you understand what I mean? This is called *root*, root of discriminating mind. 
 
-So how can we reach that there, the oneness, so-called *faith*, Buddhist faith? To cut off that root means [you say], “Please... shut up. Just do it.” *[He laughs.]* That’s it. Don’t you think so? “Please shut up, keep your mouth shut, do it.” That’s all we have to do. 
+So how can we reach [...] the oneness, so-called *faith*, Buddhist faith? To cut off that root means [you say], “Please... shut up. Just do it.” *[He laughs.]* That’s it. Don’t you think so? “Please keep your mouth shut, do it.” That’s all we have to do. 
 
-For instance, I mentioned maybe before, a gentleman in Japan was interested in running a business, so he asked a Zen master, “I have a big problem, please help me.” So the Zen master asked, “What’s that?” And then he said, “I am very interested in running a business.” Well, whatever kind of business, business is all right. But he was interested in running a business, and the teacher said, “Oh, that’s interesting. Please do it.” But the gentleman said, “I don’t have any money.” And then the Zen master said, “If you don’t have money, how can you run a business?” You cannot run a business, so stop and forget it. You know, stop running the business! *[He laughs.]* Stop thinking of running the business. [But] he says, “That is my problem, because that’s why I want to run a business.” Do you understand? And then Zen master says, “How can I help you? That’s *your* business, not my business.” *[He laughs, and a person or two laugh.]* 
+For instance, I mentioned maybe before, a gentleman in Japan was interested in running a business, so he asked a Zen master, “I have a big problem, please help me.” So the Zen master asked, “What’s that?” And then [the gentleman] said, “I am very interested in running a business.” Well, whatever kind of business, business is all right. But he was interested in running a business, and the teacher said, “Oh, that’s interesting. Please do it.” But the gentleman said, “I don’t have any money.” And then the Zen master said, “If you don’t have money, how can you run a business?” You cannot run a business, so stop and forget it. You know, stop running the business! *[He laughs.]* Stop thinking of running the business. [But the gentleman] says, “That is my problem, because that’s why I want to run a business.” And then the Zen master says, “How can I help you? That’s *your* business, not my business.” *[He laughs, and a couple people laugh.]* 
 
 Is that clear for you? That is *cut off the root of discriminating mind*. Not ignoring discriminating mind. We are always doing [something] like this. “I want to do zazen, but I don’t want to have physical pain, et cetera. And I want to sleep in bed until 10 o’clock. So I want to do zazen, I want to deepen my life, et cetera; I want to be happy. But I don’t want to do zazen getting up in the morning!” *[He laughs.]* That is your problem. How can I help you? I don’t know; that’s your business! *[He laughs.]* Do you understand? 
 
-That’s why, if you want to reach *tathāgata* stage, all you can do is, “Please keep your mouth shut. Just do it.” That’s all you can do. Alright? 
+That’s why, if you want to reach *tathāgata* stage, all you can do is, “Please keep your mouth shut. Just do it.” That’s all you can do.
 
-But students are always depending on the teaching: “Please help me, help me.” Well, yes, I can help you. But you should know that there is something in the realm of vibrating your mind very minutely – at that time there is nothing for me to do. So all you have to do is you just be in the *tathāgata* stage. That’s it. How? Cut off the root of the discriminating mind. 
+But students are always depending on the teaching: “Please help me.” Well, yes, I can help you. But you should know that there is something in the realm of vibrating your mind very minutely – at that time there is nothing for me to do. So all you have to do is you just be in the *tathāgata* stage. That’s it. How? Cut off the root of the discriminating mind. 
 
-You want to keep smoking? Yes, you want to. But it’s not good for you, so the cigarette case always says it’s not good for your health. So you don’t want to keep smoking, but you cannot stop it. So [you say,] “This is my problem, please help me.” How can I help? That is always what we do.
+You want to keep smoking? Yes, you want to, but it’s not good for you; the cigarette case always says it’s not good for your health. So you don’t want to keep smoking, but you cannot stop it. So [you say,] “This is my problem, please help me.” How can I help? That is always what we do.
 
 So this is the best way, very simple, and *you* have to do it. I can help, and also ancestors and buddhas can help. But this is [that] the ancestors and buddhas always back you up; they are always behind you, encouraging you. Finally what you have to do is to do it *by yourself*. 
 
@@ -168,9 +162,9 @@ So very naturally, you can see no “hit,” among the hundred thousand attempts
 
 And then Dōgen Zenji says, “But don’t be discouraged by realizing no hit among the hundred attempts to hit the bullseye. Please don’t be discouraged, and continue to be a follower of the Buddha’s Way, by virtue of turning a willing ear to buddhas’ and ancestors’ teaching, and giving a willing hand to teachers and ancestors and buddhas. And please, continue to practice like this.” He said *waku jū chishiki*, which means following the teacher – following a great teacher, following the ancestors, following the buddhas. And [after *waku jū chishiki*], *waku jū kyōkan* means following the scriptures, Buddha’s teaching. 
 
-So don’t be discouraged; please continue to practice, by virtue of the turning [your] willing the ears to listen to Buddha’s teaching, and giving your willing hands to great teachers, ancestors, and buddhas. 
+So don’t be discouraged; please continue to practice, by virtue of the turning [your] willing ears to listen to Buddha’s teaching, and giving your willing hands to great teachers, ancestors, and buddhas. 
 
-[...] Continually you do like this. This is called “to learn the backward step that turns your light inwardly to illuminate yourself.” Which is called *reflection*. This is reflection. 
+Continually you do like this. This is called “to learn the backward step that turns your light inwardly to illuminate yourself.” Which is called *reflection*. This is reflection. 
 
 [...] “Learn the backward step” means, let’s return to that very inception of the moment. The very inception of time and space. The very inception of *gassho*, or zazen. In other words, just put yourself right in the midst of the inception of doing zazen, *gassho*, standing, et cetera. It means let’s go back to the original moment, the first moment. Again and again, again and again. 
 
@@ -178,9 +172,11 @@ And then, if you *do it*, even for a moment, it “turns your light inwardly to 
 
 So that’s why, if you continue to do it, naturally you will come to enhance or to deepen your life. Even though you don’t know how much your practice is progressing or not, it doesn’t matter. Sometimes you can see how much; sometimes you cannot see. *Most of* the time you don’t see how much your practice is making progress; no. But all you have to do is constantly go back to that source of being, existence. 
 
-Anyway, let’s go back, let’s go back, every day. And then that is called *the backward step*. [It is] not “withdraw.” [...] That is called *reflection*. 
+Anyway, let’s go back, let’s go back, every day. And then that is called *the backward step*. [It is] not “withdraw.” [...] 
 
-That’s why this reflection is [and] begets suffering; [it’s] really suffering. But that suffering is completely beyond your intellectual understanding; [it’s] before your intellect is suffering. Because everyone has to go back to there: consciously or unconsciously, the root of your being is coming from that realm. So very naturally, everyone always goes back to there, consciously or unconsciously. 
+That is called *reflection*. 
+
+[...] This reflection is [and] begets suffering; [it’s] really suffering. But that suffering is completely beyond your intellectual understanding; [it’s] before your intellect is suffering. Because everyone has to go back to there: consciously or unconsciously, the root of your being is coming from that realm. So very naturally, everyone always goes back to there, consciously or unconsciously. 
 
 But most people don’t realize it! Even though they are standing there, they don’t realize it. But they are very interested in the world *after*: the second moment, second thought, third thought. That is the so-called *samsaric world*. That’s why the problem is going on and on; there is no peace. The more they try to get the peace, the more they beget not-peace in order to get the peace. That is *samsara*. 
 
@@ -202,7 +198,7 @@ This is cutting off the root of discriminating mind, so-called reflection. “Le
 
 Avalokiteshvara is a bodhisattva who listens to the sound of perfect observation of the world. By means of observing very closely what the human world is, what human beings are, then he [or she] can listen to the kind of sound, very deep sound – in other words, very minute vibration of the world and of the human beings. Very deep. That is called *suffering*. 
 
-Suffering is completely beyond your consciousness. It’s there. Because constantly we are return to the source, return to the source, even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep, beyond consciousness or unconsciousness. That is they try to get that first moment of being present *right now, right here*. Where two worlds make one: intellect, spiritual world. This is this partition.
+Suffering is completely beyond your consciousness; it’s there. Because constantly we are returning to the source, returning to the source, even though you don’t know. So very naturally people are struggling for their life. Why do they struggle for their life? Because they want to get the something very deep, beyond consciousness or unconsciousness. That is they try to get that first moment of being present *right now, right here*. Where two worlds make one: intellect, spiritual world. This is this partition.
 
 So, constantly there. Constantly we want to get it! But this is so-called reflection. Whatever we do, always we reflect upon ourselves. “Are you sure? Are you sure? Are you are happy? Yes, you are happy. But are you sure?” Constantly you ask yourself, and then try to get something which makes it possible for your happiness to *be*. Still you want. Because this is to try to come back to the source, naturally. This is *suffering*, so-called. 
 
@@ -256,7 +252,7 @@ And then if you see your everyday life, completely your life is *far* from this 
 
 So, you have to continue, go back, you have to stand up constantly in the basis of the teaching. That is “learn the backward step.” Constantly go back, go back, go back.
 
-And then, take care of your everydayness with compassion, encouragement, generosity. That’s why there are the six *paramitas* there.
+And then, take care of your everydayness with compassion, encouragement, generosity. That’s why there are the six *pāramitās* there.
 
 #### 1:12:33
 
