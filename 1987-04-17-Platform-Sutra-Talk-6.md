@@ -25,7 +25,7 @@ Katagiri Roshi discusses “the conduct of not dwelling inwardly or outwardly, o
 
 “The ability to cultivate the conduct of not dwelling inwardly or outwardly”: In this book, *inwardly* means seeing one's own nature. *Outwardly* means the Buddhist scripture written in words. 
 
-So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajñā paramita* in the *Diamond Sutra*. In this book [...] the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever. Then he attained enlightenment. 
+So, *the ability to cultivate the conduct of not dwelling inwardly or outwardly*: this is the meaning of the *prajñā pāramitā* in the *Diamond Sutra*. In this book [...] the Sixth Patriarch attained enlightenment when he heard the passage of the *Diamond Sutra* saying a bodhisattva has his thought awakened without abiding anything whatever. Then he attained enlightenment. 
 
 And in the *Lankavatara Sutra*, D.T. Suzuki [talks] about this. His commentary says, page 95:
 

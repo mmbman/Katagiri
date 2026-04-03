@@ -239,7 +239,7 @@ For instance, if you look around always the direction to go, filling up the sati
 
 So in our daily life, we are always getting something. To get something means to make a choice of direction, simultaneously, you can get [something]. But to get something means to throw [away] that [other] one. [That] means you negate the present.
 
-To negate your present means to go out. Do you understand? To go out – so you never have a chance to come back to you, and settle down, settle yourself in the self, and be stable. You never do it. If you continually try to fill up the satisfaction, looking for a direction with the affective preferences, always there is uneasiness, and madness, lots of madness there. So that’s why it’s pretty hard for us to participate in ourselves *directly*.
+To negate your present means “to go out.” Do you understand? To go out – so you never have a chance to come back to you, and settle down, settle yourself in the self, and be stable. You never do it. If you continually try to fill up the satisfaction, looking for a direction with the affective preferences, always there is uneasiness, and madness, lots of madness there. So that’s why it’s pretty hard for us to participate in ourselves *directly*.
 
 So *to be undefiled* means not to be a *hungry ghost* –  *[he laughs]* – to watch a direction, in terms of pros and cons, success and failure. Because simultaneously that means negating your [presence], always going out. So very naturally, if you negate the present, you don’t satisfy the presence, that’s why you have to go out, and get [to] some place where you can feel good.
 
@@ -321,11 +321,11 @@ So, that’s why here it says, “Being undefiled cannot be turning toward or di
 
 So, this is buddha-nature, or buddha-dharma. And this koan [is] teaching us just like this.
 
-Let’s participate in ourselves internally... [no,] not “internally”. If I say “internally,” simultaneously “externally” is there. *[He laughs.]* So, beyond internally or externally, participate *in you*, and learn you as you are, directly. Not imaginary, not turning toward, not with affective preference – anyway, constantly you do it.
+Let’s participate in ourselves internally... [no,] not “internally”. If I say “internally,” simultaneously “externally” is there. *[He laughs.]* So, beyond internally or externally, participate *in you*, and learn *you* as you are, directly. Not imaginary, not turning toward, not with affective preference – constantly you do it.
 
-Because your existence is *yours*. Just like the trees. But not yours! There is a huge vastness of existence, life force there, life energy there. Behind you or inside you, your body, your name. One tree, your tree, teaches you the name of the tree, but simultaneously the rhythm of the vastness of existence is there.
+Because your existence is *yours*. Just like the trees [in the mountains covered with snow]. But not yours! There is a huge vastness of existence, life force there, life energy there – behind you, or inside you. One tree, your tree, teaches you the name of the tree – your body, your name. But simultaneously the rhythm of the vastness of existence is there.
 
-So that is you. That is you. So you have to participate in that.
+That is you. So you have to participate in that.
 
 That’s why if you do zazen, just the sitting zazen is pretty good. But if I give something sweet to you, you immediately turn toward. Alright? You understand? I am not criticizing any other kind of zazen. But beyond this one, I want to give you... well, give you a chance to participate in real zazen, real you, beyond a sense of turning toward, or having affective preferences.
 

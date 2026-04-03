@@ -19,7 +19,7 @@ Katagiri Roshi begins commenting on Chapter 2 of the *Platform Sutra*, “*Praj�
 
 **Katagiri Roshi:** ... Page 89. Chapter 2: “*Prajñā*”. 
 
-> The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajñā Paramita.”
+> The following day, at the invitation of Magistrate Wei, the Master took his seat and said to the great assembly, “All of you purify your minds and think about Maha Prajñā Pāramitā.”
 >
 > (From *The Sixth Patriarch’s Dharma Jewel Platform Sutra*, published and translated by the Buddhist Text Translation Society.)
 
@@ -141,13 +141,13 @@ Basically not different. But the difference is that sometimes people are very se
 
 But if you are not wise, you really become short-tempered. Short-tempered? *[He chuckles.]* [Meaning] you are pretty [easy to] get mad at somebody. 
 
-> I will now explain for you the Maha Prajñā Paramita Dharma in order that each of you may become wise. 
+> I will now explain for you the Maha Prajñā Pāramitā Dharma in order that each of you may become wise. 
 
 That’s why Buddha expresses his compassion over all sentient beings: to let you know what wisdom is. So [now this] is the explanation of wisdom.
 
 > Pay careful attention, and I will explain it to you.
 
-Then from now, it starts to explain wisdom, *maha prajñā paramita*. 
+Then from now, it starts to explain wisdom, *maha prajñā pāramitā*. 
 
 > “Good Knowing Advisors, worldly people recite ‘Prajñā’ with their mouths all day long and yet do not recognize the Prajñā of their self-nature.”
 
@@ -165,19 +165,19 @@ It means no matter how long you do it, it doesn’t penetrate you. So,
 
 > “In the end you will not have obtained any benefit.
 > 
-> “Good Knowing Advisors, Maha Prajñā Paramita is a Sanskrit word which means ‘great wisdom which has arrived at the other shore.’”
+> “Good Knowing Advisors, Maha Prajñā Pāramitā is a Sanskrit word which means ‘great wisdom which has arrived at the other shore.’”
 
-That is the explanation of the meaning of *maha prajñā paramita*. As a whole, it means “great wisdom which has arrived at the other shore.” 
+That is the explanation of the meaning of *maha prajñā pāramitā*. As a whole, it means “great wisdom which has arrived at the other shore.” 
 
-I think you can read *The Perfect Wisdom Sutra* by Doctor Conze, [and] the commentary on the *Diamond Sutra* and *Heart Sutra*. In that book, I think you can find the explanation of *prajñā paramita* in Sanskrit. He [talks about] it a little bit in that book. (*Transcriber’s Note:* The current edition of the book is titled *Buddhist Wisdom: The Diamond Sutra and The Heart Sutra*, by Edward Conze.)
+I think you can read *The Perfect Wisdom Sutra* by Doctor Conze, [and] the commentary on the *Diamond Sutra* and *Heart Sutra*. In that book, I think you can find the explanation of *prajñā pāramitā* in Sanskrit. He [talks about] it a little bit in that book. (*Transcriber’s Note:* The current edition of the book is titled *Buddhist Wisdom: The Diamond Sutra and The Heart Sutra*, by Edward Conze.)
 
 *Prajñā* is wisdom, we usually [say] “perfect wisdom.” *Pra* means perfect, completion. *Jna* is wisdom. So *prajñā*, perfect wisdom. 
 
-*Paramita*: I don’t know... *param* means “gone beyond.” *Ita* means “she or he who has gone.” In other words, she or he who has *arrived*. In other words, you who are present right here. That’s it. You are a person who has arrived already. That is, we are buddha. “We are buddha” means you are a person who has gone. 
+*Pāramitā*: I don’t know... *param* means “gone beyond.” *Ita* means “she or he who has gone.” In other words, she or he who has *arrived*. In other words, you who are present right here. That’s it. You are a person who has arrived already. That is, we are buddha. “We are buddha” means you are a person who has gone. 
 
 Next, *param* means “gone beyond.” [That] means gone beyond the world of conceptualization. Gone beyond, already. That is the meaning of the truth that we are buddha. 
 
-So that is *prajñā.* You have to see this truth with your deep knowledge; that is *prajñā paramita*. 
+So that is *prajñā.* You have to see this truth with your deep knowledge; that is *prajñā pāramitā*. 
 
 But here, in the Chinese, we say “great wisdom which has arrived at the other shore.” The other shore is *nirvana*; nirvana means the nondualistic world, and exactly perfect peace, right now. That is the other shore. So you are already arrived at the other shore; this is called great wisdom, perfect wisdom, which guides you to demonstrate your life as nirvana, peace and harmony. 
 
@@ -337,7 +337,7 @@ So listening to Buddha’s teaching, and contemplation – contemplation means v
 
 #### 1:03:12
 
-**Question:** Hojo-san, you talked about *paramita* meaning crossing over, kind of a crossing over. And I wonder ... is that everyday activity, when we have to do something? Because I can see two views: one is just that whatever you do, if you have a job you have to do, then just do it. Then that’s crossing over; it’s not a matter of if you do the job in order to cross over. 
+**Question:** Hojo-san, you talked about *pāramitā* meaning crossing over, kind of a crossing over. And I wonder ... is that everyday activity, when we have to do something? Because I can see two views: one is just that whatever you do, if you have a job you have to do, then just do it. Then that’s crossing over; it’s not a matter of if you do the job in order to cross over. 
 
 **Katagiri Roshi:** *Cross over* means already the explanation of nirvana in words. *Cross over* means already “cross over”: this shore, the other shore. So [it’s] dualistic. *Real* nirvana, “crossing over to the other shore,” doesn’t mean handle your life with the dualistic sense. That is *the other shore*. Because you have to show, demonstrate, the other shore day-to-day. [On a] moment-to-moment basis, you have to do it. Because *we are already buddha* means we are a person who has gone beyond. That’s it. So you have already arrived at the other shore. But if we explain, we say “the great wisdom which lets you be on the other shore,” something like that. 
 

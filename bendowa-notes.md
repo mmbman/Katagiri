@@ -27,7 +27,7 @@ On this page I provide notes and links to where Katagiri Roshi commented on Zen 
 
 - The term “Way” is discussed extensively by Katagiri Roshi; perhaps the best place to start is the [“Principles of Practice”](principles-of-practice) series. Basically: 
 
-    “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”  
+    “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace and harmony, prior to the germination of any subtle ideas. […] All sentient beings exist in the realm of the Way; that is called universal life. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”  
     \- from [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1)
 
 - *Wa* (話) is “talk”.

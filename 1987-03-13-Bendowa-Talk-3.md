@@ -31,7 +31,7 @@ And according to [the] structure of the Buddhist teaching I think there are thre
 
 And also with the development of Buddhism, particularly in Mahayana, we have practice of Buddhist teaching called the six *paramitas*. Here it says in the note:
 
-> The six “perfections” (*paramita*) are practices by which enlightenment can be attained: donation,
+> The six “perfections” (*pāramitā*) are practices by which enlightenment can be attained: donation,
 precept-keeping, perseverance, assiduity, meditation, and wisdom.
 
 “Donation” is giving, *dana*. *Sila*, precepts. And perseverance: patience or perseverance. *Assiduity*, that is *effort*, [*vīrya*]. And meditation, zazen, and wisdom. Those are the six *paramitas*, as Buddhist practice in Mahayana Buddhism. 

@@ -139,7 +139,7 @@ I think *awakening* is used in English textbooks in many ways. But generally spe
 
 **Question:** Yeah.
 
-**Katagiri Roshi:** Well, important. But people really try to hold on [to] *kaku* and *satori*, which seem to be a best experience. That’s why Dōgen Zenji [says] that’s why people are proud of themselves very much. They are proud of their understanding, their own experience, but this is nothing but escalading for the sky. *[He laughs.]* Going up to the sky, that’s it. So that’s why under the beautiful flag of religions, we are always fighting. If you experience God, then you are proud of your experience and understanding of God, and then we become really high. That is really a problem for us. Finally, fighting. 
+**Katagiri Roshi:** Well, important. But people really try to hold on [to] *kaku* and *satori*, which seem to be a best experience. That’s why Dōgen Zenji [says] that’s why people are proud of themselves very much. They are proud of their understanding, their own experience, but this is nothing but escalading for the sky. *[He laughs.]* Going up to the sky, that’s it. That’s why under the beautiful flag of religions, we are always fighting. If you experience God, then you are proud of your experience and understanding of God, and then we become really high. That is really a problem for us. Finally, fighting. 
 
 So [the] most important point is, you must be liberated from that pride of your understanding of God, and Buddha, or enlightenment, or whatever. And then, you really become humble. You know? And also majestic. Very majestic and humble. And then you can help people. Otherwise, you create problems. That’s what Dōgen Zenji says here.
 
@@ -155,7 +155,7 @@ So I don’t mean *satori* and awakening are not important. They are very import
 
 **Questioner:** Yes, [...] to experience it is important. But is it possible to realize [or] experience *shō* fully if you haven’t experienced *satori* first? 
 
-**Katagiri Roshi:** I don’t know which comes first. I think first, basically, *shō* is there, from the beginning to end, always. And then, under the certain circumstances, you can call it *awakening*, sometimes, you can call it *satori*, sometimes. Sometimes you cannot call it at all. That is *shō*. No name there, but you feel strong, on the basis of your life. You don’t know what it is, but you feel strength. 
+**Katagiri Roshi:** I don’t know which comes first. I think first, basically, *shō* is there, from the beginning to end, always. And then, under the certain circumstances, you can call it *awakening* sometimes, you can call it *satori* sometimes. Sometimes you cannot call it at all. That is *shō*. No name there, but you feel strong, on the basis of your life. You don’t know what it is, but you feel strength. 
 
 **Questioner:** So are you saying that *satori* or awakening is not really necessary if you... ? 
 

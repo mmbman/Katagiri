@@ -33,7 +33,7 @@ For the translations, [SZ] indicates the [Sōtōshū translation of *Fukanzazeng
 
 - "The Way" is *tao* or *dao* (道), or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
-- The entire [“Principles of Practice”](principles-of-practice) series delves into what “the Way” means in Buddhism, starting with [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1): “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way; that is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”
+- The entire [“Principles of Practice”](principles-of-practice) series delves into what “the Way” means in Buddhism, starting with [“Principles of Practice, Talk 1: The Purpose of Practice”](1986-03-19-Principles-of-Practice-Talk-1): “*The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace and harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way; that is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera.”
 
 - There is a good explanation of “the Buddha Way” (佛道) in [“A, B, and C Worlds” at 14:50](1987-06-27-A-B-and-C-Worlds#1450), in the context of explaining the third line in *Genjōkōan*. “‘The Buddha Way’ means *true reality*. Practically, or truly, you live there, which is a bigger scale of the world than you have thought.” 
 

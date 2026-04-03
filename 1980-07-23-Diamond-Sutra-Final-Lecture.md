@@ -25,7 +25,7 @@ Katagiri Roshi concludes his series of talks on the *Diamond Sutra* by examining
 > A dream, a lightning flash, or cloud,  
 > So should one view what is conditioned.  
 >
-> (From [“Buddhist Wisdom: The Diamond Sutra and the Heart Sutra”](books#buddhist-wisdom) by [Edward Conze](glossary#edward-conze), p. 69.)
+> (From *Buddhist Wisdom: The Diamond Sutra and the Heart Sutra* by Edward Conze, p. 69.)
 
 This is a very famous verse in Buddhism. It means the world which is conditioned, in other words all conditioned beings, are just like stars, a fault of vision, a lamp, a mock show, dew drops, a bubble, a dream, a lightning flash, or cloud. 
 

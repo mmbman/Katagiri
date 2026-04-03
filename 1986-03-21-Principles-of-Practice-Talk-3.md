@@ -130,19 +130,15 @@ So, let’s [look at it] from the beginning: “Noble son, a Bodhisattva’s bud
 
 So, if you continually practice like this, as a result, you have already planted the root of [the] wholesome, because it’s very pure. *Wholesome* means not the good opposed to bad, or right opposed to wrong. *Wholesome* is exactly beyond the idea of good or bad. This is the first moment, first thought of the world. 
 
-So, if you do it, before you think of it, that practice allows you to have already the wisdom and its functioning. You can get it immediately. That is called the *root of [the] wholesome*. Very natural. And then that leads you to be born in the Buddha’s world. So, very naturally you can create [a] wholesome world, peaceful world, next moment. 
+If you do it, before you think of it, that practice allows you to have already the wisdom and its functioning. You can get it immediately. That is called the *root of [the] wholesome*. Very natural. And then that leads you to be born in the Buddha’s world. So, very naturally you can create [a] wholesome world, peaceful world, next moment. 
 
-So, what we can do is, constantly cultivate this practice. Be in the realm of first thought, and practice there, and then simultaneously you can get the wisdom and its functioning, which is called *root of the wholesome*. 
+What we can do is, constantly cultivate this practice. Be in the realm of first thought, and practice there, and then simultaneously you can get the wisdom and its functioning, which is called *root of the wholesome*. 
 
-So, you never lose it, because wisdom and the functioning of wisdom is already planted in the bottom of your life. So, you never lose [it], whatever happens, all circumstances. That’s why, next moment, you can live in the Buddha land. 
+You never lose it, because wisdom and the functioning of wisdom is already planted in the bottom of your life. So, you never lose [it], whatever happens, all circumstances. That’s why, next moment, you can live in the Buddha land. How can we be free from karmic life? Well, just be there and practice. Very naturally, you are free. Exactly.
 
-So, how can we be free from karmic life? Well, just be there and practice. Very naturally, you are free. Exactly.
+But our consciousness doesn’t believe it. *[He laughs.]* Because consciousness is already involved in the very complicated world, so we don’t believe it. But if you make your mind very clear and simple, going to the bottom of that reflection and discriminating world, then you can see how the first thought is working. And then, this is a really great light of instruction, how to live. All we have to do is to be there and practice, as best as we can. This is called *egolessness*. 
 
-But our consciousness doesn’t believe it. *[He laughs.]* Because consciousness is already involved in the very complicated world, so we don’t believe it. But if you make your mind very clear and simple, going to the bottom of that reflection and discriminating world, then you can see how the first thought is working. And then, this is a really great light of instruction, how to live. 
-
-So, all we have to do is to be there and practice, as best as we can. This is called *egolessness*. 
-
-So, very naturally, suffering begets selflessness. Okay? Suffering. Because suffering is fabricated [by] reflection and discriminating mind, and simultaneously it is constantly unconscious effort, which allows you to go on and on, knowing the bottom of the samsaric world. So, very naturally, you can see how to live, how to take care of the samsaric world. 
+So, very naturally, suffering begets selflessness. Okay? Suffering. Because suffering is fabricated [by] reflection and discriminating mind, and simultaneously it is constant unconscious effort, which allows you to go on and on, [to know] the bottom of the samsaric world. So, very naturally, you can see how to live, how to take care of the samsaric world. 
 
 So, let’s go down to the bottom, and then be there, and try to live. 
 
@@ -150,7 +146,7 @@ But still, in the samsaric world it is very difficult. That’s why there are se
 
 *[Tape change.]*
 
-... So, *giving*. Constantly giving. This giving is not the usual giving; [it is] giving *paramita*. *Paramita* means “perfect accomplishment.” So, giving must be accomplished perfectly. That means, completely open, and just do it. 
+... So, *giving*. Constantly giving. This giving is not the usual giving; [it is] giving *pāramitā*. *Pāramitā* means “perfect accomplishment.” So, giving must be accomplished perfectly. That means, completely open, and just do it. 
 
 And also *precepts*. Precepts are Buddha’s suggestion how to live. Buddha’s suggestions – not moral suggestions, not ethical suggestions, *Buddha’s* suggestions. The suggestion of the truth, how to live. 
 
@@ -206,7 +202,7 @@ And also he says:
 
 > The foremost concern of a student is first to detach from the notion of self. To detach from the notion of self means that we must not cling to this body. 
 
-So very naturally, you can practice *giving paramita*. 
+So very naturally, you can practice *giving pāramitā*. 
 
 And also he says: 
 

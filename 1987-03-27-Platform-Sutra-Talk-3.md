@@ -7,7 +7,7 @@ title: "Platform Sutra – Talk 3"
 
 ### Summary 
 
-Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajñā* and *paramita*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
+Katagiri Roshi continues his commentary on Chapter 2 of the *Platform Sutra,* further discussing the meaning of the terms *maha*, *prajñā* and *pāramitā*. He discusses the relation of the sutra to the three kinds of emptiness, how life and death and nirvana are the same, *kannō-dōkō* or spiritual communion between you and the universe, and transforming the three poisons into the Precepts.
 
 ### Transcript
 
@@ -125,11 +125,11 @@ So that’s why one of the Buddha’s teachings is called *interdependent co-ori
 
 #### 28:27
 
-Next, page 96: the meaning of *paramita*.
+Next, page 96: the meaning of *pāramitā*.
 
-> What is meant by Paramita? It is a Sanskrit word which in our language means ‘arrived at the other shore,’ and is explained as ‘apart from production and extinction.’ 
+> What is meant by Pāramitā? It is a Sanskrit word which in our language means ‘arrived at the other shore,’ and is explained as ‘apart from production and extinction.’ 
 
-So [paramita] means “arrived at the other shore,” which means “apart from production and extinction.” Apart from life and death, apart from origination and extinction. That is the meaning of [paramita] in Sanskrit. Here it says, 
+So [pāramitā] means “arrived at the other shore,” which means “apart from production and extinction.” Apart from life and death, apart from origination and extinction. That is the meaning of [pāramitā] in Sanskrit. Here it says, 
 
 > When one is attached to states of being, production and extinction arise like waves on water. 
 
@@ -147,23 +147,23 @@ Like in *Blue Cliff Record*, explaining about [a] baby’s consciousness. Do you
 
 So the other shore is not *far* from us. The other shore is here in this shore. Because it is a practice. So when you practice, right in the middle of practice, there is the other shore. 
 
-> Therefore it is called ‘Paramita’.
+> Therefore it is called ‘Pāramitā’.
 
-*Param* in Sanskrit means “gone beyond.” *Ita* means “she who has gone.” That is the meaning of *ita*, so *paramita* is “gone beyond the person who has gone.” In other words, gone beyond something which you have gone. 
+*Param* in Sanskrit means “gone beyond.” *Ita* means “she who has gone.” That is the meaning of *ita*, so *pāramitā* is “gone beyond the person who has gone.” In other words, gone beyond something which you have gone. 
 
 So if you arrived, you cannot stay there, you have to go beyond. 
 
-That’s why *prajñā paramita* means wisdom *beyond* [the] wisdom which you have arrived. Because you already [have] wisdom, so you have already arrived there. But you have to go beyond. 
+That’s why *prajñā pāramitā* means wisdom *beyond* [the] wisdom which you have arrived. Because you already [have] wisdom, so you have already arrived there. But you have to go beyond. 
 
 It means, if you stay with wisdom which you have gone, I think [a] question comes up, like Cory said: what’s going on if we cut off the wisdom? But real wisdom must be something alive in our everyday life. So, wisdom *beyond* wisdom. That is real wisdom. 
 
 #### 34:02
 
-Okay, next, page 97... this is also talking about the meaning of *paramita*. This (previous) paragraph [talks about] the meaning of paramita in terms of *emptiness of mark*, and in the next paragraph on page 97, paramita is [talked about] in terms of *emptiness of dharma*:
+Okay, next, page 97... this is also talking about the meaning of *pāramitā*. This (previous) paragraph [talks about] the meaning of pāramitā in terms of *emptiness of mark*, and in the next paragraph on page 97, pāramitā is [talked about] in terms of *emptiness of dharma*:
 
 > “Good Knowing Advisors, deluded people recite with their mouths, but while they recite they live in falsehood and in error. When there is practice in every thought, that is the true nature. You should understand this dharma, which is the Prajñā dharma; and cultivate this conduct, which is the Prajñā conduct. Not to cultivate is to be a common person, but in a single thought of cultivation, you are equal to the Buddhas.”
 
-From this point, this paramita is mentioned in terms of *emptiness of dharma*, because everything exists in the emptiness, so you have to always go beyond something which you have understood, which you have been. You have to go beyond. Always you have to move, [that] means constantly you should maintain actualization [or] flow, the flow of activities. 
+From this point, this pāramitā is mentioned in terms of *emptiness of dharma*, because everything exists in the emptiness, so you have to always go beyond something which you have understood, which you have been. You have to go beyond. Always you have to move, [that] means constantly you should maintain actualization [or] flow, the flow of activities. 
 
 So that’s why here it says, “In a single thought of cultivation, there is wondrous passage to make your life buddha.” Buddha, or wise: the wise person. It’s not a concept. 
 
@@ -189,7 +189,7 @@ Next, page 98:
 
 > “Good Knowing Advisors, common people are Buddhas and affliction is Bodhi. Past thoughts deluded are the thoughts of a common person. Future thoughts enlightened are the thoughts of a Buddha. Past thoughts attached to states of being are afflictions, and future thoughts separate from states of being are Bodhi.”
 
-In this paragraph, I think *paramita* is mentioned in terms of *bodhi*. Bodhi is simultaneously delusion, delusion is bodhi, enlightenment. Life and death *are* nirvana, [and] nirvana *is* life and death, simultaneously. No gap between. 
+In this paragraph, I think *pāramitā* is mentioned in terms of *bodhi*. Bodhi is simultaneously delusion, delusion is bodhi, enlightenment. Life and death *are* nirvana, [and] nirvana *is* life and death, simultaneously. No gap between. 
 
 I always [say] life and death [and] nirvana, enlightenment, all exist at the same and one ground. That characteristic of *same and one ground* is very wondrous, mysterious. We don’t know what it is, how it is functioning. We don’t know, but it exists, and also it is the original nature of individual life. And then, *the same and one ground* is characterized by [causing] all living beings to exchange their own positions. Mountains, skies – we don’t know how mountain exchanges its own position with skies and the clouds, we don’t know, but simultaneously they do. That is called *life of mountain*. That’s why we are impressed by [the] life of mountains. That’s why we learn many lives of being *through* life of mountains. 
 
@@ -209,17 +209,17 @@ That is [what] Dōgen Zenji [always says] in *Shōbōgenzō*: life and death, or
 
 Page 100: 
 
-> “Good Knowing Advisors, Maha Prajñā Paramita is the most honored, the most supreme, the foremost. It does not stay; it does not come or go. All Buddhas of the three periods of time emerge from it. You should use great wisdom to destroy affliction, defilement, and the five skandhic heaps. With such cultivation as that you will certainly realize the Buddha Way, transforming the three poisons into morality, concentration, and wisdom.
+> “Good Knowing Advisors, Maha Prajñā Pāramitā is the most honored, the most supreme, the foremost. It does not stay; it does not come or go. All Buddhas of the three periods of time emerge from it. You should use great wisdom to destroy affliction, defilement, and the five skandhic heaps. With such cultivation as that you will certainly realize the Buddha Way, transforming the three poisons into morality, concentration, and wisdom.
 
-This paragraph [talks about] the meaning of *maha prajñā paramita* as a whole. 
+This paragraph [talks about] the meaning of *maha prajñā pāramitā* as a whole. 
 
-The first [sentence says], “Maha Prajñā Paramita is the most honored, the most supreme, the foremost.” This is maha prajñā paramita. It means, who are you? You are supreme. You are the most honored, the most supreme, the foremost. It means, you can forget *you*, forget yourself. That is wisdom – perfect wisdom. That’s why there is the practice of egolessness. Otherwise, we always attach; we are very selfish. 
+The first [sentence says], “Maha Prajñā Pāramitā is the most honored, the most supreme, the foremost.” This is maha prajñā pāramitā. It means, who are you? You are supreme. You are the most honored, the most supreme, the foremost. It means, you can forget *you*, forget yourself. That is wisdom – perfect wisdom. That’s why there is the practice of egolessness. Otherwise, we always attach; we are very selfish. 
 
-So that’s why the first [sentence] says, prajñā paramita – your life – “is the most honored, the most supreme, the foremost.” That means you should forget yourself. That is to learn the self. Without this, you cannot master anything, you don’t understand anything. 
+So that’s why the first [sentence] says, prajñā pāramitā – your life – “is the most honored, the most supreme, the foremost.” That means you should forget yourself. That is to learn the self. Without this, you cannot master anything, you don’t understand anything. 
 
 Next it says, “It does not stay; it does not come or go.” “Not stay” means *present*, “not go” means *past*, and “not come” means *future*. So it means time. So if you forget yourself, then next, you can go beyond time. 
 
-Without this practice, you cannot understand anything. Naturally you do, but using your consciousness you have to *taste* this practice. That’s why here it says *maha prajñā paramita* is not to stay, not to come, not to go. This is prajñā; this is the nature of your life. 
+Without this practice, you cannot understand anything. Naturally you do, but using your consciousness you have to *taste* this practice. That’s why here it says *maha prajñā pāramitā* is not to stay, not to come, not to go. This is prajñā; this is the nature of your life. 
 
 [It is not something.] If we say “your life is wisdom,” [then] we try to know, “What is wisdom?” That means you are attached to the present. And then we say, “We have *prajñā*, but we don’t notice, that’s why by practice we have to know it.” This is [that] we attach to the future. Or we say, “In the past, we have prajñā, we have it already, we are gifted with wisdom.” That means we already attach to the past. But it’s not real wisdom.
 

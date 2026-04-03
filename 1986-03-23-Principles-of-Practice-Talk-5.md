@@ -117,27 +117,29 @@ So [both] teacher and also student have to constantly practice these key points 
 
 I mention sometimes, you have to continually seek for what the true teacher is. *Forever*, you have to research, you have to seek for it. 
 
-Don’t think that this person or that person is the right teacher for you. Don’t think in that way. But *temporarily*, this teacher or that teacher *is* your teacher, according to the causes and conditions. So, no way to escape. 
+Don’t think that this person or that person is the right teacher for you. Don’t think in that way. But *temporarily* this teacher or that teacher *is* your teacher, according to the causes and conditions. So, no way to escape. 
 
 So, temporarily, let’s practice! Let’s practice under this teacher or that teacher, [who] you have met in your lifetime by virtue of conditions and causes. So this is a unique opportunity for you. No other way to go. 
 
-And then, what do you have to practice? This is important: what you have to practice, instead of thinking or discussing what the right teacher is. That’s [secondary], anyway. Right teacher is [that] you have to show or practice Buddha’s teaching, day by day. And the teacher also is exactly teaching, practicing Buddha’s teaching with you. And then, we will understand what the right teacher is. 
+And then, what do we have to practice? This is important: *what you have to practice*, instead of thinking or discussing what the right teacher is – that’s [secondary]. Right teacher is [that] you have to show or practice Buddha’s teaching, day by day. And the teacher also is exactly teaching, practicing Buddha’s teaching with you. And then, we will understand what the right teacher is. 
 
-Okay. 
+Okay. That’s why “to listen to the dharma means to give full play to the discriminating mind.” 
 
-That’s why “to listen to the dharma means to give full play to the discriminating mind.” Zazen is to manage free practice and realization. 
+#### 28:28
 
-Yesterday I [talked] about the practice. The practice is constantly you have to come back to the beginning, the very beginning of your existence. You come back to the very beginning of your birth, come back to the very beginning of standing right now, right here. The very beginning. Not to come back to the result, which you can see. Standing, [for example]. [Standing is] not a result. You have to come back to the *real* source of standing right now, right here. And then, this is real managing zazen. Okay?
+*Zazen* is to “manage free practice and realization.”
 
-What is this? When you come back to the real source, that is called “managing free practice and realization.” Because, when you come back [to] that source, this is pretty hard, pretty hard practice. So, it’s practice! Because we are already creating our own life, and then put them aside, and then we have to go back to that one, that source. That’s pretty hard practice. But when you go back to there, it’s not hard practice! Immediately you are supported. 
+Yesterday I [talked] about the practice. The practice is constantly you have to come back to the beginning, the very beginning of your existence. You come back to the very beginning of your birth, come back to the very beginning of standing, right now, right here. The very beginning. [It’s] not to come back to the result which you can see. Standing, [for example,] is not a result. You have to come back to the *real* source of standing right now, right here. And then, this is real managing zazen.
 
-Just like jumping into the ocean. Before you jump into the ocean, you have to think what the ocean is, what swimming is, what the fear is... I don’t know what happens in my body and mind. Maybe the moment when I jump into the ocean, I could die. I don’t know; there is no guarantee. So, lots of stuff is coming up. That’s pretty hard practice. Anyway, training your body, your mind; understanding swimming, oceans, and the form of swimming, et cetera. But when you jump in, [...] when you sink into the ocean, the moment when you jump, simultaneously your body floats. Very naturally, you are supported. 
+What is this? When you come back to the real source, that is called “managing free practice and realization.” Because when you come back [to] that source, this is pretty hard, pretty hard practice. So it’s practice! Because we are already creating our own life, and then we have to put it aside and go back to that *one*, that source. That’s pretty hard practice. But when you go back to there, it’s not hard practice! Immediately you are supported. 
+
+Just like jumping into the ocean. Before you jump into the ocean, you have to think what the ocean is, what swimming is, what the fear is. I don’t know what happens in my body and mind; maybe the moment when I jump into the ocean, I could die. I don’t know; there is no guarantee. So, lots of stuff is coming up. That’s pretty hard practice: training your body, your mind; understanding swimming, oceans, and the form of swimming, et cetera. But [...] the moment when you jump into the ocean, simultaneously your body floats. Very naturally, you are supported. 
 
 So, this is what is called “to learn the backward step which turns your light inwardly to illuminate yourself.” *Fukanzazengi* says this. Or, plainly speaking, it is called *reflection*. 
 
 So, in a sense, *reflection* is considered as human suffering beyond human consciousness. [It’s considered] in terms of hard practice. It’s really hard practice, because suffering is really a serious matter in life. [...] Because you cannot get out from this. 
 
-But [because of] this suffering, you can survive. You have to appreciate this suffering, because we are seeking constantly for something more than the conscious world or unconscious world. We are seeking for it, always. This is the suffering. So, that suffering comes into existence beyond the functioning of your consciousness. So, it is very serious in life. But if you realize that suffering – real suffering coming from the first moment of your being, exactly – then you can attain enlightenment. So, suffering makes you sad and painful, but on the other hand, suffering makes you become big laughter, relief. You can [be relieved], exactly. 
+But [because of] this suffering, you can survive! You have to appreciate this suffering, because we are seeking constantly for something more than the conscious world or unconscious world. We are seeking for it, *always*. This is the suffering. That suffering comes into existence beyond the functioning of your consciousness, so it is very serious in life. But if you realize that suffering – real suffering coming from the first moment of your being, exactly – then you can attain enlightenment. So, suffering makes you sad and painful, but on the other hand, suffering makes you become big laughter, relief. You can [be relieved], exactly. 
 
 Well, you can experience this in your life. If you cry day [after] day, one moment completely crying [turns into] big laughter. Just like the bottom of a bucket broken and the water rushing away from it, all of a sudden. 
 
@@ -303,7 +305,7 @@ You don’t like it? *[He chuckles.]*
 
 Well, even though you don’t like it, that is a final thing you can do; a unique, final thing you can do... after struggling for a long time. *[He laughs.]*
 
-So that is a unique way to allow you to exist, fully. 
+So that is a unique way to allow you to exist fully. 
 
 Don’t you think? No? Is there anyone to comment? 
 

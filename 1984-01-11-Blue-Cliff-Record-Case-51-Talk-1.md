@@ -285,7 +285,7 @@ So, anyway, “... all of this is haunting the fields and forests...”
 
 > Even if you arrive immediately at the point of solitary liberation, you haven’t avoided looking back to the village gate from ten thousand miles away. 
 
-“Even if you arrive immediately at the point of solitary liberation” means [even if you have] oneness of the mountain and you who are climbing the mountain – you say, “I get it!” You get exactly a feeling of oneness. But at that time, it is already something you can see objectively, so that oneness is not *real* oneness. That oneness is *perception* of the oneness, not *the last word* of the oneness. The last word of the oneness is constantly you must be alive right in the middle of oneness. *Constantly*. 
+“Even if you arrive immediately at the point of solitary liberation” means [even if you have] oneness of the mountain and you who are climbing the mountain – you say, “I get it!” You get exactly a feeling of oneness, but at that time it is already something you can see objectively, so that oneness is not *real* oneness. That oneness is *perception* of the oneness, not *the last word* of the oneness. The last word of the oneness is constantly you must be alive right in the middle of oneness. *Constantly*. 
 
 If you *think* it, that is you immediately create a huge gap, just like between heaven and earth. That’s why here it says, “Even if you arrive immediately at the point of solitary liberation, you haven’t avoided looking back to the village gate from ten thousand miles away.” Anyway, you are just haunting the [fields and forests]. It’s a [ghost story]. 
 
