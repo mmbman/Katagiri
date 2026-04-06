@@ -7,3 +7,5 @@ header_pages:
   - search.md
 github:
   is_project_page: false
+exclude:
+  - pdf/
