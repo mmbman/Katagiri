@@ -861,7 +861,7 @@ Katagiri Roshi comments on this:
 >
 > “Basic approaches” means that we should understand the real meaning of the teachings given by Shen-hsiu, founder of the Northern School, and that we should understand through and through the teachings of the Sixth Patriarch, Hui-neng, founder of the Southern School.
 >
-> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Boebert, edited by Jeffrey Broadbent.
+> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
 Note that again, the “Northern School” and “Southern School” seem to be given equal time. 
 
@@ -902,7 +902,7 @@ Katagiri Roshi’s comment:
 > 
 > If people look at someone who has experienced this, for example Shen-hsiu, the founder of the Northern School, they will respect him as a saint. As a pure being. “Even though the basis is reached and the approach comprehended” means that he can walk step by step according to the Buddha’s teaching. True eternity still flows; true eternity is always shown.
 >
-> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Boebert, edited by Jeffrey Broadbent.
+> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
 --- 
 
@@ -949,7 +949,7 @@ Katagiri Roshi comments on this:
 > 
 > In the *Shōbōgenzō* Dogen Zenji says that if you wish to understand the seed of buddha nature you should know that it is precisely the causal conditions of time and season. That is a big term; practically speaking it means time and space becomes fresh from moment to moment. It means there is no constant name that can apply to you. Good, bad, whatever. Nothing. Always you are fresh. So you have to live in this state of freshness. That is Buddhist logic.
 >
-> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Boebert, edited by Jeffrey Broadbent.
+> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
 --- 
 
