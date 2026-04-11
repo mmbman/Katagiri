@@ -47,7 +47,9 @@ There are many types of zazen in this world, but broadly speaking, let me say [t
 
 One type of zazen is that by zazen we try to remove weeds on the ground, and reach certain stages of “no weeds” perfectly. At any cost, by this zazen, we struggle for weeding out and making the whole world perfectly clean. 
 
-But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time, so someday the weeds come back up. You cannot destroy weeds, because weeds are nothing but *being*, just like your existence. Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers – as long as flowers exist in this world, immediately there are weeds. But actually in the dualistic world we don’t like weeds, so with hatred, we try to cut them down. While you maintain hatred, by that hatred maybe you can cut them down. But it is not completely removing the weeds from the human world. Sometime, somewhere, the weeds come up. 
+But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time, so someday the weeds come back up. You cannot destroy weeds, because weeds are nothing but *being*, just like your existence. 
+
+Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers – as long as flowers exist in this world, immediately there are weeds. But actually in the dualistic world we don’t like weeds, so with hatred, we try to cut them down. While you maintain hatred, by that hatred maybe you can cut them down. But it is not completely removing the weeds from the human world. Sometime, somewhere, the weeds come up. 
 
 We can see this kind of practice in the human world, for instance, in business circles. If you want to run a business – restaurant or whatever – you have to develop [the] business. You want to be successful in running the business, so usually, in the common sense, we really struggle for being successful in the business. [Stumbling along,] removing the weeds and gaining the flowers: in order to be successful in the business, we struggle for our lives, and reach the other shores. We can do this. If you struggle with wholeheartedness, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. 
 
@@ -63,7 +65,9 @@ Well, I don’t mean it is good or bad, right [or] wrong. We should know that is
 
 #### 19:15
 
-And the second type of zazen is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the samsaric world in the Six Realms of Existence: hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. But unfortunately, we weed out perfectly on the ground only of *our own property*, and we cherish a feeling of having reached the final goal. In other words, by way of having done our final goal, [we] spent our whole life without considering others’ life.
+And the second type of zazen is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. We are completely free from the samsaric world in the Six Realms of Existence: hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. 
+
+But unfortunately, we weed out perfectly on the ground only of *our own property*, and we cherish a feeling of having reached the final goal. In other words, by way of having done our final goal, [we] spent our whole life without considering others’ life.
 
 So by the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some Buddhism says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world; you can stay constantly in heaven. *Arhats* and many saints in the history of Buddhism showed us [this], they experienced it. That’s why one of the four results of Buddhist practice, what the *arhat* does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the samsaric world. This is *arhat* practice. 
 
