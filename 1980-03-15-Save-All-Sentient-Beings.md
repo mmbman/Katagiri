@@ -84,7 +84,7 @@ It is not the heavens, okay? *[He chuckles.]* [It is not] the human beings after
 
 So from this point, “I save all sentient beings” is – what? 
 
-Well, look around your life. How many beings exist? Around you there are cushions, floor; you can see them. For those beings, we can help, one by one. We can handle your boots and sandals, and your hair, and your clothes; we can take care of them pretty well. This is exactly to save all sentient beings. Because your sandals, your boots, your clothes, are *beings*, *all dharmas*, which are observed, which are called into question. 
+Well, look around at your life. How many beings exist? Around you there are cushions, floor; you can see them. For those beings, we can help, one by one. We can handle your boots and sandals, and your hair, and your clothes; we can take care of them pretty well. This is exactly to save all sentient beings. Because your sandals, your boots, your clothes, are *beings*, *all dharmas*, which are observed, which are called into question. 
 
 So, we should [do it]. At that time, it’s not necessary to think [of] something *else*, which is *not* observed and which is not called in question. From moment to moment, always there are some beings which appear. 
 
