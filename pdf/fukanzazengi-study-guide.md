@@ -2,7 +2,7 @@
 //title: "Katagiri Roshi’s Teachings on _Fukanzazengi_"
 //subtitle: "A Study Guide for Zen Master Dōgen’s _Universal Recommendation for Zazen_"
 //author: Edited by Kikan Michael Howard. Commentary © 2026 Kikan Michael Howard. Katagiri Roshi’s talks © Minnesota Zen Meditation Center.
-//date: Version 0 - March 17, 2026
+//date: Version 0.6 - April 13, 2026
 #margin:
 #  x: 1.0in
 #  y: 1.0in
@@ -19,16 +19,16 @@ fontsize: 12pt
 //#set smartquote(enabled: false)
 
 #align(center + horizon)[
-  #text(size: 1.8em, weight: "bold")[Katagiri Roshi’s Teachings on _Fukanzazengi_]
+  #text(size: 3em, weight: "bold")[Making Arrangement]
   
   #v(1em)
-  #text(size: 1.5em)[A Study Guide for Zen Master Dōgen’s #linebreak()_Universal Recommendation for Zazen_]
+  #text(size: 1.4em)[Katagiri Roshi’s Teachings on _Fukanzazengi_,#linebreak()Zen Master Dōgen’s _Universal Recommendation for Zazen_]
   
   #v(4em)
-  #text(size: 1.2em)[Edited by Kikan Michael Howard]
+  #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.5]
+  #text(size: 1.2em)[Draft Version 0.6]
   
   #datetime.today().display()
   
@@ -87,7 +87,7 @@ fontsize: 12pt
 # Introduction 
 
 Zen Master Dōgen’s *Fukanzazengi* (“Universal Recommendation for Zazen”) is probably the most fundamental text of Sōtō Zen Buddhism. Composed by Eihei Dōgen in 13th century Japan, written in Classical Chinese, it explains both the *how* and the *why* of Zen meditation. Traditionally this short text is recited every evening during *sesshin* (Zen meditation retreat), but it has meaning for practitioners in all areas of life – hence “*Universal* Recommendation.”
- 
+
 Dainin Katagiri Roshi, the founder of Sōtō Zen in Minnesota, worked for decades to bring Dōgen Zenji’s teachings to English-speaking Americans, giving hundreds of dharma talks at [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html). In this document, I go through *Fukanzazengi* line-by-line and attempt to bring together Katagiri Roshi’s teachings on each part of the text, drawn from many of his different talks over the years from 1979 to 1989.
 
 This is a work in progress. I will be updating this document as I continue to transcribe talks and find additional references, and perhaps some day we might even have access to additional talks that we don’t have access to today. Nevertheless, after six or so years of slow but steady work on transcribing Katagiri Roshi’s talks, there is a solid basis to begin this project. 
@@ -197,24 +197,40 @@ Katagiri Roshi says about sitting down in *zazen*:
 
 > *Anyone* can do it. Even if you are not Buddhist, or even if you cannot come [to the Zen Center], you can sit down. [...] This is *shikantaza* (wholehearted sitting). [...] This is *freedom* – open to *everybody*! No exceptions. 
 >
-> That’s why Dōgen Zenji says “Universal Recommendation for Zazen” – *universal* recommendation. It’s really *universal*. [It’s] not only weeding out on your own territory. Anyone can do it. Wherever you may be, you can do it. 
+> That’s why Dōgen Zenji says “Universal Recommendation for Zazen” – *universal* recommendation. It’s really *universal*. [It’s] not only weeding out (that is, removing all weeds) on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 >
 > – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3,” June 11, 1979, at 1:02:07](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3#10207).
 
 ---
 
-By “[it’s] not only weeding out on your own territory,” Katagiri Roshi means that this is not the kind of zazen where we are striving to attain liberation from this world, the practice of the *arhats* in early Buddhism:
+What does Katagiri Roshi mean when he says that zazen is not only removing all the weeds on our own territory? 
 
-> So by the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some Buddhism says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world; you can stay constantly in heaven. *Arhats* and many saints in the history of Buddhism showed us [this], they experienced it. That’s why one of the four results of Buddhist practice, what the *arhat* does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the *samsaric* world. This is *arhat* practice. 
+By “weeds,” Katagiri Roshi means any mental or physical conditions that we don’t like. We can also understand weeds as *karma* – a topic that we will return to – but again, it’s the kind of karma that we don’t like. Katagiri Roshi says:
+
+> According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice... but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
 >
-> This is also [a type of] zazen. You can do this. But that is just weeding out on their own territory; that’s all. And then, when they completely weed out on their territory – they don’t know what to do. So there is only death to wait for; that’s all. All they have to do is just to wait for their death. 
+> So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
 > 
-> – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3” (June 11, 1979) at 19:15](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3#1915).
+> – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1” (June 9, 1979) at 56:36](https://katagiritranscripts.net/1979-06-09-Fukanzazengi-Talk-1#5636).
 
-So Katagiri Roshi says, this kind of zazen is not that. 
+So zazen is not about eliminating mental or physical states that we don’t like. Nor, in fact, is it about chasing after mental states that we *do* like. Instead, zazen is about arranging our circumstances – our environment, and our body and mind – so that we can sit *with* all sentient beings.
 
-He adds:
+But what do we mean by “all sentient beings”? This is actually a deep question. In brief, as we will see, “all sentient beings” means *everything*. Sitting with all sentient beings means sitting in the midst of everything that we are experiencing. That, in turn, means sitting in the midst of the total dynamic working of the whole universe. 
 
+This is what Katagiri Roshi means by “not only on our own territory.” Zazen is not a kind of meditation where we are attempting to cut ourselves off from this world and its difficulties. 
+
+Plainly speaking, this is a different understanding than in some varieties of Buddhism. We will explore this topic in more detail in Chapter 20: “Dullness and Distraction are Struck Aside.”
+
+---
+
+But because zazen is just sitting down and being present, that means *anyone* can do this practice. In other words, it is *universal*. Here is how Katagiri Roshi sums up the practice of *shikantaza* (wholehearted sitting), which is the kind of zazen we do:
+
+> So, *shikantaza* is arrangement of all things, and then sit down. That’s all. 
+> 
+> This is really *bodhisattva* practice, to help all sentient beings. If you practice this, your life is really helpful, for you and for others. It is very true. Even though you don’t say [anything], somebody realizes. You have something to tell him or her. 
+> 
+> So that is *shikantaza* – the zazen you do, mentioned by Buddha. It’s pretty difficult for us to understand intellectually, because we are getting the use of always analyzing and synthesizing everything in the dualistic world; it’s very difficult to *stop immediately*. That’s why even though you stop for a while, you don’t appreciate that practice. But this practice is [...] the best way. 
+>
 > We can explain how important this kind of [Buddhist] practice is philosophically, psychologically – but it takes time. That is a huge world, the philosophical background, psychological background. But even though you don’t know [it], you can do it – right now, right here. This is a very urgent need; we have to do it. Whoever you are, wherever you may be, you can do it. 
 >
 > For instance, if you are in an office – well still you can do it. If there is no one there, you can sit down in a chair and calm yourself. If you are talking with somebody, you can realize a certain pause, where no words come up. For that time, you can return to yourself, and breathe. 
@@ -223,7 +239,7 @@ He adds:
 > 
 > – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3” (June 11, 1979) at 1:09:51](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3#10951).
 
-This is a small part of a much longer talk which ties together many ideas in *Fukanzazengi*, including this notion of practicing for lifetime after lifetime. We’ll return to those points in the following chapters.
+This is a small part of a much longer talk which ties together many ideas in *Fukanzazengi*, including this notion of practicing for lifetime after lifetime, and what it means to arrange our circumstances. We’ll return to those points in the following chapters.
 
 But this is the conclusion: to do it.
 
@@ -257,15 +273,19 @@ Katagiri Roshi gave a series of talks on Zen Master Dōgen’s *Gakudō-yōjinsh
 >
 > – From [“Principles of Practice, Talk 1: The Purpose of Practice” (March 19, 1986)](https://katagiritranscripts.net/1986-03-19-Principles-of-Practice-Talk-1).
 
+By “beyond conscious or unconscious worlds,” Katagiri Roshi means beyond the worlds created by our conscious or unconscious mental processes. Hence, this is “prior to the germination of any subtle ideas.”
+
 So here “the Way” is not a set of guidelines or procedures to follow, but *universal life*.  But what is *universal life*? And isn’t “the Way” the teachings of the Buddha – the *buddha-dharma* – which we need to follow?
 
 We can say that to study the Way is to follow the teaching of Buddha. But we need to ask, what do we mean by “Buddha”? And also, what do we mean by “the teaching”?
 
+In a typical translation, *Buddha* is understood as the historical Buddha or the religious personage of “the Buddha.” *Dharma* is often understood as “the teaching.” And *sangha* is usually understood as “the community.” But this misses the significance of these terms in Zen. According to Katagiri Roshi, *Buddha* is the universe. *Dharma* is the teaching of the universe. And *sangha* is the community that makes the universe and its teaching alive in their lives. 
+
+This is more the sense in which we can say that the Way is the teaching of Buddha that we need to follow. 
+
 ---
 
 Taking refuge in the Triple Treasure – *Buddha*, *dharma*, and *sangha* – is fundamental to all branches of Buddhism. In a Zen temple, we do this together at the start of every morning service, at the start of the Full Moon Precepts ceremony, and in many other ceremonies. We also take refuge in the Three Treasures in our daily life, keeping them close to our hearts.
-
-In a typical translation, *Buddha* is understood as the historical Buddha or the religious personage of “the Buddha.” *Dharma* is often understood as “the teaching.” And *sangha* is usually understood as “the community.” But this misses the significance of these terms in Zen. According to Katagiri Roshi, *Buddha* is the universe. *Dharma* is the teaching of the universe. And *sangha* is the community that makes the universe and its teaching alive in their lives. 
 
 Katagiri Roshi explains the Triple Treasure:
 
@@ -307,7 +327,7 @@ After some explanation of the meaning of “excellent friends,” he continues:
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 14:00](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#1400).
 
-This is more the sense in which we can say that the Way is the teaching of Buddha that we need to follow. The Way is the teaching of the universe, the *buddha-dharma*. And the community of people who are following the Way is the *sangha*.
+So we can say that the Way as *universal life* is the teaching of the universe, the *buddha-dharma*. And the community of people who are following the Way is the *sangha*.
 
 --- 
 
@@ -1333,7 +1353,7 @@ This is what Bodhidharma came to China to transmit.
 
 --- 
 
-After his meeting with Emperor Wu, legend says that Bodhidharma travelled to the north  and sat “facing the wall” for nine years. People often have the idea that Bodhidharma’s nine years of “facing the wall” was about making a point, or the pursuit of some new level of enlightenment. But what if it was about practice for it’s own sake? 
+After his meeting with Emperor Wu, legend says that Bodhidharma travelled to the north  and sat “facing the wall” for nine years. People often have the idea that Bodhidharma’s nine years of “facing the wall” was about making a point, or the pursuit of some new level of enlightenment. But what if it was about practice for its own sake? 
 
 > **Question:** You brought up the story about Bodhidharma sitting and facing the wall for nine years. And I was talking to someone about this recently, and this person told me that the reason that Bodhidharma went and faced the wall for ten years was because Emperor Wu didn’t understand what he was saying so he banished him. 
 > 
@@ -2021,6 +2041,10 @@ So a better translation might be:
 This is pretty close to the Eastern Buddhist translation, except “immediately” may be a better word than “without delay,” as it’s more a matter of directness than of avoiding procrastination.
 
 This is also close to the translation used by Confluence Zen Center ([external link](https://www.confluencezen.org/fukanzazengi/)), and that used by Zenkatsu Norman Fischer ([external link](https://everydayzen.org/teachings/fukanzazengi-2/)). 
+
+- on the other hand, look up “emergency case”, as in 1988-09-25-Kuge-Talk-5
+
+- and on the other hand, not procrastinating is mentioned too, somewhere
 
 ```{=typst}
 #pagebreak()
@@ -2775,6 +2799,45 @@ This line is extensively discussed in [“*Fukanzazengi*: Dōgen's Universal Rec
 
 This is synonymous with “body and mind of themselves will drop away.” See above.
 
+Return to the three types of zazen discussion here? 
+
+What does Katagiri Roshi mean by “[it’s] not only weeding out on your own territory”? Katagiri Roshi explains that, broadly speaking, we can say that there are three types of zazen:
+
+> One type of zazen is that by zazen we try to remove weeds on the ground, and reach certain stages of “no weeds” perfectly. At any cost, by this zazen, we struggle for weeding out and making the whole world perfectly clean. 
+> 
+> But that is nothing but resting weeds. Resting weeds are temporary, for a certain period of time, so someday the weeds come back up. You cannot destroy weeds, because weeds are nothing but *being*, just like your existence. 
+> 
+> Weeds, flowers – beautiful flowers, ugly flowers, many kinds of flowers – as long as flowers exist in this world, immediately there are weeds. But actually in the dualistic world we don’t like weeds, so with hatred, we try to cut them down. While you maintain hatred, by that hatred maybe you can cut them down. But it is not completely removing the weeds from the human world. Sometime, somewhere, the weeds come up. 
+> 
+> We can see this kind of practice in the human world, for instance, in business circles. If you want to run a business – restaurant or whatever – you have to develop [the] business. You want to be successful in running the business, so usually, in the common sense, we really struggle for being successful in the business. [Stumbling along,] removing the weeds and gaining the flowers: in order to be successful in the business, we struggle for our lives, and reach the other shores. We can do this. If you struggle with wholeheartedness, with your effort, you can do anything. If you risk your life, you can do anything. You can reach the other shore. 
+>
+> But if you reach the other shore, that is [not] the final goal, because even the other shore is also a part of transiency. So the goal you have reached is no longer the goal. Immediately you have to go back to the first step, you have to do something from *now*. Do you understand? 
+> 
+> This is very clear; this is human life; we do this. Immediately [the real] goal goes far from you; that’s why the moment that you reach the goal, immediately you don’t feel satisfied; that’s why you want to do something more. So that is [that] desire is endless, just like snowballing. And then finally, we have to die. And then death waits for you; that’s all. This [way] is very common, very common. But I don’t know whether it is [a] real way or not. 
+> 
+> That is one type of zazen. If you do zazen like this, of course, you can attain enlightenment. You can completely “weed out.” By arranging your physical conditions, and concentrating your breath, and adjusting or arranging your breath, taking care of your breath, you can reach a certain spiritual stage which is called *calmness* or *tranquility* – which enables you to feel, well, happy, et cetera. 
+> 
+> But, when the circumstances are *changed*, you cannot maintain the calmness and tranquility that you have experienced. Immediately it’s *gone*; so you are very much confused. I know several examples [of this] in the United States. Under certain circumstances – for instance if you are right in the middle of a monastery in Burma, or wherever – you can follow the rules, the strict practice, and you attain enlightenment. But when you come [back] to the United States – it is a completely different situation, okay? A very different situation. And then, the weeds come back. It’s really so. 
+> 
+> Well, I don’t mean it is good or bad, right [or] wrong. We should know that is life. Such is life, such are human beings. We should know that.
+
+So in this first case, by “removing the weeds” we mean completely arranging our environment to remove anything we don’t like. But it’s impossible to maintain this state of existence – to attempt to do so is itself to create suffering. 
+
+--- 
+
+But there is a second, perhaps even more extreme, kind of zazen, where rather than fix the world, we strive to attain liberation from this world. This is the practice of the *arhats* in early Buddhism:
+
+> And the second type of zazen is, that we remove the roots of the weeds and even the seeds from the ground. Weeds no longer grow. They are completely free from the samsaric world in the Six Realms of Existence: hell, hungry ghost, fighting spirit, animal spirit, human beings, heavenly beings. 
+>Z> But unfortunately, we weed out perfectly on the ground only of *our own property*, and we cherish a feeling of having reached the final goal. In other words, by way of having done our final goal, [we] spent our whole life without considering others’ life.
+> 
+> So by the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some Buddhism says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world; you can stay constantly in heaven. *Arhats* and many saints in the history of Buddhism showed us [this], they experienced it. That’s why one of the four results of Buddhist practice, what the *arhat* does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the *samsaric* world. This is *arhat* practice. 
+>
+> This is also [a type of] zazen. You can do this. But that is just weeding out on their own territory; that’s all. And then, when they completely weed out on their territory – they don’t know what to do. So there is only death to wait for; that’s all. All they have to do is just to wait for their death. 
+> 
+> – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3” (June 11, 1979) at 19:15](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3#1915).
+
+
+
 ```{=typst}
 #pagebreak()
 ```
@@ -3248,3 +3311,23 @@ When you learn something from the mountains’ life, at that time it’s really 
 When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think you want to know, but it is represented as lots of questions in your life, those inspirations. Many things in the world of inspiration are kind of questions, lots of questions you don’t know [the answer to]. Like, “What’s that?” All these questions come up. Those questions are not something you can resolve in the realm of intellect or with intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s movement. So within the movement, there is full communication there. That is to climb the mountains. 
 
 So when you are completely drawn in by the mountains and living with the mountains, your living is exactly identical with that of the mountains, and you have to die exactly with the mountains, be alive with the mountains. If you do this, very naturally within each movement, responding to the voiceless voice that the mountain has, there is wonderful inspiration, so-called *learning*, learning  the mountains. It is more than intellectual research. It is not a sort of “big” thing or [fourth] dimension, it’s really simple. Apparently it’s just like the same things: religiously speaking, Katagiri is Katagiri, mountains are mountains, nothing different. But within the materialistic aspect of Katagiri and mountains, there is an enormous function of communication between you and mountains. 
+
+
+
+
+By “[it’s] not only weeding out on your own territory,” Katagiri Roshi means that this is not the kind of zazen where we are striving to attain liberation from this world, the practice of the *arhats* in early Buddhism:
+
+> So by the practice of zazen, it’s possible to weed out even the seeds completely, and the weeds no longer grow. Some Buddhism says that means that if you attain enlightenment, which is the highest level of spiritual life, then at that time it’s not necessary to come back to the human world; you can stay constantly in heaven. *Arhats* and many saints in the history of Buddhism showed us [this], they experienced it. That’s why one of the four results of Buddhist practice, what the *arhat* does, is the highest spirit of spiritual life, which enables you never to come back to [being a] human being, the *samsaric* world. This is *arhat* practice. 
+>
+> This is also [a type of] zazen. You can do this. But that is just weeding out on their own territory; that’s all. And then, when they completely weed out on their territory – they don’t know what to do. So there is only death to wait for; that’s all. All they have to do is just to wait for their death. 
+> 
+> – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3” (June 11, 1979) at 19:15](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3#1915).
+
+So Katagiri Roshi says, this kind of zazen is not like that. 
+
+
+
+> Look around at your life. How many beings exist? Around you there are cushions, floor; you can see them. For those beings, we can help, one by one. We can handle your boots and sandals, and your hair, and your clothes; we can take care of them pretty well. This is exactly to save all sentient beings. 
+
+
+
