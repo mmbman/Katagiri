@@ -86,7 +86,7 @@ So, the next sentence says,
 
 > Yet the mind cannot perceive the mind itself; the mind has no marks of its own that can be ascertained as a substantial entity as such. 
 
-How can I say [it]... the reproducing mind, how reproducing mind can be produced? That means, maybe I mentioned last time, first there is *one mind*, huge *one mind*, and that *one mind* starts to move, at that time that one mind is *ālāyavijñāna*. But on the other hand, even though one-mind starts to move and call it *ālāyavijñāna*, it doesn't mean that one-mind loses its own characteristic. So it constantly keeps its own nature. That is called *tathāgatagarbha*. So one-mind is just like one piece of paper with two aspects. 
+How can I say [it]... the reproducing mind, how reproducing mind can be produced? That means, maybe I mentioned last time, first there is *one mind*, huge *one mind*, and that *one mind* starts to move, at that time that one mind is *ālayavijñāna*. But on the other hand, even though one-mind starts to move and call it *ālayavijñāna*, it doesn't mean that one-mind loses its own characteristic. So it constantly keeps its own nature. That is called *tathāgatagarbha*. So one-mind is just like one piece of paper with two aspects. 
 
 So from this point, one-mind is a cause in order to establish reproducing mind. And then, the mind, one-mind starts to move... by what? By many conditions. That is *ignorance*, we say ignorance. Mind moves. We don't know *why* mind moves. So [we call that] ignorance. So ignorance is movement of mind.
 
@@ -108,7 +108,7 @@ In other words, when I reflect this table in my mind, the moment when I see, thi
 
 **Katagiri Roshi:** Mm-hmm. Reproducing mind is secondary cause. And then you can experience *suffering*: pleasant feeling, unpleasant feeling, et cetera. This is human suffering. 
 
-This is a double system of how we create samsaric world, how we experience samsaric world. Double system there. Double system means, one system is one-mind is cause, and then one-mind starts to move, and then at that time that is called *mumyo* (ignorance), which is secondary cause, and then you can create *samsara*. That is called *ālāyavijñāna*. And then the other system of producing the human mind is on the ground of the *mumyo*, ignorance, becomes cause. Ignorance is cause, because already you create, your mind moves. 
+This is a double system of how we create samsaric world, how we experience samsaric world. Double system there. Double system means, one system is one-mind is cause, and then one-mind starts to move, and then at that time that is called *mumyo* (ignorance), which is secondary cause, and then you can create *samsara*. That is called *ālayavijñāna*. And then the other system of producing the human mind is on the ground of the *mumyo*, ignorance, becomes cause. Ignorance is cause, because already you create, your mind moves. 
 
 **Person 2:** So the first cause is ignorance, and the second cause is reproducing mind? So the first cause is... 
 

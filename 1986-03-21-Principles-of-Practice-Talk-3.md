@@ -60,7 +60,7 @@ So if you see this kind of image of suffering even vaguely, realization of the T
 
 So I think yesterday I mentioned that naturally only humans try to know the bottom of reflection, discriminating consciousness, constantly. 
 
-The basis of discriminating consciousness is exactly the same as eternity, the vastness of existence. So it’s pretty difficult to say. According to *The Awakening of Faith*, *tathāgatagarbha*, that is the truth itself. Simultaneously when the *tathāgatagarbha* moves by causes and conditions, then *tathāgatagarbha* turns into *ālāyavijñāna*. So *ālāyavijñāna* implies the human samsaric world, but the bottom of the *ālāyavijñāna* is exactly *tathāgatagarbha*, so-called truth. So it’s *very* close, very close. 
+The basis of discriminating consciousness is exactly the same as eternity, the vastness of existence. So it’s pretty difficult to say. According to *The Awakening of Faith*, *tathāgatagarbha*, that is the truth itself. Simultaneously when the *tathāgatagarbha* moves by causes and conditions, then *tathāgatagarbha* turns into *ālayavijñāna*. So *ālayavijñāna* implies the human samsaric world, but the bottom of the *ālayavijñāna* is exactly *tathāgatagarbha*, so-called truth. So it’s *very* close, very close. 
 
 But yesterday I said, let’s put a partition, a *very* thin partition between, in order to explain. Because even for a moment, the samsaric world appears from this, the *tathāgatagarbha*, so-called *truth* – even though we don’t know, there must be something which turns truth into the samsaric world. 
 

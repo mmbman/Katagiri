@@ -1,5 +1,5 @@
 ---
-title: "The Awakening of Faith – Talk 11: Ālāyavijñāna & Tathāgatagarbha"
+title: "The Awakening of Faith – Talk 11: Ālayavijñāna & Tathāgatagarbha"
 ---
 ## May 18, 1984 Dharma Talk by Dainin Katagiri Roshi
 
@@ -32,9 +32,9 @@ nonenlightenment.
 
 There are [a few] terms: *tathāgatagarbha*, *storehouse consciousness*. I have to make the meaning of those terms clear. 
 
-*The Discourse on the Awakening of Mahayana Faith* begins with investigation of the *truth* first. This is a pretty peculiar characteristic of this discourse, which is different from other *shastra* [or] discourses on *vijnanavada*, “mere consciousness”. *The Discourse on Mere Consciousness*, *Vijnanavada*, begins with *ālāyavijñāna*. But this *Discourse on the Awakening of Mahayana Faith* begins with the truth. 
+*The Discourse on the Awakening of Mahayana Faith* begins with investigation of the *truth* first. This is a pretty peculiar characteristic of this discourse, which is different from other *shastra* [or] discourses on *vijnanavada*, “mere consciousness”. *The Discourse on Mere Consciousness*, *Vijnanavada*, begins with *ālayavijñāna*. But this *Discourse on the Awakening of Mahayana Faith* begins with the truth. 
 
-*Ālāyavijñāna*, simply speaking, is consciousness. So, *Vijnanavada* investigates what *our consciousness* is. So, analyzing, synthesizing; that is an interesting discourse. It is very difficult to believe in the truth in terms of investigation of our consciousness, because our consciousness seems to be filled with [delusions or] illusions, so it’s very difficult to believe in the truth. If you get into the depth of the human world in terms of investigation of human consciousness, it’s very hard. 
+*Ālayavijñāna*, simply speaking, is consciousness. So, *Vijnanavada* investigates what *our consciousness* is. So, analyzing, synthesizing; that is an interesting discourse. It is very difficult to believe in the truth in terms of investigation of our consciousness, because our consciousness seems to be filled with [delusions or] illusions, so it’s very difficult to believe in the truth. If you get into the depth of the human world in terms of investigation of human consciousness, it’s very hard. 
 
 But this discourse on Mahayana faith begins with truth. So we step inside truth; investigation of the truth. That is a little bit different [...] from other books. 
 
@@ -46,7 +46,7 @@ The second, I don’t know how to translate it... this is *the ultimate nature o
 
 Third, *tathāgatagarbha*. 
 
-And fourth, *ālāyavijñāna*: *storehouse consciousness*. Look at page 37, in the note there is the Sanskrit there. The storehouse consciousness [is] *ālāyavijñāna*. This term appears in the *Discourse on Merely Consciousness* and also this book too.
+And fourth, *ālayavijñāna*: *storehouse consciousness*. Look at page 37, in the note there is the Sanskrit there. The storehouse consciousness [is] *ālayavijñāna*. This term appears in the *Discourse on Merely Consciousness* and also this book too.
 
 And also the fifth, I want to [talk a little bit about]: *enlightenment* and *non-enlightenment*. 
 
@@ -86,17 +86,17 @@ So, the *tathāgatagarbha* is the intrinsic pure nature of the human mind covere
 
 But anyway, that’s why next *tathāgatagarbha* comes up. And then in terms of *tathāgatagarbha*, we may say that human being is based on the idea of an embryo which exists in the mother’s womb – who will be born, sooner or later. So that [way], it is really easy to believe this situation. So very naturally, the idea of *tathāgatagarbha* developed. 
 
-But still it’s very difficult to know how *tathāgatagarbha* works in our daily life. It’s very difficult, only by the term *tathāgatagarbha*. Emotionally, according to human feelings, we can feel that, and we can believe that, but logically it’s very difficult to know how this *tathāgatagarbha* works, and also how we can be free from illusions in this peculiar situation of *tathāgatagarbha*. So that’s why next another term comes up: that is *ālāyavijñāna*. 
+But still it’s very difficult to know how *tathāgatagarbha* works in our daily life. It’s very difficult, only by the term *tathāgatagarbha*. Emotionally, according to human feelings, we can feel that, and we can believe that, but logically it’s very difficult to know how this *tathāgatagarbha* works, and also how we can be free from illusions in this peculiar situation of *tathāgatagarbha*. So that’s why next another term comes up: that is *ālayavijñāna*. 
 
-*Ālāyavijñāna* gives us a certain hint how *tathāgatagarbha* works in our life – a hint to let us know how it works, how we can be free from illusions, et cetera, or how we can be free from *tathāgatagarbha*. *Tathāgatagarbha* is still the samsaric world.
+*Ālayavijñāna* gives us a certain hint how *tathāgatagarbha* works in our life – a hint to let us know how it works, how we can be free from illusions, et cetera, or how we can be free from *tathāgatagarbha*. *Tathāgatagarbha* is still the samsaric world.
 
-So even though you say *tathāgatagarbha* is the overall picture of human life, which has the buddha-nature and also human illusions together, [still] it is not the doctrine of dualism. So *ālāyavijñāna* tries to explain not the doctrine of dualism. It is because that peculiar situation of *ālāyavijñāna* is that the pure nature of human consciousness, which is called *unborn* or *imperishable*, is the whole picture of human consciousness. On the other hand, *illusion* is also the whole picture of human consciousness. Illusion is not something by which something is covered. So illusion is the total picture of human life. On the other hand, the pure nature of consciousness is also the total picture of human life. Because *tathāgatagarbha* is, just like I mention often, one piece of paper with two aspects, back and front. And also the one piece of paper is constantly operating, working, without stopping even for a moment. That is the panoramic picture of universe: the universe is one, the truth is one. This one universe has the two aspects, back and front – good and bad, right and wrong, et cetera, the dualistic world, but both are working as one. 
+So even though you say *tathāgatagarbha* is the overall picture of human life, which has the buddha-nature and also human illusions together, [still] it is not the doctrine of dualism. So *ālayavijñāna* tries to explain not the doctrine of dualism. It is because that peculiar situation of *ālayavijñāna* is that the pure nature of human consciousness, which is called *unborn* or *imperishable*, is the whole picture of human consciousness. On the other hand, *illusion* is also the whole picture of human consciousness. Illusion is not something by which something is covered. So illusion is the total picture of human life. On the other hand, the pure nature of consciousness is also the total picture of human life. Because *tathāgatagarbha* is, just like I mention often, one piece of paper with two aspects, back and front. And also the one piece of paper is constantly operating, working, without stopping even for a moment. That is the panoramic picture of universe: the universe is one, the truth is one. This one universe has the two aspects, back and front – good and bad, right and wrong, et cetera, the dualistic world, but both are working as one. 
 
 So, in the process of total functioning, total working, at that time you can see the front in a moment. In that time, front occupies the whole piece of paper. So the front *is* one piece of paper. The front is not *part* of a piece of paper in relation to the back: that is already our consciousness, discriminating mind, thinking that way. But in the process of total working, there is nothing to stop it. So when you see the front, that’s it. There is no chance to think of the back. So you have to fit into the front; otherwise, you miss the train. Because time is moving, and also the working in the human world is in the stream of time. So if you analyze, you miss the train. So if you see the front, that is the train you have to get on. Anyway, get on – right on. So the front is not the certain particular situation in relation to back. The front is total life. 
 
 That is the idea of *tathāgatagarbha*. 
 
-So *ālāyavijñāna* tries to explain that kind of the *tathāgatagarbha* we can believe in. A little bit logically, we try to explain. If you say *ālāyavijñāna*, regarded as *tathāgatagarbha*, this term uses *vijñāna*; *vijñāna* is human consciousness. So very naturally, *ālāyavijñāna* is the term which we try to pull closely the *tathāgatagarbha* into our life, subjectively; or more [awakening]. So, *ālāyavijñāna* is a term [which is] pretty subjective and more awakening, because there is a *vijñāna*. So *ālāyavijñāna*. 
+So *ālayavijñāna* tries to explain that kind of the *tathāgatagarbha* we can believe in. A little bit logically, we try to explain. If you say *ālayavijñāna*, regarded as *tathāgatagarbha*, this term uses *vijñāna*; *vijñāna* is human consciousness. So very naturally, *ālayavijñāna* is the term which we try to pull closely the *tathāgatagarbha* into our life, subjectively; or more [awakening]. So, *ālayavijñāna* is a term [which is] pretty subjective and more awakening, because there is a *vijñāna*. So *ālayavijñāna*. 
 
 So very naturally, our consciousness, so-called *vijñāna*, regarded as *ālaya*, which is the foundation of human life, [or the] pre-foundation of human life. That foundation of human life is that which the truth is covered with delusion. That is the foundation of human consciousness. 
 
@@ -108,9 +108,9 @@ So if you see the mind is very kind and compassionate, that is, we don’t know 
 
 > This Consciousness has two aspects which embrace all states of existence and create all states of existence. [They are: (a) the aspect of enlightenment, and (b) the aspect of nonenlightenment.]
 
-Because this consciousness, *ālāyavijñāna*, is completely the foundation, the ground for our life. So on this ground, many beings exist simultaneously. On the other hand, it is not always passive – it’s creating, constantly; all sentient beings. So on the ground, in the foundation of human life, there are all sentient beings. Simultaneously, all sentient beings are created, constantly. Produced. 
+Because this consciousness, *ālayavijñāna*, is completely the foundation, the ground for our life. So on this ground, many beings exist simultaneously. On the other hand, it is not always passive – it’s creating, constantly; all sentient beings. So on the ground, in the foundation of human life, there are all sentient beings. Simultaneously, all sentient beings are created, constantly. Produced. 
 
-So that is the panoramic picture of the foundation of human consciousness, so-called *ālāyavijñāna*. And then if you look at that foundation, very naturally it is characterized by two aspects, that is *enlightenment* and *non-enlightenment*. Because in terms of enlightenment, mind is very kind, compassionate. Even though you don’t know why you are compassionate or kind, immediately you can do it, you can be kind. On the other hand, you don’t know why you are brutal or unkind or violent, but you do [those], always. So very naturally, there are two kinds of things [that] come up, two kinds of characteristic of foundation of human life. 
+So that is the panoramic picture of the foundation of human consciousness, so-called *ālayavijñāna*. And then if you look at that foundation, very naturally it is characterized by two aspects, that is *enlightenment* and *non-enlightenment*. Because in terms of enlightenment, mind is very kind, compassionate. Even though you don’t know why you are compassionate or kind, immediately you can do it, you can be kind. On the other hand, you don’t know why you are brutal or unkind or violent, but you do [those], always. So very naturally, there are two kinds of things [that] come up, two kinds of characteristic of foundation of human life. 
 
 So, the enlightenment and non-enlightenment are merged together. Very naturally, if you see one aspect of the mind, so-called not-enlightenment – in other words, you are very violent – if you look at yourself, how brutal you are, how unkind you are, at that time it is a negative understanding of human life. But within the negative expression of human life, there is a positive aspect of human life which is always working, by which negative expression of life comes into existence. In other words, if I say “I am a bad boy,” simultaneously within that negative expression, so-called *bad boy*, simultaneously *good boy* [is] working within the bad boy. In other words, bad boy contains good boy. 
 
@@ -128,11 +128,11 @@ If you see the unenlightened aspect of human life through and through and deeply
 
 So that’s why, if you really deeply taste the unenlightened aspect of human life, that is the first step to get into the enlightened aspect of the world, so-called *bodhi-mind*. In the technical term, in the next section it is called *essence of mind*, but I don’t know if *essence of mind* is the right translation. Professor Abe translated it as *acquired enlightenment*. And the other term, in relation to *acquired enlightenment*, is *original enlightenment*. Well, next time I would like to explain this, *original enlightenment* and *acquired enlightenment*.
 
-Today, we have understood the characteristic of *ālāyavijñāna*, which has two characteristics, the enlightened aspect and non-enlightened aspect. That is *ālāyavijñāna*. So, from this point, we are living at the intersection of enlightenment and non-enlightenment. 
+Today, we have understood the characteristic of *ālayavijñāna*, which has two characteristics, the enlightened aspect and non-enlightened aspect. That is *ālayavijñāna*. So, from this point, we are living at the intersection of enlightenment and non-enlightenment. 
 
 So, if you see enlightenment very deeply, you [are] an enlightened person. And on the other hand, if you see deeply the unenlightened aspect of human life, it is also the implication of bodhi-mind; the implication of stepping inside... to nirvana, or the enlightened world. That’s why bodhi-mind is important for us, awakening is important for us. 
 
-That’s all I have to say today. So, *ālāyavijñāna* is the term [or] expression of *tathāgatagarbha* which is more subjective and more awakening; closely related with actual human life, how *tathāgatagarbha* works. At that time, we have to research what *tathāgatagarbha* is. 
+That’s all I have to say today. So, *ālayavijñāna* is the term [or] expression of *tathāgatagarbha* which is more subjective and more awakening; closely related with actual human life, how *tathāgatagarbha* works. At that time, we have to research what *tathāgatagarbha* is. 
 
 At that time, tathāgatagarbha is ... 
 
@@ -244,7 +244,7 @@ The truth “diffuses harmoniously with samsaric world”. Do you understand tha
 
 **Katagiri Roshi:** Yes, merging the difference and the unity, that is exactly same as this. But in the *Sandokai* it’s emphasizing strongly just the fusing aspect, the aspect of unity. Okay? But this discourse always mentions the panoramic picture of fusing and diffuse. Fuse and diffuse, fuse and diffuse – like this. Come together, separate, comes together, separate. It’s one, but it’s not one, two. Something like that. Delusion seems to be separate from the pure nature, but it’s not separate, it’s contained within the pure nature. Just like [someone] said, you know: the gas is expanded all over, but it’s not disappeared, it’s still there. 
 
-Alright. That is so-called *tathāgatagarbha*, the meaning of *tathāgatagarbha*. And the storehouse consciousness, which is the foundation of all mind, of all life. That is called *storehouse consciousness*, *ālāyavijñāna*.
+Alright. That is so-called *tathāgatagarbha*, the meaning of *tathāgatagarbha*. And the storehouse consciousness, which is the foundation of all mind, of all life. That is called *storehouse consciousness*, *ālayavijñāna*.
 
 So it’s not the dualistic. Is that alright? Do you understand? It is not the doctrine of the dualistic. Dualistic is clearly to separate something. A never is B, you know; A never accepts B. A is not B, constantly. Alright?
 
@@ -280,7 +280,7 @@ Okay. So next, “A”, page 37, “The Aspect of Enlightenment”...
 
 **Same person:** The term “storehouse”, I don’t understand why that term is used to express the concept of ... the foundation of existence in the phenomenal world. 
 
-**Katagiri Roshi:** Well, that is tradition, and the development of Buddhist teaching. Before this book was established, there was another teaching, so-called *Vijñānavāda*, the *Discourse on Merely Consciousness*. That *Discourse on Merely Consciousness* uses this term *ālāyavijñāna* as a foundation of human consciousness; that is [the] eighth consciousness, that we call *ālāyavijñāna*. That’s why this discourse that uses that term. 
+**Katagiri Roshi:** Well, that is tradition, and the development of Buddhist teaching. Before this book was established, there was another teaching, so-called *Vijñānavāda*, the *Discourse on Merely Consciousness*. That *Discourse on Merely Consciousness* uses this term *ālayavijñāna* as a foundation of human consciousness; that is [the] eighth consciousness, that we call *ālayavijñāna*. That’s why this discourse that uses that term. 
 
 But *alaya* means kind of “holy” – so “holy” consciousness. But “holy consciousness” doesn’t mean it’s always holy. *[He chuckles.]* 
 
@@ -298,7 +298,7 @@ But *alaya* means kind of “holy” – so “holy” consciousness. But “hol
 
 **Katagiri Roshi:** Sure! Yes. *Many* seeds. 
 
-**Someone:** And then the whole concept of *ālāyavijñāna*, [...] we talked about [...] how that is different from the absolute order, or truth?
+**Someone:** And then the whole concept of *ālayavijñāna*, [...] we talked about [...] how that is different from the absolute order, or truth?
 
 **Katagiri Roshi:** Truth. Truth is more the abstract, metaphysical term. 
 
@@ -310,11 +310,11 @@ But *alaya* means kind of “holy” – so “holy” consciousness. But “hol
 
 **Katagiri Roshi:** Yes. At that time, it is called “the intrinsic pure nature of the mind”, et cetera. Or according to this, “the mind in terms of truth”. Something like that. 
 
-And also it must be more closely subjective and awakening. At that time it is called *ālāyavijñāna*. “Vijnana” means consciousness – “alaya” consciousness, storehouse consciousness. 
+And also it must be more closely subjective and awakening. At that time it is called *ālayavijñāna*. “Vijnana” means consciousness – “alaya” consciousness, storehouse consciousness. 
 
 **Someone:** So by connecting that to ourselves, it’s subjective, that gives people more hope?
 
-**Katagiri Roshi:** Hope? Yes. The concept of “ālāyavijñāna” gives some more hope, more deep understanding of the structure of the foundation of [human] being. 
+**Katagiri Roshi:** Hope? Yes. The concept of “ālayavijñāna” gives some more hope, more deep understanding of the structure of the foundation of [human] being. 
 
 In other words, it lets you be free, anyway. Free from any particular idea – “bad boy” or “good boy”. Alright?
 

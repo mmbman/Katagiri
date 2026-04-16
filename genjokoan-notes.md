@@ -181,7 +181,7 @@ growing when we despise them.”
 
 > [TC] As a fish travels through water, there is no bound to the water no matter how far it goes; as a bird flies through the sky, there’s no bound to the sky no matter how far it flies. While this is so, the fish and birds have never been apart from the water and the sky—it’s just that when the need is large the use is large, and when the requirement is small the use is small. In this way, though the bounds are unfailingly reached everywhere and tread upon in every single place, the bird would instantly die if it left the sky and the fish would instantly die if it left the water. Obviously, water is life; obviously the sky is life. There is bird being life. There is fish being life. There is life being bird, there is life being fish. There must be progress beyond this—there is cultivation and realization, the existence of the living one being like this.
 
-- [“*The Awakening of Faith* – Talk 13: Tathāgatagarbha & Ālāyavijñāna”](1984-05-24-Awakening-of-Faith-Talk-13): these lines come up in discussion of *shi-myo* or “thusness”, ālāyavijñāna and tathāgatagarbha.
+- [“*The Awakening of Faith* – Talk 13: Tathāgatagarbha & Ālayavijñāna”](1984-05-24-Awakening-of-Faith-Talk-13): these lines come up in discussion of *shi-myo* or “thusness”, ālayavijñāna and tathāgatagarbha.
 
 ##### 10
 

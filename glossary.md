@@ -59,7 +59,7 @@ External links:
 
 - [Wikipedia: Āgama (Buddhism)](https://en.wikipedia.org/wiki/Āgama_(Buddhism))
 
-## Alayavijñāna
+## Ālayavijñāna
 
 ## Ānanda
 

@@ -20,9 +20,9 @@ This series of transcripts is in draft stage.
 - [Talk 8](1984-05-11-Awakening-of-Faith-Talk-8)
 - [Talk 9: Two Kinds of Nowness](1984-05-14-Awakening-of-Faith-Talk-9)
 - [Talk 10: Time and Ignorance](1984-05-16-Awakening-of-Faith-Talk-10)
-- [Talk 11: Ālāyavijñāna and Tathāgatagarbha](1984-05-18-Awakening-of-Faith-Talk-11)
+- [Talk 11: Ālayavijñāna and Tathāgatagarbha](1984-05-18-Awakening-of-Faith-Talk-11)
 - [Talk 12: Tathāgatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
-- [Talk 13: Tathāgatagarbha, Ālāyavijñāna](1984-05-24-Awakening-of-Faith-Talk-13)
+- [Talk 13: Tathāgatagarbha, Ālayavijñāna](1984-05-24-Awakening-of-Faith-Talk-13)
 - *Talk 14 is missing*
 
 ###### Series 2
