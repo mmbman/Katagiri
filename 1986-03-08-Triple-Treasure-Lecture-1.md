@@ -141,7 +141,7 @@ And then, *response*. At that time, response comes from the whole universe, spac
 
 In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 
-That is called *dōkō*; the *dōkō* of *kannō-dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
+That is called *dōkō*; the *dōkō* of *kannō-dōkō* (感應道交). *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 
 When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 

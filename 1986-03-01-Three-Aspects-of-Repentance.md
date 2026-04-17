@@ -173,7 +173,7 @@ When you do this, all things become alive. You can make your life come alive. Ev
 
 That is the poem. It’s a very beautiful one.
 
-The third condition is *ritual*. Ritual is attaining *kannō-dōkō*, which means *interacting communion of appearance and response*. 
+The third condition is *ritual*. Ritual is attaining *kannō-dōkō* (感應道交), which means *interacting communion of appearance and response*. 
 
 Through the poem you can see this. Ritual is constantly painting a portrait of your life; communicating and trying to have interacting communion between you and the universe. Not you and something small; the universe. This is ritual. That’s why without ritual, you cannot do *anything*.
 
