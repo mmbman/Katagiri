@@ -123,7 +123,7 @@ If so, what is taking refuge? What is the point? How can we realize, how can we 
 
 > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 
-Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*).
+Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
 
 Appeal means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you, constantly, for help. 
 
@@ -141,7 +141,7 @@ And then, *response*. At that time, response comes from the whole universe, spac
 
 In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 
-That is called *dōkō*; the *dōkō* of *kannō-dōkō* (感應道交). *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
+That is called *dōkō*, of *kannō-dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 
 When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 
