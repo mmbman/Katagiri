@@ -14,7 +14,7 @@ fontsize: 12pt
 ---
 ```{=typst}
 //#import "@preview/hydra:0.6.0": hydra
-#set document(title: [Katagiri Roshi’s Teachings on _Fukanzazengi_], author: "Kikan Michael Howard, Dainin Katagiri, Eihei Dōgen", description: [Commentary © 2026 Kikan Michael Howard. Katagiri Roshi’s talks © Minnesota Zen Meditation Center.])
+#set document(title: [Making Arrangement: Katagiri Roshi’s Teachings on _Fukanzazengi_], author: "Kikan Michael Howard, Dainin Katagiri, Eihei Dōgen", description: [Commentary © 2026 Kikan Michael Howard. Katagiri Roshi’s talks © Minnesota Zen Meditation Center.])
 
 //#set smartquote(enabled: false)
 
@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6]
+  #text(size: 1.2em)[Draft Version 0.6.2]
   
   #datetime.today().display()
   
@@ -46,7 +46,7 @@ fontsize: 12pt
   header: context {
     set text(size: 11pt)
     h(1fr) 
-    [_Katagiri Roshi’s Teachings on Fukanzazengi_]
+    [_Making Arrangement: Katagiri Roshi’s Teachings on Fukanzazengi_]
     h(1fr) 
   }
 )
@@ -87,7 +87,7 @@ fontsize: 12pt
 # Introduction 
 
 Zen Master Dōgen’s *Fukanzazengi* (“Universal Recommendation for Zazen”) is probably the most fundamental text of Sōtō Zen Buddhism. Composed by Eihei Dōgen in 13th century Japan, written in Classical Chinese, it explains both the *how* and the *why* of Zen meditation. Traditionally this short text is recited every evening during *sesshin* (Zen meditation retreat), but it has meaning for practitioners in all areas of life – hence “*Universal* Recommendation.”
-
+ 
 Dainin Katagiri Roshi, the founder of Sōtō Zen in Minnesota, worked for decades to bring Dōgen Zenji’s teachings to English-speaking Americans, giving hundreds of dharma talks at [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html). In this document, I go through *Fukanzazengi* line-by-line and attempt to bring together Katagiri Roshi’s teachings on each part of the text, drawn from many of his different talks over the years from 1979 to 1989.
 
 This is a work in progress. I will be updating this document as I continue to transcribe talks and find additional references, and perhaps some day we might even have access to additional talks that we don’t have access to today. Nevertheless, after six or so years of slow but steady work on transcribing Katagiri Roshi’s talks, there is a solid basis to begin this project. 
@@ -337,13 +337,13 @@ And what is *taking refuge* in Buddha, dharma, and sangha? Katagiri Roshi says:
 >
 > > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 > 
-> Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*).
+> Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
 
-So taking refuge in the the Triple Treasure is “interactive appeal and response with the universe” (*kannō-dōkō*). Katagiri Roshi says:
+So taking refuge in the Triple Treasure is “interactive appeal and response with the universe” (*kannō-dōkō*). Katagiri Roshi says:
 
 > In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 > 
-> That is called *dōkō*; the *dōkō* of *kannō-dōkō*. *Kan* means “appeal.” The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
+> That is called *dōkō*, of *kannō-dōkō*. *Kan* means “appeal.” The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 > 
 > When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 > 
@@ -383,17 +383,31 @@ But *total personality* is really not something abstract and separate from our d
 >
 > – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2” (June 10, 1979) at 34:20](https://katagiritranscripts.net/1979-06-10-Fukanzazengi-Talk-2#3420).
 
-So *total personality* is *buddha-nature*, but it is also *karma*: our ordinary, day-to-day lives, sometimes called “karmic life.” But our ordinary lives are not so ordinary.
+So the “double face” of *total personality* is that it is *buddha-nature*, but simultaneously it is also *karma*: our ordinary, day-to-day lives, sometimes called “karmic life.” Another way of saying this is that karma *is* buddha-nature, and buddha-nature is karma. For many people, this may be surprising to hear, because it is considerably different from how karma is usually understood. 
 
-Katagiri Roshi says that “total personality has a double face”: in terms of the Yogachara teaching of Mahayana Buddhism, that double face is called *ālāyavijñāna* and *tathāgatagarbha*. *Ālāyavijñāna* means “storehouse consciousness” or *karmic* consciousness. *Tathāgatagarbha* has the same meaning as *buddha-nature*. *Tathāgata* is another word for *buddha*, and *garbha* literally means “womb.” *Tathāgata* also implies “suchness”: it means something like “thus coming and going.” We could  think of *tathāgatagarbha* as “the origin of suchness.”
+In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this issue. In the introduction to the transcripts, I attempt to summarize what he said:
 
-In Mahayana Buddhism *ālāyavijñāna* and *tathāgatagarbha* are two aspects of the same thing. According to Katagiri Roshi, they are like a piece of paper with two sides. Our practice in Zen is to deeply taste this *ālāyavijñāna* – that is, basically, *karma* – by being one with it. And in a sense, in that way we turn it over to see its other aspect: *tathāgatagarbha*, the world of Buddha. This world is totally free and all-inclusive: “perfect and all-pervading.” This is, as Katagiri Roshi says, “the origin of the Way.”
+> The concept of karma is inextricably entwined with Buddhism itself. However, we should be careful to understand what Katagiri Roshi means by *karma*. Karma is not merely *action*, nor *cause and effect*; nor is it some kind of force that locks us into a certain destiny. According to Katagiri Roshi, karma is great energy that allows us to live, to relate to people and the world, and to move freely into the future.
+>
+> – From the introduction by Kikan Michael Howard to [Katagiri Roshi’s talks on *Karma*](https://katagiritranscripts.net/karma).
 
-All this may seem complicated. The relationship between *ālāyavijñāna* and *tathāgatagarbha* is a basic and deep topic in Mahayana Buddhism which Katagiri Roshi discusses often, notably in his talks on [*Genjōkōan*](https://katagiritranscripts.net/genjokoan) and on [*The Awakening of Faith*](https://katagiritranscripts.net/awakening-of-faith). So why do we mention it? Because this is the same relationship we see in *Fukanzazengi.* “The origin of the Way is perfect and all-pervading” is *tathāgatagarbha*. The “flip side” that’s coming up is *ālāyavijñāna*. 
+Overall, what this means is that our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
+
+---
+
+Why all the confusion around the word *karma*? It is partly because the word *karma* actually pre-dates Buddhism, and has a variety of meanings in different religious traditions. Plainly speaking, much of our common understanding of karma is coming from Hinduism or Brahmanism, not from Buddhism. 
+
+In fact, arguably, the understanding of the word *karma* is *so* confused, that in about the 4th century in India, in the development of the Yogachara teaching of Mahayana Buddhism, they came up with a new word to use instead. That word is *ālayavijñāna*, which means “storehouse consciousness.” This is a big topic, but for the moment, let’s simply understand that *ālayavijñāna* means basically the same thing as *karma*, only without some of the historical baggage. 
+
+And even earlier than that, Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. *Tathāgata* is another word for *buddha*, and *garbha* literally means “womb.” *Tathāgata* also implies “suchness”: it means something like “thus coming and going.” So we could  think of *tathāgatagarbha* as “the origin of suchness.”
+
+In Zen, *ālayavijñāna* and *tathāgatagarbha* are considered to be two aspects of the same thing. According to Katagiri Roshi, they are like a piece of paper with two sides. This means exactly the same thing as “karma is buddha-nature.”
+
+The relationship between *ālayavijñāna* and *tathāgatagarbha* is a deep topic in Mahayana Buddhism which Katagiri Roshi discusses often, notably in his talks on [*Genjōkōan*](https://katagiritranscripts.net/genjokoan) and on [*The Awakening of Faith*](https://katagiritranscripts.net/awakening-of-faith). These terms will come up frequently later on, so we introduce them now.
 
 --- 
 
-But practically, what does it mean to sit down and taste this *total personality* through *wholeheartedness*? Continuing his discussion of “interactive appeal and response with the universe” (*kannō-dōkō*), Katagiri Roshi says: 
+But practically speaking, what does it mean to sit down in the midst of this *total personality* through *wholeheartedness*? Continuing his discussion of “interactive appeal and response with the universe” (*kannō-dōkō*), Katagiri Roshi says: 
 
 > The *Saddharma Pundarika Sutra* (the *Lotus Sutra*) [talks about this]. If you read this just on the surface, it is kind of mysterious, but if you consider it deeply, it is very true. It says:
 > 
@@ -413,17 +427,17 @@ It might seem surprising for Avalokiteshvara to appear in a discussion of Zen me
 
 If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism, or even theology. Katagiri Roshi often talks about religious practice, even “religious zazen,” but for him the word “religious” usually means something very close to “nondualistic.” In other words, “religious” here means basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is “real” zazen – which means not clinging to ideas.
 
-Yet we quickly get into discussions about whether Avalokiteshvara is real entity or not. Katagiri Roshi says:
+Yet we quickly get into discussions about whether Avalokiteshvara is a real entity or not. Katagiri Roshi says:
 
 > Who is Avalokiteshvara? *You*. Us. Exactly this body: *this is* Avalokiteshvara. 
 > 
-> Who creates this Avalokiteshvara? It doesn’t matter whether this Avalokiteshvara is a real, existing being or not. It doesn’t matter. This is [that] Avalokiteshvara is exactly you, all of you! 
+> Who creates this Avalokiteshvara? It doesn’t matter whether this Avalokiteshvara is a real, existing being or not. It doesn’t matter. This is [that] Avalokiteshvara is exactly *you*, all of you! 
 > 
 > – From [“*Kokyō*: The Ancient Mirror – Talk 2” (October 19, 1986) at 27:13](https://katagiritranscripts.net/1986-10-19-Kokyo-Talk-2#2713)
 
 --- 
 
-So to study the Way is to take refuge in Buddha, dharma, and sangha, and to turn karma into Buddha’s world. As we recite at the beginning of the Full Moon Precepts Ceremony:
+So to study the Way is to take refuge in Buddha, dharma, and sangha. As we recite at the beginning of the Full Moon Precepts Ceremony:
 
 > Taking refuge is to return home, arousing a fresh and vivid mind, openly and enthusiastically seeking for perfect peace. Even though body and mind are subject to birth, change and death, this moment of returning home offers the opportunity for the continuous practice of Buddha nature, the ripening of the sweet milk of the long river. 
 
@@ -431,9 +445,13 @@ This refers to the last line of Dōgen Zenji’s *Genjōkōan*:
 
 > The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.
   
-“Making manifest the great earth’s goldenness” is our practice. “The long river” is our life: not just our limited, personal life, but all life, stretching from beginningless past to endless future.
+“Making manifest the great earth’s goldenness” is our practice. This is to realize buddha-nature or *tathāgatagarbha* in our lives.
 
-We’ll return to this topic in the last chapter, where we discuss “the treasure store.”
+“The long river” is our life: not just our limited, personal life, but all life, stretching from beginningless past to endless future. This is *karma*, or *ālayavijñāna*. And through our practice, we *ripen* this sweet milk.
+
+Our practice is to deeply taste this *ālayavijñāna* or *karma*, and in that way we turn it over to see its other aspect: *tathāgatagarbha*, the world of Buddha. This world is totally free and all-inclusive: “perfect and all-pervading.” This is, as Katagiri Roshi says, “the origin of the Way.”
+
+We’ll return to this topic often, culminating in the last chapter, where we discuss “the treasure store.”
 
 ```{=typst}
 #pagebreak()
@@ -499,7 +517,7 @@ This is important, so here is another time Katagiri Roshi discussed *shō*, in o
 >
 > This is enlightenment. That’s why Buddha says, “Is there any dharma which the Tathāgata has fully known as ‘the utmost, right and perfect enlightenment’?” This is really pointing to the third enlightenment, which is called *shō*: perfect, right, supreme enlightenment. But if you get *something* at the conscious level, it is not real enlightenment; it is called awareness, or satori, et cetera. Real enlightenment which is called *shō* is nothing you can get in your hand. But, you can *be with it*, always, constantly. 
 >
-> – From [“*Diamond Sutra*, Talk 9: Emptiness” (August 1, 1979)](https://katagiritranscripts.net/1979-08-01-Diamond-Sutra-Emptiness):
+> – From [“*Diamond Sutra*, Talk 9: Emptiness” (August 1, 1979)](https://katagiritranscripts.net/1979-08-01-Diamond-Sutra-Emptiness).
 
 “Be with it” is the practice. Or sometimes Katagiri Roshi says “be right there,” or “right now, right here,” or “be right on.” We’ll discuss this more in the next section on the *dharma vehicle*.
 
@@ -520,6 +538,10 @@ About this, Katagiri Roshi says:
 “Practice and realization are identical” means there is no thing called “realization” that you (or anyone) can “have,” separate from ongoing practice. This is one reason why “practice and realization must go endlessly.”
 
 “This is not Dōgen Zenji’s idea” means that fundamentally, Dōgen Zenji didn’t invent something new here. This is just Buddha’s teaching – both the teaching of the historical Buddha and the teaching of the universe. The expression may be refreshed, but the essential point is the same as it has ever been, or ever will be.
+
+--- 
+
+So, to rephrase the question: “How could the Way, the functioning of the universe, depend on practice-realization?” How indeed. That is what we will continue to explore in the following chapters.
 
 ```{=typst}
 #pagebreak()
@@ -1189,7 +1211,7 @@ A danger here is that even when we realize that awakening and enlightenment are 
 > 
 > **Questioner:** Realizing that it’s ego (is ego)?
 > 
-> **Katagiri Roshi:** Yes; ego is *still* working there! Even though you do zazen and are constantly seeing and feeling who you are, how ego is working very deeply, still ego is working. So that’s why very naturally pride is coming up; it’s very difficult to be patient, or it’s very difficult to be humble. Always there is ego. Even if you see the truth, [...] you attach to it even more, because it’s very beneficial to you. Ego consciousness realizes how beneficial realization of *alayavijñāna* is, and then *attaches* to it. *[He laughs.]* And then *manas* brings that attachment into the six consciousness world. 
+> **Katagiri Roshi:** Yes; ego is *still* working there! Even though you do zazen and are constantly seeing and feeling who you are, how ego is working very deeply, still ego is working. So that’s why very naturally pride is coming up; it’s very difficult to be patient, or it’s very difficult to be humble. Always there is ego. Even if you see the truth, [...] you attach to it even more, because it’s very beneficial to you. Ego consciousness realizes how beneficial realization of *ālayavijñāna* is, and then *attaches* to it. *[He laughs.]* And then *manas* brings that attachment into the six consciousness world. 
 >
 > And then, at that time, manas really forces you to get everyone to believe something you have. That’s why, if you believe something religiously, you’re always forcing people, in many ways: “You should believe *this*; if you don’t, you are stupid.” *[He laughs.]* 
 >
@@ -1197,9 +1219,9 @@ A danger here is that even when we realize that awakening and enlightenment are 
 >
 > The religious world is more complicated. *[He laughs.]* If you see the religious world, so-called peace and harmony, through *belief*, then you attach strongly. And also the problem is that no one [else] experiences it; everyone behaves in a different way from you. That’s why you strongly believe the truth after practicing hard for many, many years, and then you really attach to your experience, or career, and belief; then finally you put everyone down, because everyone is doing it in a completely different way. So very naturally, if you want to save people, help people, you *force* them. If people don’t follow it, you fight. That always happens. It’s very dangerous. Spiritual fighting is really *miserable*. 
 > 
-> So that’s why we have to realize ego consciousness through meditation, and then you can feel directly who you are. And then, *manas*, ego consciousness, has *alayavijñāna* as [its] object, which means you feel karmic life through realization of manas. You can see.
+> So that’s why we have to realize ego consciousness through meditation, and then you can feel directly who you are. And then, *manas*, ego consciousness, has *ālayavijñāna* as [its] object, which means you feel karmic life through realization of manas. You can see.
 > 
-> How can you take care of your life? Sometimes, there is no way. Katagiri is Katagiri; no matter how long I study Buddhism, still [there is some] smell; I can’t escape it. But, this is Katagiri’s; this is a [way] for Katagiri. *[He laughs.]* But I don’t [mean] it is a goal, what I have to do. Next, I have to go farther, deeper, until realizing *alayavijñāna* as *tathāgatagarbha*. That means completely you have to touch the base of *manas*. You should directly experience stream energy. Directly, okay? In other words, you must be *on there*; you must be right there. Instead of understanding through conceptualization – no. Consciously or unconsciously you always understand in a conceptualized [way], but it is not the experience of alayavijñāna. You have to directly be right there, beyond the world of conceptualization. 
+> How can you take care of your life? Sometimes, there is no way. Katagiri is Katagiri; no matter how long I study Buddhism, still [there is some] smell; I can’t escape it. But, this is Katagiri’s; this is a [way] for Katagiri. *[He laughs.]* But I don’t [mean] it is a goal, what I have to do. Next, I have to go farther, deeper, until realizing *ālayavijñāna* as *tathāgatagarbha*. That means completely you have to touch the base of *manas*. You should directly experience stream energy. Directly, okay? In other words, you must be *on there*; you must be right there. Instead of understanding through conceptualization – no. Consciously or unconsciously you always understand in a conceptualized [way], but it is not the experience of ālayavijñāna. You have to directly be right there, beyond the world of conceptualization. 
 > 
 > Where you should be present is right there. That is the stream of energy, the flow of energy. And then, at that time, this is really *cosmic*. So wherever you may be, all you have to do is just be there, and go. But that is nothing to hurt anything, because in that realm of the world, all sentient beings are included. So [there is] nothing to hurt; if you hurt something, you fall away from it. 
 > 
@@ -1209,7 +1231,7 @@ A danger here is that even when we realize that awakening and enlightenment are 
 > 
 > One more thing. Usually people say, “You should attain enlightenment. You should be aware. If you’re not aware, if you don’t realize, if you don’t attain enlightenment, you are not Buddhist; you are a stupid guy.” *[Laughter]* That is not the Buddhistic way; no. It’s a complete misunderstanding. Alright?
 > 
-> So, please [try to] understand what I have said today again and again. And then, if you understand what I said: [...] even if you attain enlightenment, originally where [are you]? “Originally” means very basically, profoundly, where [are you] standing? Are you standing in the realm of six consciousnesses, or seventh consciousness? Yes, you are... but simultaneously, the very source of your presence is *alayavijñāna*, *tathāgatagarbha*. What is that? That is just the flow of energies, which is very pure and clear. So that is called *you are Buddha*, where all sentient beings exist just like that. 
+> So, please [try to] understand what I have said today again and again. And then, if you understand what I said: [...] even if you attain enlightenment, originally where [are you]? “Originally” means very basically, profoundly, where [are you] standing? Are you standing in the realm of six consciousnesses, or seventh consciousness? Yes, you are... but simultaneously, the very source of your presence is *ālayavijñāna*, *tathāgatagarbha*. What is that? That is just the flow of energies, which is very pure and clear. So that is called *you are Buddha*, where all sentient beings exist just like that. 
 >
 > We should learn that, okay? Basically, profoundly, you are already present there; that’s why even if you attain enlightenment, still there is opportunity or possibility to manifest this. So *how*? That’s why I say, finally, when you do gassho, please do gassho. That’s it!
 > 
@@ -1764,7 +1786,30 @@ Far from withdrawing or escaping from life, “the backward step” is closely r
 
 ## Commentary
 
-One of Dōgen’s most well-known and frequently used terms, coming from his teacher Rujing, is “casting off body and mind,” or *shinjin datsuraku* (身心脱落). Here the expression is slightly different: “Body and mind of themselves will drop away” (身心自然脱落). This happens naturally in response to “taking the backward step that turns the light inward,” which we discussed in the previous chapter.
+One of Dōgen’s most well-known and frequently used terms, coming from his teacher Rujing, is “casting off body and mind,” or *shinjin datsuraku* (身心脱落). Here the expression is used slightly differently: “Body and mind of themselves will drop away.” (身心自然脱落) The reason why it’s phrased that way here is because we have already discussed what you *do* to drop off body and mind: that is “taking the backward step,” discussed in the previous chapter. This dropping away happens naturally in response to “taking the backward step that turns the light inward.” Or actually more direct than something happening in response; it’s like a door swinging open or closed.
+
+A common problem is assuming that we’re trying to get body and mind to drop away permanently. This could be seen as alarming! It’s not what is meant. 
+
+We need to understand this line as a unit: “body and mind of themselves will drop away, and your original face will manifest.” There are basically two ways of seeing the situation: seeing it as your original body and mind, and seeing it as your original face, the total flow working of the universe. Here our perspective is just switching between the two. By “taking the backward step”, our perspective of individual body and mind “drops away” “of itself,” and we see the other perspective.
+
+What is that like?  
+
+- put the bathtub example here
+- very simple, relief. BUT - this is where the “partition” comes in
+
+Possibly here use the classic young woman/crone image?) Is the total picture here your body and mind, or is it your original face? It’s not one or the other. The “thin partition” that Katagiri Roshi talks about is something more or less like this. 
+
+
+Put another way: when you are engaged in an activity in a full-body way, you can’t be consciously managing your body and mind. There isn’t time for that! For example if you’re playing the violin in the concert. You train hard for years, so that when the moment comes, you can just play, and then just playing manifests itself without so much of your conscious involvement. But that playing that involves *everything*: - here include the quote about playing with all beings. (THis is good!)
+
+Or the example of (American) football. If you’re on the football field, if you are thinking about what your body and mind are doing, rather than the total situation and where the ball is going, you are going to get *hurt*. It’s what KR calls an urgent situation or an “emergency”: you have to play football *right now*.
+
+This isn’t so different from peoples experience. Most people have had some kind of “flow experience.” This is a taste of what “dropping off body and mind” means. To make this clear, KR often refers to the book on “Flow,” which was originally called ---, but in it’s updated version is today called “Flow: ---,” and is a well-known bestseller. 
+
+The difference between zazen and playing the violin or playing football or doing rock climbing is that zazen is in a sense more basic, or perhaps more *universal*. There are no particular objects or rules that you are working with, you are just sitting with *everything.* But here, we at least give you a *form* to work with: the form of sitting meditation.
+
+
+
 
 
 “Body and mind of themselves will drop away” is extensively discussed in the Katagiri Roshi's [series of talks on *Fukanzazengi*](https://katagiritranscripts.net/fukanzazengi). Particularly see the beginning of [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4”](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4): “In shikantaza, all delusions drop off from the first. That is dropping off body and mind, body and mind dropping off. That is zazen itself.” And also: “Dōgen Zenji says, ‘Zazen is dropping off body and mind.’ Remember this. In your whole life, you should remember: ‘Zazen is dropping off body and mind.’ It means all delusions drop off.” 
@@ -1781,10 +1826,10 @@ The specific term *shinjin datsuraku* is discussed in  [“Zazen: Dropping Off B
 
 On “ah”:
 
-Let me say [more about] this. What do [we] mean by “dropping off body and mind the moment when you do zazen, the moment when you devote yourself in zazen”? Let me say it like this. 
-
-[...] Let’s imagine that you [are getting into] a hot bath in the cold weather. In the rigors of Minnesota winter, your body becomes very cold. After that, you put your body right in the middle of a hot bath, okay? The moment when you put your body and mind in the hot bathtub, what do you say?
-
+> Let me say [more about] this. What do [we] mean by “dropping off body and mind the moment when you do zazen, the moment when you devote yourself in zazen”? Let me say it like this. 
+> 
+> [...] Let’s imagine that you [are getting into] a hot bath in the cold weather. In the rigors of Minnesota winter, your body becomes very cold. After that, you put your body right in the middle of a hot bath, okay? The moment when you put your body and mind in the hot bathtub, what do you say?
+> 
 > **Several people:** “Ah.”
 > 
 > **Katagiri Roshi:** “Ah!” *[Laughter.]* 
@@ -2062,9 +2107,9 @@ This is also close to the translation used by Confluence Zen Center ([external l
 
 ## Commentary
 
-In Chapters 1 through 8, we discussed *why* we should do zazen, and in Chapters 9 through 11 we discussed *what* that means. In reality, of course, there is considerable overlap in these areas; we’ve really been discussing *what* zazen is and *why* to do it all along, and will keep doing so. Nevertheless, we could say in a broad sense that in Chapters 12 through 25, we now turn to *how* to do zazen. This is the part that includes details of the form of sitting Zen meditation. 
+In Chapters 1 through 8, we discussed *why* we should do zazen, and in Chapters 9 through 11 we discussed *what* that means. In reality, of course, there is considerable overlap in these areas; we’ve really been discussing all along *what* zazen is and *why* to do it, and we will keep discussing it. Still, we can say in a broad sense that in Chapters 12 through 25 we now turn to *how* to do zazen. This is the part that includes details of the form of sitting Zen meditation. 
 
-But before we step into the details, we actually need to back up and look at the big picture once again, because right away we encounter an important term: *sanzen* (參禪, or 参禅 in simplified Chinese), which is often translated as “Zen practice.” So the opening of this section is usually translated as something like, “For the practice of Zen.” But *sanzen* means something deeper than we may hear from the English words “Zen practice.”
+But before we step into the details, we actually need to back up and look at the big picture once again, because right away we encounter an important term: *sanzen* (參禪, or 参禅 in simplified Chinese), which is often translated as “Zen practice.” The opening of this section is usually translated as something like, “For the practice of Zen.” But *sanzen* means something deeper than we may hear from the English words “Zen practice.”
 
 ---
 
@@ -2227,7 +2272,7 @@ We introduced total personality as an important concept in Chapter 1, but here K
 > 
 > You have to believe this. Well – believe it or not, your life is really there.
 > 
-> So that is [that] we are called *buddha-nature*. And also, what is buddha-nature? If you want to know psychologically, that is called *alayavijñāna* in Buddhist psychology. Or sometimes, primitive Buddhism says that is *karma*. 
+> So that is [that] we are called *buddha-nature*. And also, what is buddha-nature? If you want to know psychologically, that is called *ālayavijñāna* in Buddhist psychology. Or sometimes, primitive Buddhism says that is *karma*. 
 > 
 > Karma is completely beyond good or bad, right and wrong, but simultaneously karma is something which is very powerful to carry your life in the samsaric world. Anyway, if you want to know karma, you have to go back to the beginningless past, and to the endless future. Finally, there is no answer [to what karma is], but karma is with you. How do we know? In your daily living, you can know. 
 > 
