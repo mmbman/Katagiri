@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.2]
+  #text(size: 1.2em)[Draft Version 0.6.3]
   
   #datetime.today().display()
   
@@ -337,19 +337,31 @@ And what is *taking refuge* in Buddha, dharma, and sangha? Katagiri Roshi says:
 >
 > > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 > 
-> Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
+> Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
 
-So taking refuge in the Triple Treasure is “interactive appeal and response with the universe” (*kannō-dōkō*). Katagiri Roshi says:
+So taking refuge in the Triple Treasure is “interacting communion of appeal and response with the universe” (*kannō-dōkō*). Katagiri Roshi says:
 
 > In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 > 
 > That is called *dōkō*, of *kannō-dōkō*. *Kan* means “appeal.” The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 > 
-> When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
+> – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
+
+It is important to understand that this “appeal and response” with the universe is not about trying to “get” something. Rather, it is about “full communication” with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
+
+> *Satori* (enlightenment) is found in the very simple movement (of wandering in the mountains) which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō-dōkō* (感應道交) in Japanese. 
 > 
+> – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
+
+So, how do we do this? Katagiri Roshi says:
+
+> When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
+>
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
 *Shikan* (只管) here is the same word as in *shikantaza*, “wholehearted sitting.” This is the fundamental practice, here understood in the general sense that we can participate wholeheartedly in *any* activity.
+
+--- 
 
 Put another way, in taking refuge in dharma through the practice of *wholeheartedness*, we connect with the larger sense of ourselves which includes all things, all *phenomena*. Katagiri Roshi says:
 
@@ -407,7 +419,7 @@ The relationship between *ālayavijñāna* and *tathāgatagarbha* is a deep topi
 
 --- 
 
-But practically speaking, what does it mean to sit down in the midst of this *total personality* through *wholeheartedness*? Continuing his discussion of “interactive appeal and response with the universe” (*kannō-dōkō*), Katagiri Roshi says: 
+But practically speaking, what does it mean to sit down in the midst of this *total personality* through *wholeheartedness*? Continuing his discussion of “interacting communion of appeal and response with the universe” (*kannō-dōkō*), Katagiri Roshi says: 
 
 > The *Saddharma Pundarika Sutra* (the *Lotus Sutra*) [talks about this]. If you read this just on the surface, it is kind of mysterious, but if you consider it deeply, it is very true. It says:
 > 
