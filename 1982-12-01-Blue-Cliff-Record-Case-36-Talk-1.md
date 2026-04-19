@@ -65,7 +65,7 @@ At the third stage, if you are completely, entirely drawn in by the mountains, t
 
 When you learn something from the mountains’ life, at that time it’s really something wonderful. Something more than joy, but anyway, joy. Or in Zen, maybe that is called enlightenment; *satori*. 
 
-*Satori* is not something complicated you have to learn. Satori is found in the very simple movement which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō-dōkō* (感應道交) in Japanese. 
+*Satori* is not something complicated you have to learn. *Satori* is found in the very simple movement which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō-dōkō* (感應道交) in Japanese. 
 
 *Kan* means *perception*, literally. Perception means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your whole body, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. So you have to respond, but respond to the mountains with your whole body. 
 

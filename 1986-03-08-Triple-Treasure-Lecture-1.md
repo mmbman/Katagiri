@@ -7,7 +7,7 @@ title: "Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1"
 
 ### Summary
 
-Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is awareness or the universe, *dharma* is the teaching of the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is interactive appeal and response with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations; to do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary bodhisattvas is also discussed, and there is some clarification of what *ritual* means in Buddhism.
+Taking refuge in the Triple Treasure – buddha, dharma, and sangha – is the foundation of the Buddhist Precepts and Buddhist practice. *Buddha* is awareness or the universe, *dharma* is the teaching of the universe, and *sangha* is the community that makes the universe and its teaching alive in their lives. *Taking refuge* is spiritual communion with Buddha, which is “interacting communion of appeal and response” with the universe. We need to awaken to the depth of existence, and transmit that awakening to future generations; to do this, we must accept others’ lives as the content of our lives. The nature of prayer and the meaning of legendary bodhisattvas is also discussed, and there is some clarification of what *ritual* means in Buddhism.
 
 ### Transcript
 
@@ -123,7 +123,7 @@ If so, what is taking refuge? What is the point? How can we realize, how can we 
 
 > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 
-Here it says spiritual communion between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
+Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
 
 Appeal means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you, constantly, for help. 
 
