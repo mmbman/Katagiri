@@ -277,7 +277,7 @@ So, the Zen Master says,
 
 Because the Zen Master knows pretty well that is Emperor Wu’s understanding of Buddhism: the essence of the truth is always somewhere apart from his life. Building up the temples? “Oh, there is merit, Buddha’s merit, there! Buddha and Avalokiteshvara exist there.” And educating the monks? “Oh, I did something good.” Always something good, or merit, or result: always *outside*.
 
-So that’s why the Zen Master said, “Bodhidharma is not Bodhidharma, Bodhidharma is Avalokiteshvara!” The Emperor was very surprised: “Oh, I missed it!” So he immediately tried to send someone to get him back. But the Zen Master said, “Don’t do that, don’t do that.” Because if you do this, you are looking for the truth *outside*. The truth never comes back; never goes away. 
+So that’s why the Zen Master said, “Bodhidharma is not Bodhidharma, Bodhidharma is Avalokiteshvara!” The Emperor was very surprised: “Oh, I missed it!” So he immediately tried to send someone to get him back. But the Zen Master said, “Don’t do that, don’t do that.” Because if you do this, you are [still] looking for the truth *outside*. The truth never comes back; [it] never goes away. 
 
 [This is true] even if you say, “I don’t want the truth.” 
 
