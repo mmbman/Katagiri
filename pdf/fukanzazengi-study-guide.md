@@ -349,7 +349,7 @@ In the talk, Katagiri Roshi vividly describes this appeal in terms of *prayer* �
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
-It is important to understand that this “appeal and response” with the universe is not about trying to “get” something. Rather, it is about “full communication” with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
+It is important to understand that this “appeal and response” with the universe is not about trying to “get” something. Rather, it is about *full communication* with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
 
 > *Satori* (enlightenment) is found in the very simple movement (of wandering in the mountains) which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō-dōkō* (感應道交) in Japanese. 
 > 
@@ -357,9 +357,11 @@ It is important to understand that this “appeal and response” with the unive
 
 It’s also important to understand that *kannō-dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
-This is a key point. The mistake many academic reseachers (among many others) make in trying to analyze *Fukanzazengi* is that – despite what Dogen says, sometimes despite even what they say themselves – they still assume that there must *really* be an individual goal to attain there, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. If you assume this, you will not understand *Fukanzazengi*; it does not make sense when analyzed in that way. 
+This is a key point. The mistake that many academic researchers (and many other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, sometimes despite even what they say themselves – they still assume that there must *really* be an individual goal to attain there, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
-So, how can we experience this total communication? Katagiri Roshi says:
+If you assume that, you will not understand *Fukanzazengi*. It does not make sense when analyzed in that way. 
+
+So what do we assume instead? “Interactive communion of appeal and response” with the universe, or “full communication.” How can we actually experience this *total* communication? Katagiri Roshi says:
 
 > When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 >
@@ -487,7 +489,7 @@ We’ll return to this topic often, culminating in the last chapter, where we di
 
 ## Commentary
 
-“Practice and realization” is a translation of the term *shushō* (修證). *Shushō* is also translated as hyphenated “practice-realization,” for reasons we will see in a moment. Or, some translators say “practice-enlightenment.” Understanding this term is essential for understanding Dōgen Zenji’s teaching, because essentially it *is* Dogen Zenji’s teaching.
+“Practice and realization” is a translation of the term *shushō* (修證). *Shushō* is also translated as hyphenated “practice-realization,” for reasons we will see in a moment. Or, some translators say “practice-enlightenment.” Understanding this term is essential for understanding Dōgen Zenji’s teaching, because essentially it *is* Dōgen Zenji’s teaching.
 
 The translation of *shu* (修) as “practice” seems straightforward, but the translation of *shō* (證) as “realization” is not. It is important not to assume what this “realization” means based only on the English word. Katagiri Roshi gave an entire talk on the subject of *shō*, which begins as follows:
 
@@ -863,7 +865,7 @@ Katagiri Roshi even notes that Dōgen Zenji refers to the *Platform Sutra* as �
 
 First, an explanation: “to see into one’s own nature” is *kenshō* (見性), a term that many Zen students will be familiar with. *Kenshō* is usually understood as “an enlightenment experience,” which isn’t necessarily wrong. Two points here: *kenshō* (見性) is not the same as *shō* (證) or “realization,” which we discussed in Chapter 3: “Practice-Realization.” Instead, *kenshō* is considered to be basically the same as *satori*. 
 
-And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment*, or *satori*. But as we discussed in Chapter 3, this is not the case in Dogen’s Zen. 
+And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment*, or *satori*. But as we discussed in Chapter 3, this is not the case in Dōgen’s Zen. 
 
 But back to the forgery. Katagiri Roshi answers a question about this:
 
@@ -972,9 +974,11 @@ Although it may be helpful to challenge the conventional misconceptions on this 
 >
 > – From [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1” (May 25, 1983) at 30:00](https://katagiritranscripts.net/1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000)
 
-It’s possible that Katagiri Roshi means more than this, but as we mentioned earlier, one reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that the primary point in Dōgen’s Zen is not *enlightenment* (*satori*) at all, it’s *continuous practice*, or *practice-realization*.
+One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that, as we mentioned earlier, the primary point in Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization*. 
 
-Anyway... heeding Katagiri Roshi’s advice, we’ll leave it at that.
+And also: endlessly discussing the practice is not, you know, *doing* the practice.
+
+So... heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
 ```{=typst}
 #pagebreak()
@@ -1009,7 +1013,7 @@ Katagiri Roshi comments on this:
 > 
 > Regardless of whether you understand or not, you should keep your eyes open to how to tune in, because you are Buddha. Because you have to grow that seed of buddha nature. So you have already a great rhythm of music in your heart. Trying to tune into it is our practice. If you don’t, immediately there is a gap. That slight gap is huge, like the gap between heaven and earth. So it is pretty hard to live in peace and harmony.
 > 
-> In the *Shōbōgenzō* Dogen Zenji says that if you wish to understand the seed of buddha nature you should know that it is precisely the causal conditions of time and season. That is a big term; practically speaking it means time and space becomes fresh from moment to moment. It means there is no constant name that can apply to you. Good, bad, whatever. Nothing. Always you are fresh. So you have to live in this state of freshness. That is Buddhist logic.
+> In the *Shōbōgenzō* Dōgen Zenji says that if you wish to understand the seed of buddha nature you should know that it is precisely the causal conditions of time and season. That is a big term; practically speaking it means time and space becomes fresh from moment to moment. It means there is no constant name that can apply to you. Good, bad, whatever. Nothing. Always you are fresh. So you have to live in this state of freshness. That is Buddhist logic.
 >
 > – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
