@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.3]
+  #text(size: 1.2em)[Draft Version 0.6.4]
   
   #datetime.today().display()
   
@@ -337,10 +337,12 @@ And what is *taking refuge* in Buddha, dharma, and sangha? Katagiri Roshi says:
 >
 > > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 > 
-> Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
+> Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means “interacting communion of appeal and response” (*kannō-dōkō*, 感應道交).
 
-So taking refuge in the Triple Treasure is “interacting communion of appeal and response with the universe” (*kannō-dōkō*). Katagiri Roshi says:
+In the talk, Katagiri Roshi vividly describes this appeal in terms of *prayer* – not prayer to an individual entity, but prayer to the whole universe. He continues:
 
+> And then, if you completely feel that spirit of the universe, and appeal for help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. 
+>
 > In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 > 
 > That is called *dōkō*, of *kannō-dōkō*. *Kan* means “appeal.” The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
@@ -353,7 +355,11 @@ It is important to understand that this “appeal and response” with the unive
 > 
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-So, how do we do this? Katagiri Roshi says:
+It’s also important to understand that *kannō-dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
+
+This is a key point. The mistake many academic reseachers (among many others) make in trying to analyze *Fukanzazengi* is that – despite what Dogen says, sometimes despite even what they say themselves – they still assume that there must *really* be an individual goal to attain there, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. If you assume this, you will not understand *Fukanzazengi*; it does not make sense when analyzed in that way. 
+
+So, how can we experience this total communication? Katagiri Roshi says:
 
 > When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 >
@@ -411,7 +417,7 @@ Why all the confusion around the word *karma*? It is partly because the word *ka
 
 In fact, arguably, the understanding of the word *karma* is *so* confused, that in about the 4th century in India, in the development of the Yogachara teaching of Mahayana Buddhism, they came up with a new word to use instead. That word is *ālayavijñāna*, which means “storehouse consciousness.” This is a big topic, but for the moment, let’s simply understand that *ālayavijñāna* means basically the same thing as *karma*, only without some of the historical baggage. 
 
-And even earlier than that, Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. *Tathāgata* is another word for *buddha*, and *garbha* literally means “womb.” *Tathāgata* also implies “suchness”: it means something like “thus coming and going.” So we could  think of *tathāgatagarbha* as “the origin of suchness.”
+And even earlier than that, Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of suchness.”
 
 In Zen, *ālayavijñāna* and *tathāgatagarbha* are considered to be two aspects of the same thing. According to Katagiri Roshi, they are like a piece of paper with two sides. This means exactly the same thing as “karma is buddha-nature.”
 
@@ -857,7 +863,7 @@ Katagiri Roshi even notes that Dōgen Zenji refers to the *Platform Sutra* as �
 
 First, an explanation: “to see into one’s own nature” is *kenshō* (見性), a term that many Zen students will be familiar with. *Kenshō* is usually understood as “an enlightenment experience,” which isn’t necessarily wrong. Two points here: *kenshō* (見性) is not the same as *shō* (證) or “realization,” which we discussed in Chapter 3: “Practice-Realization.” Instead, *kenshō* is considered to be basically the same as *satori*. 
 
-And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is discussed at length in [“*Platform Sutra* – Talk 1,”](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1) and the matter is probably relevant, since *kenshō* is sometimes associated with “sudden enlightenment.” However, it need not concern us too much at the moment. Just remember that often when Katagiri Roshi mentions *satori*, he could equally be referring to *kenshō*.
+And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment*, or *satori*. But as we discussed in Chapter 3, this is not the case in Dogen’s Zen. 
 
 But back to the forgery. Katagiri Roshi answers a question about this:
 
@@ -960,13 +966,15 @@ Katagiri Roshi’s comment:
 
 --- 
 
-Although it may be helpful to challenge the conventional wisdom on this topic, it’s important to note that the debate over “sudden” and “gradual” is not the primary point in Buddhism, and it could even be seen as a bit of a distraction. In another talk, Katagiri Roshi says:
+Although it may be helpful to challenge the conventional misconceptions on this topic, it’s important to note that the debate over “sudden” and “gradual” is not the primary point in Buddhism, and it could even be seen as a distraction. In another talk, Katagiri Roshi says:
 
 > Zen history says Sōtō Zen is “gradual enlightenment,” Rinzai Zen is “sudden enlightenment.” It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much.
 >
 > – From [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1” (May 25, 1983) at 30:00](https://katagiritranscripts.net/1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000)
 
-So... heeding that advice, we’ll leave it at that.
+It’s possible that Katagiri Roshi means more than this, but as we mentioned earlier, one reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that the primary point in Dōgen’s Zen is not *enlightenment* (*satori*) at all, it’s *continuous practice*, or *practice-realization*.
+
+Anyway... heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
 ```{=typst}
 #pagebreak()
@@ -1055,9 +1063,11 @@ One good discussion of this is in a talk on *Blue Cliff Record* Case 51 – wher
 >
 > – From [“*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 2” (January 18, 1984) at 1:06:30](https://katagiritranscripts.net/1984-01-18-Blue-Cliff-Record-Case-51-Talk-2#10630)
 
-This matter of the energy of life coming from the “self” – and here we are not entirely talking about “Big Self” with a capital S – is deep. This is Buddhist psychology, and it is pervasive in Katagiri Roshi’s talks. In particular, in the Yogachara school of Mahayana Buddhism, this relates to the seventh of eight consciousnesses: *manas*, which Katagiri Roshi translates as “ego consciousness.” It’s outside the scope of this presentation, but among the best places to start studying this is in Katagiri Roshi’s series of talks on Dōgen Zenji’s [*Genjōkōan*](https://katagiritranscripts.net/genjokoan), which includes an entire talk on *manas*.
+This matter of the energy of life coming from the “self” – and here we are not entirely talking about “Big Self” with a capital S – is deep. This is Buddhist psychology, and it is pervasive in Katagiri Roshi’s talks. In particular, in the Yogachara school of Mahayana Buddhism, this relates to the seventh of eight consciousnesses: *manas*, which Katagiri Roshi translates as “ego consciousness.” A full discussion of *manas* is beyond the scope of this presentation, but among the best places to start studying this is in Katagiri Roshi’s series of talks on Dōgen Zenji’s [*Genjōkōan*](https://katagiritranscripts.net/genjokoan), which includes an entire talk on *manas*.
 
-“Like” and “dislike” are also part of consciousness, cognition. The specific phrase “like or dislike” appears in perhaps over a hundred of Katagiri Roshi’s talks. We’ll return to how to work with like and dislike, good or bad, et cetera, in Chapter 9: “Take the Backward Step,” Chapter 15: “Have No Design on Becoming a Buddha,” and probably in many other places.
+“Like” and “dislike” are also part of consciousness, cognition. The specific phrase “like or dislike” appears in perhaps over a hundred of Katagiri Roshi’s talks. We should understand that we are not trying to *eliminate* like and dislike, but as Katagiri Roshi says above, to “know its limitation.” In this way, we can work with like and dislike, instead of allowing it to work on *us*. 
+
+We’ll return to how to work with like and dislike, good or bad, et cetera, in Chapter 9: “Take the Backward Step,” Chapter 15: “Have No Design on Becoming a Buddha,” and probably in many other places. 
 
 --- 
 
@@ -1352,6 +1362,12 @@ Katagiri Roshi says:
 > That’s why the more you become a master of something, the more you continue practicing. You can see people like this: the more they become a famous pianist or dancer, the more they’re always practicing, because there is no reason why they have to stay at a certain stage, and showing [that they are] proud of their life. No way; constantly deepening his or her experience of dancer, music, et cetera. 
 >
 > – From [“*Platform Sutra* – Talk 7” (April 24, 1987) at 33:00](https://katagiritranscripts.net/1987-04-24-Platform-Sutra-Talk-7#3300)
+
+But surely a Zen teacher is different from those examples? Right?
+
+> Uh, no. You cannot say that the teacher is always having the Zen exactness and wonderful zazen. No. Even the teacher has to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself as a master, as a teacher. *No way.* Because, even for the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. 
+>
+> – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2” (June 10, 1979) at 1:27:20](https://katagiritranscripts.net/1979-06-10-Fukanzazengi-Talk-2#12720).
 
 ---
 
