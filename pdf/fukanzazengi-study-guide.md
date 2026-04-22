@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.4]
+  #text(size: 1.2em)[Draft Version 0.6.5]
   
   #datetime.today().display()
   
@@ -219,7 +219,7 @@ But what do we mean by “all sentient beings”? This is actually a deep questi
 
 This is what Katagiri Roshi means by “not only on our own territory.” Zazen is not a kind of meditation where we are attempting to cut ourselves off from this world and its difficulties. 
 
-Plainly speaking, this is a different understanding than in some varieties of Buddhism. We will explore this topic in more detail in Chapter 20: “Dullness and Distraction are Struck Aside.”
+Plainly speaking, this is a different understanding than in some varieties of Buddhism. We will explore this topic in more detail as we go on, especially in Chapter 20: “Dullness and Distraction are Struck Aside.”
 
 ---
 
@@ -357,9 +357,9 @@ It is important to understand that this “appeal and response” with the unive
 
 It’s also important to understand that *kannō-dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
-This is a key point. The mistake that many academic researchers (and many other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, sometimes despite even what they say themselves – they still assume that there must *really* be an individual goal to attain there, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
+This is a key point. A mistake that many academic researchers (and many other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that there must *really* be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
-If you assume that, you will not understand *Fukanzazengi*. It does not make sense when analyzed in that way. 
+If you assume that, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
 
 So what do we assume instead? “Interactive communion of appeal and response” with the universe, or “full communication.” How can we actually experience this *total* communication? Katagiri Roshi says:
 
@@ -419,7 +419,7 @@ Why all the confusion around the word *karma*? It is partly because the word *ka
 
 In fact, arguably, the understanding of the word *karma* is *so* confused, that in about the 4th century in India, in the development of the Yogachara teaching of Mahayana Buddhism, they came up with a new word to use instead. That word is *ālayavijñāna*, which means “storehouse consciousness.” This is a big topic, but for the moment, let’s simply understand that *ālayavijñāna* means basically the same thing as *karma*, only without some of the historical baggage. 
 
-And even earlier than that, Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of suchness.”
+And even earlier than that, Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of Buddha,” or “the origin of suchness.”
 
 In Zen, *ālayavijñāna* and *tathāgatagarbha* are considered to be two aspects of the same thing. According to Katagiri Roshi, they are like a piece of paper with two sides. This means exactly the same thing as “karma is buddha-nature.”
 
@@ -467,7 +467,7 @@ This refers to the last line of Dōgen Zenji’s *Genjōkōan*:
   
 “Making manifest the great earth’s goldenness” is our practice. This is to realize buddha-nature or *tathāgatagarbha* in our lives.
 
-“The long river” is our life: not just our limited, personal life, but all life, stretching from beginningless past to endless future. This is *karma*, or *ālayavijñāna*. And through our practice, we *ripen* this sweet milk.
+“The long river” is our life: not just our limited, personal life, but *all* life, stretching from beginningless past to endless future. This is *karma*, or *ālayavijñāna*. And through our practice, we *ripen* this sweet milk.
 
 Our practice is to deeply taste this *ālayavijñāna* or *karma*, and in that way we turn it over to see its other aspect: *tathāgatagarbha*, the world of Buddha. This world is totally free and all-inclusive: “perfect and all-pervading.” This is, as Katagiri Roshi says, “the origin of the Way.”
 
@@ -601,7 +601,7 @@ This relates to the meaning of *dharma vehicle*.
 
 Buddhism, particularly Zen or Mahayana Buddhism, seems rare among religions in the degree to which it is willing to throw its own teachings under a bus to try to point in the direction of real truth. (See, for example, *The Heart Sutra*.) 
 
-But in these lines in *Fukanzazengi*, we don’t seem to be discussing “vehicles” in the sense of different teachings or practices. Here we are discussing the *one* vehicle – the *dharma* vehicle. 
+But in these lines in *Fukanzazengi*, we don’t seem to be discussing “vehicles” in the sense of different teachings or practices. Here we are discussing the *dharma* vehicle. 
 
 --- 
 
@@ -774,13 +774,13 @@ This gets us back into our discussion of *karma*, and the fundamental teaching t
 > 
 > > Therefore the self and environment of sentient being, whole being is not in the least involved in the waxing influences of karma, ...
 > 
-> This is the usual worldly affairs, our karmic life. 
+> ... this is the usual worldly affairs, our karmic life... 
 > 
 > >  ... is not bred by illusory causations, does not come into being naturally, is not practiced or realized through miraculous powers. Were sentient beings, whole being contingent on the power of karma or on causes or on coming into being naturally, then the realization of all saints and the enlightenment of all Buddhas and the eye pupils of buddhas and patriarchs also will be produced in these ways, and they are not. The entire world is completely free of all dusts as object to the self. Right here there is no second person.
 > 
 > “Right here there is no second person”: [that is,] karmic life. How can you be free from karmic life? By realization of the karmic life, you can be free from karmic life. 
 > 
->But what do we mean, “realization of karmic life?” That is still vibration of the mind (i.e., a subtle form of thinking). You have to understand what is karmic life. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says [that] karmic life is exactly Buddha’s world, all sentient [beings,] whole being. That means the whole universe. 
+>But what do we mean, “realization of karmic life?” That is still vibration of the mind (i.e., a subtle form of thinking). You have to understand what karmic life is. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says [that] karmic life is exactly Buddha’s world, all sentient [beings,] whole being. That means the whole universe. 
 > 
 > If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. 
 >
@@ -853,7 +853,7 @@ So although the line “who could believe in a means to brush it clean” might 
 
 ---
 
-Yet, in large part due to the *Platform Sutra*, it is commonly understood that there was a “Northern School” and a “Southern School” in early Zen, and that the Northern School represented “gradual enlightenment,” while the new Southern School represented “sudden enlightenment,” and the Southern School is regarded as superior. 
+Yet, in large part due to the *Platform Sutra*, it is commonly understood that there was a “Northern School” and a “Southern School” in early Zen, and that the Northern School represented “gradual enlightenment,” while the new Southern School represented “sudden enlightenment” – and the Southern School is regarded as superior. 
 
 That is the story that we often hear. However, this does not exactly seem to be Dōgen Zenji’s understanding, nor Katagiri Roshi’s. 
 
@@ -861,11 +861,15 @@ Katagiri Roshi even notes that Dōgen Zenji refers to the *Platform Sutra* as �
 
 > The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this is a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
-> – From *Zen Master Dōgen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, by Yuho Yokoi with Daizen Victoria. This is quoted in [“*Platform Sutra* – Talk 1”](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1).
+> – From *Zen Master Dōgen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, translated by Yuho Yokoi with Daizen Victoria. This is quoted in [“*Platform Sutra* – Talk 1”](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1).
 
-First, an explanation: “to see into one’s own nature” is *kenshō* (見性), a term that many Zen students will be familiar with. *Kenshō* is usually understood as “an enlightenment experience,” which isn’t necessarily wrong. Two points here: *kenshō* (見性) is not the same as *shō* (證) or “realization,” which we discussed in Chapter 3: “Practice-Realization.” Instead, *kenshō* is considered to be basically the same as *satori*. 
+First, an explanation: “to see into one’s own nature” is *kenshō* (見性), a term that many Zen students will recognize. *Kenshō* is usually understood as “an enlightenment experience,” which isn’t necessarily wrong. Two points here: *kenshō* (見性) is not the same as *shō* (證) or “realization,” which we discussed in Chapter 3: “Practice-Realization.” Instead, *kenshō* is considered to be basically the same as *satori*. 
 
-And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment*, or *satori*. But as we discussed in Chapter 3, this is not the case in Dōgen’s Zen. 
+And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” 
+
+Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment* – meaning *satori*, or in this case *kenshō*. But as we discussed in Chapter 3, that is not the goal of Dōgen’s Zen. 
+
+--- 
 
 But back to the forgery. Katagiri Roshi answers a question about this:
 
@@ -879,7 +883,7 @@ But back to the forgery. Katagiri Roshi answers a question about this:
 >
 > – From [“*Platform Sutra* – Talk 1” (March 6, 1987) at 54:25](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1#5425). 
 
-It’s not clear what introduction Katagiri Roshi is referring to above, but “Echū” probably refers to National Teacher Dazheng, Nanyang Huizhong (675-775 CE), an important disciple of the Sixth Ancestor who often appears in kōans and is the source of several literary phrases used by Dōgen. In *Sokushin Zebutsu* (“This Mind Itself Is Buddha”), Dōgen approvingly quotes National Teacher Dazheng as he, among other things, criticizes “folk stories” or “vulgar tales” added to *The Platform Sutra* that “erase” the true meaning of the Sixth Ancestor’s teaching:
+It’s not clear what introduction Katagiri Roshi is referring to above, but “Echū” probably refers to National Teacher Dazheng, Nanyang Huizhong (675-775 CE), a disciple of the Sixth Ancestor who often appears in kōans and is the source of several literary phrases used by Dōgen. In *Sokushin Zebutsu* (“This Mind Itself Is Buddha”), Dōgen approvingly quotes National Teacher Dazheng as he, among other things, criticizes “folk stories” or “vulgar tales” added to *The Platform Sutra* that “erase” the true meaning of the Sixth Ancestor’s teaching:
 
 > “When I was wandering about some time ago, I often encountered this type. These days, they’re particularly flourishing. They gather assemblies of three to five hundred and, gazing up at the Milky Way, tell them, ‘This is the message of the South.’ They
 revise the *Platform Sutra*, mixing in vulgar tales and erasing the sage’s intent, misguiding and confusing later followers. How could it represent the oral instruction? How painful that our tradition is so ruined!”
@@ -890,13 +894,19 @@ It seems that at least in some circles, it has always been understood that the 
 
 --- 
 
-Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. The introduction to McRae’s posthumously released *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism* sums up the general point: 
+Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. Here we learn – to summarize briefly – that the entire notion of a “Northern School” and “Southern School” was basically the invention of one historical person: the monk Shen Hui, who (like National Teacher Dazheng, above) claimed to be a disciple of the Sixth Ancestor, Hui Neng. Shen Hui should not be confused with Shen Hsiu, the alleged author of the “brush it clean” verse. Shen Hui, we learn, essentially weaponized the concept of “sudden enlightenment” as a means to attract religious adherents, and probably invented the “poetry contest” story as a means to that end. So succesful was Shen Hui in presenting his simplified version of Zen, that for hundreds of years the Buddhist establishment essentialy avoided discussing the practice of Zen meditation in public, for fear of being accused of the so-called “gradualist fallacy.” This may be an oversimplification of the story – but perhaps not by much. 
+
+From this perspective, *Fukanzazengi* could be seen as Dōgen’s Zenji’s effort, about five hundred years later, to clarify the relationship between so-called sudden and gradual, liberating Zen meditation from these extreme views. Whether or not this was Dōgen’s exact intent, such a liberation is necessary in order to understand Dōgen’s view of Zen meditation.
+
+The introduction to McRae’s posthumously released *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism* sums up the general point: 
 
 > McRae's meticulous analysis of the Northern school materials reveals the distortions and biases of the received tradition. To pick a single example, McRae takes to task the standard narrative that Northern teachers advocated a gradual path—that they viewed Buddhist practice as constituting a step-by-step ascent toward awakening. Instead, McRae shows that Northern teachers taught something closer to ‘constant practice’ —an approach that anticipates later Sōtō Zen teachings in Japan. For the Northern school, Chan practice was not a means to achieving liberation so much as a moment-to-moment re-cognition and affirmation of what is already the case, that is, of one's abiding *bodhi*.
 > 
 > – From *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism* by John R. McRae.
 
-This is perhaps pretty good. However, we should note that – notwithstanding whatever shenanigans happened in history – an understanding of the harmony of “sudden” and “gradual” probably goes back at least to the time of Bodhidharma (“Two Entrances”), if not farther, and such an understanding never completely went away.
+This is perhaps pretty good. However, we should note that – notwithstanding whatever shenanigans happened in history – an understanding of the harmony of “sudden” and “gradual” probably goes back at least to the time of Bodhidharma, if not further. (The “Two Entrances” treatise attributed to Bodhidharma could be seen in this way). And if we look at the Zen literature between Bodhidharma and Dōgen, we can see that such an understanding never completely went away.
+
+--- 
 
 For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the Iron Ox,” the pointer to the kōan says:
 
@@ -908,7 +918,7 @@ For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the I
 >
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-Katagiri Roshi discusses this pointer in detail in [“*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1”](https://katagiritranscripts.net/1982-12-22-Blue-Cliff-Record-Case-38-Talk-1). It is not saying that “sudden” is best or “gradual” is best; once again the point is that we need both, according to Katagiri Roshi. It’s worth noting that the *Blue Cliff Record* originated in the Rinzai school – supposedly identified with “sudden enlightenment.” So the nuanced take on sudden enlightenment here is rather striking, and it is by no means limited to this one case.
+Katagiri Roshi discusses this pointer in detail in [“*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1”](https://katagiritranscripts.net/1982-12-22-Blue-Cliff-Record-Case-38-Talk-1). It is not saying that “sudden” is best or “gradual” is best; once again the point is that we need both, according to Katagiri Roshi. Since the *Blue Cliff Record* originated in the Rinzai school – supposedly identified with “sudden enlightenment” – the nuanced take on the sudden here is rather striking. And this more universal view is by no means limited to this one case.
 
 Or, for example, in the *Song of the Jewel Mirror Awareness*, we have the lines:
 
@@ -925,13 +935,15 @@ Katagiri Roshi comments on this:
 >
 > – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
-Note that again, the “Northern School” and “Southern School” seem to be given equal time. 
+Note that again, the “Northern School” and “Southern School” are given equal time. 
 
 So, there is a long history of this view before we arrive at what Dōgen Zenji says in *Bendōwa*:
 
 > Opening the books of scripture is so that, clearly knowing what the Tathagata teaches on the gradual and sudden practices, when we practice in accordance with these teachings, we invariably gain verification of them; it is not so that, wasting our thinking and calculating, we try in vain to assess their merit for attaining bodhi. 
 >
 > – From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p.193.
+
+This is perhaps referring to an earlier understanding of sudden and gradual in the teachings of the Buddha, but the meaning is about the same. The word “verification” here is once again *shō* (證), which we discussed earlier. This is not a coincidence. 
 
 ---
 
@@ -974,9 +986,9 @@ Although it may be helpful to challenge the conventional misconceptions on this 
 >
 > – From [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1” (May 25, 1983) at 30:00](https://katagiritranscripts.net/1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000)
 
-One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that, as we mentioned earlier, the primary point in Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization*. 
+One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” may be that, as we mentioned earlier, the primary point in Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*).
 
-And also: endlessly discussing the practice is not, you know, *doing* the practice.
+Another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
 
 So... heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
@@ -1517,9 +1529,9 @@ In the same talk, Katagiri Roshi says much more to explain this, so we will go b
 
 Katagiri Roshi’s teachings about “taking the backward step” take us in a direction we might not expect: understanding the nature of Buddhist *faith*, or *belief*. 
 
-Often in English translations of Buddhist texts, words with Western religious connotations are used where no such meaning is intended, which causes considerable confusion. For example, the word “defiled” means something very different in Buddhism (at least in Zen Buddhism) than how it is usually heard. (In Buddhism, *defiled* means basically the same as “dualistic”; there is no moral implication, or at least far less of one.) So one might justifiably wonder, “Is there a translation issue here?”
+Often in English translations of Buddhist texts, words with Western religious connotations are used where no such connotation is meant, which causes considerable confusion. For example, the word “defiled” means something very different in Buddhism (at least in Zen Buddhism) than how it is usually heard: in Buddhism, *defiled* means almost the same as “dualistic”; there is no moral implication, or at least far less of one. So one might justifiably wonder: “Is there a translation issue here?”
 
-“Faith,” however, is an accurate translation of the Sanskrit word *śraddhā*, in Japanese *shin* (信). Still, we have to be careful how we understand this faith. Buddhist faith is not so much faith in a religious figure or a doctrine. Buddhist faith is faith in the Way: “Where all beings exist in peace and harmony, prior to the germination of any subtle ideas.” (See Chapter 2: “The Way.”)
+“Faith,” however, is an accurate translation of the Sanskrit word *śraddhā*, in Japanese *shin* (信). Still, we have to be careful how we understand this *faith*. Buddhist faith is not so much faith in a religious figure or a doctrine. Buddhist faith is faith in the Way: “Where all beings exist in peace and harmony, prior to the germination of any subtle ideas.” (See Chapter 2: “The Way.”)
 
 What does that mean? Katagiri Roshi says:
 
@@ -1537,11 +1549,11 @@ What does that mean? Katagiri Roshi says:
 
 This is called “belief” – but it’s not intellectual belief, or at least it’s not limited to intellectual belief. In fact it’s more or less the opposite of that: it’s precise oneness with what’s going on, “with no confusions, no perverted views, no increase or decrease, no misunderstanding.” Dōgen Zenji says, “Engendering belief like this, clarify the Way and practice it accordingly.”
 
-Why do we need this belief? For at least two reasons. The first reason is that “to become one with the Way” – “to forget even a trace of enlightenment” – we cannot do that through the intellect. The only way to is to put ourselves directly there, again and again. The only way we can do that is through something we can call “faith” or “belief” – because it’s something we are *doing*, enacting, right in the midst of whatever we are thinking or feeling about it. 
+Why do we need this belief? For at least two reasons. The first reason is that “to become one with the Way” – “to forget even a trace of enlightenment” – we cannot do that through the intellect. The only way is to put ourselves directly there, again and again. The only way we can do *that* is through something we can call “faith” or “belief” – because it’s something we are *doing*, enacting, right in the midst of whatever we are thinking or feeling about it. 
 
 This “putting ourselves directly there” is “taking the backward step.” So in this sense, taking the backward step is the application of faith.
 
-Again, taking the backward step is to “return to the very inception of the moment.” Katagiri Roshi says:
+Again, taking the backward step is to return to the very inception of the moment. Katagiri Roshi says:
 
 > So in the very inception of being, here and now – in other words, in the very inception of birth – [it] is completely [beyond] questions. But in that realm of the world, you are creating your life, constantly. That’s why everyone has a great capability to create a world, life. 
 > 
@@ -1551,7 +1563,7 @@ Again, taking the backward step is to “return to the very inception of the mom
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 15:16](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#1516)
 
-Katagiri Roshi says much more about this in the talk – some of which we have already covered, for example in Chapter 5: “Free from Dust,” where we talked about karmic life not being separate from total dynamic working. But for now, we need to move on to Dōgen Zenji’s second point, where he says how we *get to* this faith. 
+Katagiri Roshi says much more about this in the talk, some of which we have already covered, for example in Chapter 5: “Free from Dust,” where we talked about karmic life not being separate from total dynamic working. But for now, we need to move on to Dōgen Zenji’s second point, where he says how we *get to* this faith. 
 
 ---
 
