@@ -64,7 +64,7 @@ That [is what Dōgen Zenji talks about] in the chapter “Buddha Nature.” The 
 
 “Right here there is no second person”: [that is,] karmic life. How can you be free from karmic life? By realization of the karmic life, you can be free from karmic life. 
 
-But what do we mean, “realization of karmic life?” That is still vibration of the mind. You have to understand what is karmic life. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says [that] karmic life is exactly Buddha’s world, all sentient [beings,] whole being. That means the whole universe. 
+But what do we mean, “realization of karmic life?” That is still vibration of the mind. You have to understand what karmic life is. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says [that] karmic life is exactly Buddha’s world, all sentient [beings,] whole being. That means the whole universe. 
 
 If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. 
 
