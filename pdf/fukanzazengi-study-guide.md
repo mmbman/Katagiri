@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.5]
+  #text(size: 1.2em)[Draft Version 0.6.6]
   
   #datetime.today().display()
   
@@ -241,7 +241,7 @@ But because zazen is just sitting down and being present, that means *anyone* ca
 
 This is a small part of a much longer talk which ties together many ideas in *Fukanzazengi*, including this notion of practicing for lifetime after lifetime, and what it means to arrange our circumstances. We’ll return to those points in the following chapters.
 
-But this is the conclusion: to do it.
+But this is the conclusion: you can do it. Whatever your situation, whether you understand it or not, you can do zazen. This is a *universal* way to benefit both yourself and the entire cosmic situation. 
 
 ```{=typst}
 #pagebreak()
@@ -349,7 +349,7 @@ In the talk, Katagiri Roshi vividly describes this appeal in terms of *prayer* �
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
-It is important to understand that this “appeal and response” with the universe is not about trying to “get” something. Rather, it is about *full communication* with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
+It is important to understand that this “appeal and response” with the universe is not about trying to get something specific. Rather, it is about *full communication* with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
 
 > *Satori* (enlightenment) is found in the very simple movement (of wandering in the mountains) which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō-dōkō* (感應道交) in Japanese. 
 > 
@@ -357,7 +357,7 @@ It is important to understand that this “appeal and response” with the unive
 
 It’s also important to understand that *kannō-dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
-This is a key point. A mistake that many academic researchers (and many other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that there must *really* be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
+This is a key point. A mistake that many academic researchers (and many other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
 If you assume that, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
 
@@ -869,8 +869,6 @@ And there is a sort of controversy about this, in that the *Platform Sutra* more
 
 Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment* – meaning *satori*, or in this case *kenshō*. But as we discussed in Chapter 3, that is not the goal of Dōgen’s Zen. 
 
---- 
-
 But back to the forgery. Katagiri Roshi answers a question about this:
 
 > **Question:** So, Dōgen considered this a forgery?
@@ -894,7 +892,7 @@ It seems that at least in some circles, it has always been understood that the 
 
 --- 
 
-Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. Here we learn – to summarize briefly – that the entire notion of a “Northern School” and “Southern School” was basically the invention of one historical person: the monk Shen Hui, who (like National Teacher Dazheng, above) claimed to be a disciple of the Sixth Ancestor, Hui Neng. Shen Hui should not be confused with Shen Hsiu, the alleged author of the “brush it clean” verse. Shen Hui, we learn, essentially weaponized the concept of “sudden enlightenment” as a means to attract religious adherents, and probably invented the “poetry contest” story as a means to that end. So succesful was Shen Hui in presenting his simplified version of Zen, that for hundreds of years the Buddhist establishment essentialy avoided discussing the practice of Zen meditation in public, for fear of being accused of the so-called “gradualist fallacy.” This may be an oversimplification of the story – but perhaps not by much. 
+Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. Here we learn – to summarize briefly – that the entire notion of a “Northern School” and “Southern School” was basically the invention of one historical person: the monk Shen Hui, who (like National Teacher Dazheng, above) claimed to be a disciple of the Sixth Ancestor, Hui Neng. Shen Hui should not be confused with Shen Hsiu, the alleged author of the “brush it clean” verse. Shen Hui, we learn, essentially weaponized the concept of “sudden enlightenment” as a means to attract religious adherents, and probably invented the poetry contest story as a means to that end. So succesful was Shen Hui in presenting his simplified version of Zen, that for hundreds of years the Buddhist establishment essentialy avoided discussing the practice of Zen meditation in public, for fear of being accused of the so-called “gradualist fallacy.” This may be an oversimplification of the story – but perhaps not by much. 
 
 From this perspective, *Fukanzazengi* could be seen as Dōgen’s Zenji’s effort, about five hundred years later, to clarify the relationship between so-called sudden and gradual, liberating Zen meditation from these extreme views. Whether or not this was Dōgen’s exact intent, such a liberation is necessary in order to understand Dōgen’s view of Zen meditation.
 
@@ -3419,4 +3417,12 @@ So Katagiri Roshi says, this kind of zazen is not like that.
 > Look around at your life. How many beings exist? Around you there are cushions, floor; you can see them. For those beings, we can help, one by one. We can handle your boots and sandals, and your hair, and your clothes; we can take care of them pretty well. This is exactly to save all sentient beings. 
 
 
+---
 
+Nice bit on suffering from Gabyo:
+
+> If you become a painter, you try to produce a masterpiece, but within the masterpiece, the painter is never satisfied. So beyond his accomplishments, there is a hunger, very deep hunger, which encourages him to continue to paint. He never stops; beyond he likes or he doesn't like. People really appreciate his accomplishments, which should help human life, the human world, in terms of human culture. It's very helpful for us. But he himself never satisfied. So constantly he tries to produce another masterpiece. So in his life, just the flow of his effort can be discovered. 
+> 
+> What makes it possible to carry out the flow of his effort as a painter? It is hunger, his hunger, very deep hunger. It's suffering. It's suffering for him, but it's really great encouragement. That encouragement is actualized as flow of effort, under all circumstances; nurturing his sensibility toward colors, nature's rhythm of total reality in nature. He is sensible of the nature, sensible of colors, sensible of the activity of nature, activity of colors, activity of his body and mind. 
+> 
+> So in a sense it is suffering, but it's not the usual suffering, because it is very deep, which always encourages us deeply to live, to understand, to hear, to see, under all circumstances. That's why we cannot escape hunger. We cannot escape from suffering. That's why if you understand this hunger, how hungry we are, how deep suffering is, then we can discover total freedom. 
