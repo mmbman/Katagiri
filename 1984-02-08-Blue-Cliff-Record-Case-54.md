@@ -3,7 +3,7 @@ title: "Blue Cliff Record Case 54: Yun Men Extends Both Hands"
 ---
 ## February 8, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-01-25-Blue-Cliff-Record-Case-53) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-25-Blue-Cliff-Record-Case-53) | [Next](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
 
 ### Transcript
 
@@ -317,4 +317,4 @@ Is that alright?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-01-25-Blue-Cliff-Record-Case-53) | [Next](1984-03-16-Awakening-of-Faith-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
+#### [Previous](1984-01-25-Blue-Cliff-Record-Case-53) | [Next](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1) | [List](list#1984) | Series: [*Blue Cliff Record*](blue-cliff-record)
