@@ -106,6 +106,9 @@ The purpose of the [Katagiri Transcripts](https://katagiritranscripts.net) proje
 
 ```{=typst}
 #pagebreak()
+//#block(stroke: black, inset: 8pt, width: 100%)[
+//#set text(size: 13pt)
+//This is an excerpt from _Making Arrangement: Katagiri Roshi’s Teachings on Fukanzazengi, Zen Master Dōgen’s Universal Recommendation for Zazen_. We'll be working with the first part of this study guide in the Summer Buddhist Studies Course at Compassionate Ocean, June 10 - July 29, 2026. For details and to register visit https://www.oceanzen.org/buddhist-studies]
 ```
 
 # Manuscript
@@ -117,6 +120,7 @@ The purpose of the [Katagiri Transcripts](https://katagiritranscripts.net) proje
   caption: [The _Rufu-bon_ ("Popular Version") of _Fukanzazengi_. The text is in Classical Chinese; the characters are read in vertical lines from right to left, with two blocks of text, top and bottom. Source: #link("https://en.wikipedia.org/wiki/Taishō_Tripiṭaka")[The Taishō Tripiṭaka], SAT Daizōkyō Text Database, Volume 82, #link("https://21dzk.l.u-tokyo.ac.jp/SAT/ddb-sat2.php?mode=detail&useid=2580_,82,0002&nonum=&kaeri=")[Text 2580]. Via #link("https://dharmawanderer.wordpress.com/2020/07/16/fukan-zazen-gi-original/")[dharmawanderer.wordpress.com].],
   gap: 1.5em
 )
+
 #pagebreak()
 ```
 
