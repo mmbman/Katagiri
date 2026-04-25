@@ -21,7 +21,7 @@ This is an audio recording of Katagiri Roshi offering zazen instruction to a med
 
 I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
 
-In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground 土.) [...] That [indicates that] you have to sit with more than two beings, [and] not only human beings; you cannot sit alone. So you should sit with more than two beings on the earth, in the universe – not in your own egoistic, selfish territory. 
+In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground or earth 土.) [...] That [indicates that] you have to sit with more than two beings, [and] not only human beings; you cannot sit alone. So you should sit with more than two beings on the earth, in the universe – not in your own egoistic, selfish territory. 
 
 [If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. And then very naturally [...] *that* sitting is exactly *zen*, tranquility – because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 
