@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.6]
+  #text(size: 1.2em)[Draft Version 0.6.7]
   
   #datetime.today().display()
   
@@ -205,7 +205,7 @@ Katagiri Roshi says about sitting down in *zazen*:
 
 What does Katagiri Roshi mean when he says that zazen is not only removing all the weeds on our own territory? 
 
-By “weeds,” Katagiri Roshi means any mental or physical conditions that we don’t like. We can also understand weeds as *karma* – a topic that we will return to – but again, it’s the kind of karma that we don’t like. Katagiri Roshi says:
+By “weeds,” Katagiri Roshi means any mental or physical conditions that we don’t like. We can also understand weeds as *karma* – a topic that we will return to – but again, weeds are the kind of karma that we don’t like. Katagiri Roshi says:
 
 > According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice... but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
 >
@@ -357,11 +357,11 @@ It is important to understand that this “appeal and response” with the unive
 
 It’s also important to understand that *kannō-dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
-This is a key point. A mistake that many academic researchers (and many other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
+This is a key point. A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
 If you assume that, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
 
-So what do we assume instead? “Interactive communion of appeal and response” with the universe, or “full communication.” How can we actually experience this *total* communication? Katagiri Roshi says:
+So what do we assume instead? “Interactive communion of appeal and response with the universe,” or “full communication.” How can we actually experience this *total* communication? Katagiri Roshi says:
 
 > When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 >
@@ -511,9 +511,11 @@ Katagiri Roshi then explains that *shō* is the same as “suchness” or “thu
 >
 > – From [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5” (March 15, 1987)](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5). 
 
+Katagiri Roshi returned to this topic many times during his years of teaching. This is important, so in the next section we’ll look at another example where he discussed *shō*. 
+
 --- 
 
-This is important, so here is another time Katagiri Roshi discussed *shō*, in one of his talks on the *Diamond Sutra*:
+In one of his talks on the *Diamond Sutra*, Katagiri Roshi explained the distinction between *kaku*, *satori*, and *shō* in detail:
 
 > In Japanese, “enlightenment” is described by three different characters. One is *kaku*: “awareness.” The second is *satori* – you are very familiar with this term, satori. The third is *shō*: that is usually translated as “realization.” 
 > 
@@ -539,7 +541,7 @@ This is important, so here is another time Katagiri Roshi discussed *shō*, in o
 >
 > – From [“*Diamond Sutra*, Talk 9: Emptiness” (August 1, 1979)](https://katagiritranscripts.net/1979-08-01-Diamond-Sutra-Emptiness).
 
-“Be with it” is the practice. Or sometimes Katagiri Roshi says “be right there,” or “right now, right here,” or “be right on.” We’ll discuss this more in the next section on the *dharma vehicle*.
+An important point here is that *shō* is always present. Our practice is to “be with it.” Or sometimes Katagiri Roshi says “be right there,” or “right now, right here,” or “be right on.” We’ll discuss this more in the next section on the *dharma vehicle*.
 
 --- 
 
@@ -1616,6 +1618,14 @@ People may have a reaction to hearing “please shut up.” In the next talk, th
 > – From [“Principles of Practice, Talk 5: Direct Transmission” (March 23, 1986) at 1:03:30](https://katagiritranscripts.net/1986-03-23-Principles-of-Practice-Talk-5#10330)
 
 This is the other reason why we need faith: because no-one can do this practice for us. Teachers can show and encourage us, buddhas and bodhisattvas support us, but the only person who can do *your* practice is *you*. So we have to have faith in ourselves: faith that we are already a “container” of the dharma, so we are completely qualified to do this practice. *Faith* is the motive power to actually do the practice. 
+
+But, to be clear, this is not saying to “shut up” forever. It means when you do zazen, *do* zazen. It’s not about attaching to silence. In another talk, Katagiri Roshi says:
+
+> So, life and death is complete vastness, nothing to comment, nothing to say – but, there is the place you have to apply your effort. So-called, you have to say something about it. 
+> 
+> Okay? It’s kind of contradictory. 
+>
+> – From [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984)](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
 
 ---
 
