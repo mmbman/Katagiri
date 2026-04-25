@@ -77,7 +77,7 @@ Katagiri Roshi gave talks on the cases of the *Blue Cliff Record* from 1979 to 1
 - [Case 53: Pai Chang’s Wild Ducks](1984-01-25-Blue-Cliff-Record-Case-53)
 - [Case 54: Yun Men Extends Both Hands](1984-02-08-Blue-Cliff-Record-Case-54)
 - [Case 55: Tao Wu’s Condolence Call, Talk 1](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1)
-- Case 55 Talk 3
+- [Case 55: Tao Wu’s Condolence Call, Talk 3](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3)
 - Case 57 Talk 1
 - Case 57 Talk 2
 - Case 58 Talk 1

@@ -164,7 +164,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [*The Awakening of Faith* – Talk 3: One Mind and Its Two Aspects](1984-04-06-Awakening-of-Faith-Talk-3)
 
-1. *Blue Cliff Record* Case 55 Talk 3
+1. [*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3)
 
 1. [*The Awakening of Faith* – Talk 5](1984-04-20-Awakening-of-Faith-Talk-5)
 

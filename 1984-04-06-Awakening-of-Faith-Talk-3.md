@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 3: One Mind and Its Two Aspects"
 ---
 ## April 6, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-04-20-Awakening-of-Faith-Talk-5) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Summary
 
@@ -325,4 +325,4 @@ That's why we say *nirvana*. That is *real* nirvana. *[He laughs.]* All the guts
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-04-20-Awakening-of-Faith-Talk-5) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-03-25-Mindfulness-Talk-5) | [Next](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
