@@ -597,7 +597,7 @@ About this, Katagiri Roshi says:
 
 --- 
 
-So, to rephrase the question in this line of *Fukanzazengi*: “How could the Way, the functioning of the universe, depend on practice-realization?” How, indeed? We’ll continue to look at this in the following chapters.
+So, to rephrase this line of *Fukanzazengi*: “How could the Way, the functioning of the universe, depend on practice-realization?” How, indeed? Given what we’ve discussed about *the Way* and *practice-realization*, the question itself here might mean something different than we at first thought. We’ll continue to look at this question in the following chapters.
 
 ```{=typst}
 #pagebreak()
