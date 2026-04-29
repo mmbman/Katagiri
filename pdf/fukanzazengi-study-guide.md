@@ -569,7 +569,7 @@ What does practice-realization look like outside of Zen meditation? In the follo
 
 Often the question comes up of how we work with *feelings* in Buddhism, or sometimes this is framed as how to work with *like and dislike*. In Zen, there are no particular rules saying, “If you feel *this*, do one thing; if you feel *that*, do another thing,” et cetera. If we want to be a writer, how do we do it? Katagiri Roshi says, “Continue to write, beyond like or dislike, until your writing is completely flowing just like water. ” 
 
-And yet, if we never *experience* any feelings, our writing is likely to be pretty dull! The same goes for music, or really any pursuit. Our feelings are among the many *beings* that we practice with. They give us lots of information about what is going on in the world, what it is like to be a human being. 
+And yet, if we never *experience* any feelings, our writing is likely to be pretty dull! The same goes for music, or really any pursuit. Our feelings are among the many *beings* that we practice with. They give us lots of information about what is going on in the world, what it is like to be a human being. “Full communication” or *kannō dōkō* is happening there. So we get to be with this information and then decide: what would be best to do.
 
 So again, as we said in Chapter 1, our practice is not about eliminating feelings that we don’t like, nor is it about chasing after feelings that we *do* like. We don’t try to pick and choose; we do our best to be present in the midst of everything, and then take appropriate action. This is to be “flowing just like water.”
 
