@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.8]
+  #text(size: 1.2em)[Draft Version 0.6.9]
   
   #datetime.today().display()
   
@@ -567,9 +567,9 @@ What does practice-realization look like outside of Zen meditation? In the follo
 >
 > – From [“*Diamond Sutra*, Talk 1: Introduction” (May 9, 1979) at 35:44](1979-05-09-Diamond-Sutra-Introduction#3544)
 
-Often the question comes up of how we work with *feelings* in Buddhism, or sometimes this is framed as how to work with *like and dislike*. In Zen, there are no particular rules saying, “If you feel *this*, do one thing; if you feel *that*, do another thing,” et cetera. If we want to be a writer, how do we do it? Katagiri Roshi says, “Continue to write, beyond like or dislike, until your writing is completely flowing just like water. ” 
+Often the question comes up of how we work with *emotions* in Buddhism. In Zen, there are no particular rules saying, “If you feel *this*, do one thing; if you feel *that*, do another thing,” et cetera. If we want to be a writer, how do we do it? Katagiri Roshi says, “Continue to write, beyond like or dislike, until your writing is completely flowing just like water. ” 
 
-And yet, if we never *experience* any feelings, our writing is likely to be pretty dull! The same goes for music, or really any pursuit. Our feelings are among the many *beings* that we practice with. They give us lots of information about what is going on in the world, what it is like to be a human being. “Full communication” or *kannō dōkō* is happening there. So we get to be with this information and then decide: what would be best to do.
+And yet, if we never *experience* any emotions, our writing is likely to be pretty dull! The same goes for music, or really any pursuit. Our emotions are among the many *beings* that we practice with. They give us lots of information about what is going on in the world, what it is like to be a human being. “Full communication” or *kannō dōkō* is happening there. So we get to be with this information and then decide: what would be best to do.
 
 So again, as we said in Chapter 1, our practice is not about eliminating feelings that we don’t like, nor is it about chasing after feelings that we *do* like. We don’t try to pick and choose; we do our best to be present in the midst of everything, and then take appropriate action. This is to be “flowing just like water.”
 
@@ -637,9 +637,7 @@ This relates to the meaning of *dharma vehicle*.
 
 Buddhism, particularly Zen or Mahayana Buddhism, seems rare among religions in the degree to which it is willing to throw its own teachings under a bus to try to point in the direction of real truth. (See, for example, *The Heart Sutra*.) 
 
-But in these lines in *Fukanzazengi*, we don’t seem to be discussing “vehicles” in the sense of different teachings or practices. Here we are discussing the *dharma* vehicle. 
-
---- 
+But in these lines in *Fukanzazengi*, we don’t seem to be talking about “vehicles” in the sense of different teachings or practices. Here we are talking about the *dharma* vehicle. 
 
 Katagiri Roshi discusses these lines in his talks on *Blue Cliff Record* Case 2: “The Ultimate Path Is Without Difficulty,” talking about the *dharma vehicle* in connection with two other terms from the case: “the Ultimate Path” and “the fundamental vehicle of transcendence.” He says:
 
@@ -3494,3 +3492,6 @@ In a sense, it doesn’t – because the Way is already perfect and all-pervadin
 
 This is really the central point of *Fukanzazengi*, so we will keep returning to this in the coming chapters. In particular we will look at practice *ripening* in Chapter 8: “Buddha and Bodhidharma.”
 
+---
+
+Plainly speaking: if you hear something like that, you are most likely leaving the realm of Buddhism, and entering the realm of popular psychology – either the popular psychology of today, or the popular psychology of hundreds or thousands of years ago. 
