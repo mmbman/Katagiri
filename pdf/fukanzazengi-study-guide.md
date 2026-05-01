@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.9]
+  #text(size: 1.2em)[Draft Version 0.6.10]
   
   #datetime.today().display()
   
@@ -353,19 +353,27 @@ In the talk, Katagiri Roshi vividly describes this appeal in terms of *prayer* �
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
-It is important to understand that this “appeal and response” with the universe is not about trying to get something specific. Rather, it is about *full communication* with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
+It’s important to understand that this *interacting communion* of appeal and response isn’t so much about trying to get something specific; rather, it is about *full communication* with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
 
 > *Satori* (enlightenment) is found in the very simple movement (of wandering in the mountains) which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō dōkō* (感應道交) in Japanese. 
 > 
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-It’s also important to understand that *kannō dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
+Although we say this, nevertheless, *kannō* or the “appeal and response” part of *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find a walking stick. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *making arrangement*: arranging our circumstances, and our body and mind, so that we can wholeheartedly engage with the Way.
 
-Again, this is important. A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
+That is our *appeal*.
+
+We don’t know *how* the universe will respond. Just that it always does. 
+
+The difference implied by the *dōkō* part of *kannō dōkō* – which we would could translate as “spiritual communion” or “crossing the Way” – is that our goal is very *broad*. We could say our goal is “full communication.”
+
+It’s important to understand that *kannō dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
+
+A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
 If you assume that, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
 
-So what do we assume instead? *Interactive communion of appeal and response with the universe*, or *full communication*. How can we actually experience this *total* communication? Katagiri Roshi says:
+So what do we assume instead? *Interactive communion* of appeal and response with the universe, or *full communication*. How can we actually experience this *total* communication? Katagiri Roshi says:
 
 > When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 >
@@ -375,7 +383,7 @@ So what do we assume instead? *Interactive communion of appeal and response with
 
 --- 
 
-Put another way, in taking refuge in dharma through the practice of *wholeheartedness*, we connect with the larger sense of ourselves which includes all things, all *phenomena*. Katagiri Roshi says:
+To put this another way: in taking refuge in dharma through the practice of *wholeheartedness*, we connect with the larger sense of ourselves which includes all things, all *phenomena*. Katagiri Roshi says:
 
 > So if you practice like this, very naturally dharma is coming to your life, and your life manifests yourself as dharma. So very naturally your life [manifests] as *total personality*. 
 >
@@ -397,7 +405,7 @@ So it seems *the Way* is *total personality*, which is our personality in connec
 
 --- 
 
-But *total personality* is really not something abstract and separate from our day-to-day lives. In fact, Katagiri Roshi uses a term that might surprise people:
+But again, *total personality* is really not something abstract and separate from our day-to-day lives. In fact, Katagiri Roshi uses a term that might surprise people:
 
 > I told you yesterday [about] the *whole personality* or *total personality*; the personality that, according to general Buddhism, is *buddha-nature*, or according Buddhist psychology it is called *karma*.
 >
@@ -415,7 +423,9 @@ In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which se
 >
 > – From the introduction by Kikan Michael Howard to [Katagiri Roshi’s talks on *Karma*](https://katagiritranscripts.net/karma).
 
-Overall, what this means is that our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
+*Action* and *cause and effect* are *part* of karma. As we mentioned earlier, much of *Fukanzazengi* is about arranging our circumstances and our body and mind so that we can practice: we can think of this as planting karmic *seeds* that will bloom – at some time, in some way. 
+
+But action and cause and effect are not the whole story: our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
 
 ---
 
@@ -1780,7 +1790,7 @@ the light and shining it inward.” In a talk on *karma*, he translates this lin
 
 An obvious question here is how “inward” means “wisdom,” and how turning merit “on oneself” means “on all beings.” The answer is probably that this “oneself” is oneself in the sense of “your original face,” which is what manifests when we take the backward step. 
 
-Later in the same talk, he mentions this specifically in terms of karma: 
+Later in the same talk, he mentions this specifically in terms of *karma*: 
 
 > So very naturally, you can see your life not only in terms of manifested karma, but also unmanifested karma, which manifested karma is backed by. So very naturally you can see your life extending to the beginningless past and endless future. This is called *eko*, or *virtuous quality*, or “learn that one withdraws one step and turns the light inward on oneself.” Very naturally that means that you can learn humility, and modesty, compassion, toward oneself and another. 
 > 
@@ -3495,3 +3505,11 @@ This is really the central point of *Fukanzazengi*, so we will keep returning to
 ---
 
 Plainly speaking: if you hear something like that, you are most likely leaving the realm of Buddhism, and entering the realm of popular psychology – either the popular psychology of today, or the popular psychology of hundreds or thousands of years ago. 
+
+----
+
+Kuge Talk 6 seems to be kind of a goldmine:
+
+> So this kind of energy arises under certain circumstances; it is called sometimes *bodhi-mind*, sometimes *practice*, sometimes *enlightenment*, sometimes *nirvana*. So all we have to do is cultivate this buddha-nature, Buddha, great energy. Anyway, cultivate. We have to cultivate because if you don’t cultivate, energy comes up, but it’s *twisted*, all of a sudden. 
+
+> Because we have already a great energy called Buddha – so why do we have to practice? 
