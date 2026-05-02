@@ -211,4 +211,4 @@ growing when we despise them.”
 
 - [“The Need and Way of Repentance”](1988-08-10-The-Need-and-Way-of-Repentance): “Please dig up the human world and turn it into golden world”: “direct your karmic life toward that eternal target,” the “eternal child.”
 
-- It’s worth noting that the interpretation of the final line in the Soto Zen Text Project translation of *Shōbōgenzō* differs from that presented here. The exploration of this is left as an excercise. 
+- It’s worth noting that the interpretation of this final line in the Soto Zen Text Project translation of *Shōbōgenzō* differs from that presented here. The exploration of this is left as an excercise. 
