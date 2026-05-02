@@ -8,7 +8,7 @@ title: "Notes on Genjōkōan"
 
 On this page I provide notes and links to where Katagiri Roshi commented on Zen Master Dōgen’s *Genjōkōan*, or where he discussed key terms used in it. This document is a work in progress. I will update it as I transcribe talks and find additional references.
 
-[SZ] indicates text from the Sōtōshū translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen*, which Katagiri Roshi used in some talks in 1986 and 1987. [KR] indicates a translation which appears to be by Katagiri Roshi himself.
+[SZ] indicates text from the Soto Zen Text Project translation of *Shōbōgenzō*.  [TC] indicates Thomas Cleary’s translation from *Shōbōgenzō: Zen Essays by Dōgen*, which Katagiri Roshi used in some talks in 1986 and 1987. [KR] indicates a translation which appears to be by Katagiri Roshi himself.
 
 ----
 
@@ -211,4 +211,4 @@ growing when we despise them.”
 
 - [“The Need and Way of Repentance”](1988-08-10-The-Need-and-Way-of-Repentance): “Please dig up the human world and turn it into golden world”: “direct your karmic life toward that eternal target,” the “eternal child.”
 
-- It’s worth noting that the interpretation of the final line in the Sōtōshū translation of *Shōbōgenzō* differs from that presented here. The exploration of this is left as an excercise. 
+- It’s worth noting that the interpretation of the final line in the Soto Zen Text Project translation of *Shōbōgenzō* differs from that presented here. The exploration of this is left as an excercise. 
