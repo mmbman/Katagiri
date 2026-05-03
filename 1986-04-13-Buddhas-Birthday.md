@@ -58,7 +58,7 @@ Well, this is natural, from human feeling. For instance, if you become *great*, 
 
 So, that’s why he walks seven steps. Seven is a holy number. Anyway, he walks from the [mother’s] belly. [That] means he is something special: walking in the human world, walking hand in hand with all sentient beings, [even as a] baby. 
 
-And also he says, “I alone am [the] honored one [in heaven and on earth].” This is not individualism, okay? This is not egoism. It [does not mean] egoism; it is the implication of thoughtfulness, kindness, or compassion to *all*, because *all* are great, completely great. No one hurts or destroys that greatness [inherent] in everyone and all things – trees, birds, nature, pebbles, waters, et cetera. Everything has greatness, [the] so-called *lifeline of buddha*. Exactly the same lifeline [that] Buddha Shakyamuni has. 
+And also he says, “I alone am [the] honored one [throughout heaven and earth].” This is not individualism, okay? This is not egoism. It [does not mean] egoism; it is the implication of thoughtfulness, kindness, or compassion to *all*, because *all* are great, completely great. No one hurts or destroys that greatness [inherent] in everyone and all things – trees, birds, nature, pebbles, waters, et cetera. Everything has greatness, [the] so-called *lifeline of buddha*. Exactly the same lifeline [that] Buddha Shakyamuni has. 
 
 That’s why this is called – maybe in the usual terms we say [a] *human right*. [If we] say [a] *human right*, it is a very usual word, but religiously we are *great*, beyond human speculation, human judgement. That’s why we have to respect [others], or we have to put ourselves in others’ place, and be thoughtful, be kind, be compassionate to human beings, and also to everything. 
 

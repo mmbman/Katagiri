@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.10]
+  #text(size: 1.2em)[Draft Version 0.6.11]
   
   #datetime.today().display()
   
@@ -1355,8 +1355,20 @@ Why was the Buddha “wise at birth,” having “inborn knowledge”? Perhaps i
 > 
 > So, that’s why he walks seven steps. Seven is a holy number. Anyway, he walks from the [mother’s] belly. [That] means he is something special: walking in the human world, walking hand in hand with all sentient beings, [even as a] baby. 
 >
-> And also he says, “I alone am [the] honored one [in heaven and on earth].” This is not individualism, okay? This is not egoism. It [does not mean] egoism; it is the implication of thoughtfulness, kindness, or compassion to *all*, because *all* are great, completely great. No one hurts or destroys that greatness [inherent] in everyone and all things – trees, birds, nature, pebbles, waters, et cetera. Everything has greatness, [the] so-called *lifeline of buddha*. Exactly the same lifeline [that] Buddha Shakyamuni has. 
+> And also he says, “I alone am [the] honored one [throughout heaven and earth].” This is not individualism, okay? This is not egoism. It [does not mean] egoism; it is the implication of thoughtfulness, kindness, or compassion to *all*, because *all* are great, completely great. No one hurts or destroys that greatness [inherent] in everyone and all things – trees, birds, nature, pebbles, waters, et cetera. Everything has greatness, [the] so-called *lifeline of buddha*. Exactly the same lifeline [that] Buddha Shakyamuni has. 
 > 
+> – From [“Buddha’s Birthday” (April 13, 1986) at 10:16](https://katagiritranscripts.net/1986-04-13-Buddhas-Birthday#1016).
+
+This matter of “I alone” could perhaps use a bit of additional explanation:
+
+> If you return to the very incipient state of the moment, everything becomes exactly one – interconnectedly, interpenetrately, without any hindrances there. It’s very strange, but it is really true. In terms of human speculation, it’s impossible to think that, but the world of the very incipient moment is really working like this. Everything is working like that. 
+> 
+> That is called *silence*, absolute silence. That is called sometimes *aloneness*. Because when you stand up there, you alone are there – no one around. But you are really working and supported by all living beings. If you have the eyes to open, to see the depths of your existence, you are alone but you are not alone – you are supported by many beings. At that time you can be exactly alone, with stability, with peace and bliss and repose. Exactly. 
+> 
+> – From [“*Kuge*: Flowers in the Sky – Talk 7”](1988-09-27-Kuge-Talk-7)
+
+That is what the Buddha realized. According to Buddhism, “We are Buddha”: that means all beings are already like this; the universe is already functioning in this way. And so:
+
 > That’s why this is called – maybe in the usual terms we say [a] *human right*. [If we] say [a] *human right*, it is a very usual word, but religiously we are *great*, beyond human speculation, human judgement. That’s why we have to respect [others], or we have to put ourselves in others’ place, and be thoughtful, be kind, be compassionate to human beings, and also to everything. 
 > 
 > – From [“Buddha’s Birthday” (April 13, 1986) at 10:16](https://katagiritranscripts.net/1986-04-13-Buddhas-Birthday#1016).
@@ -2891,6 +2903,11 @@ vipassana is *kan* 觀
 
 The “dharma gate of repose and joy” or “dharma gate of repose and bliss” is discussed in [“Bendōwa: Dōgen's Questions & Answers – Talk 3”](https://katagiritranscripts.net/1987-03-13-Bendowa-Talk-3) at [55:17](https://katagiritranscripts.net/1987-03-13-Bendowa-Talk-3#5517) and [1:11:57](https://katagiritranscripts.net/1987-03-13-Bendowa-Talk-3#11157).
 
+---
+
+Search for “repose and bliss.” New good reference in Kuge Talk 7.
+
+
 ```{=typst}
 #pagebreak()
 ```
@@ -3223,6 +3240,13 @@ Katagiri Roshi also discussed *ki* in his final talk:
 >
 > – From [“Dealing with Death, Dealing with Life” at 33:32](https://katagiritranscripts.net/1989-01-07-Dealing-with-Death-Dealing-with-Life#3332).
 
+---
+
+> According to Bodhidharma’s statement, I think it is very precious for us to be here and now, or to exist day to day, or to be born in this world, because beyond your control the whole universe in many ways supports us and makes our life mature – offering lots of “fertilizer” to human life. So very naturally, to be born in this world is very precious. That’s why Dōgen Zenji and also ancestors and buddhas say it is rare to be born as a human being in this world. Not only human beings – to be born as a tree, to be born as a pebble, to be born as a human being, all are precious for us. So in many ways we have to express our great appreciation to this reality. 
+> 
+> 1988-09-27-Kuge-Talk-7
+
+
 ```{=typst}
 #pagebreak()
 ```
@@ -3513,3 +3537,8 @@ Kuge Talk 6 seems to be kind of a goldmine:
 > So this kind of energy arises under certain circumstances; it is called sometimes *bodhi-mind*, sometimes *practice*, sometimes *enlightenment*, sometimes *nirvana*. So all we have to do is cultivate this buddha-nature, Buddha, great energy. Anyway, cultivate. We have to cultivate because if you don’t cultivate, energy comes up, but it’s *twisted*, all of a sudden. 
 
 > Because we have already a great energy called Buddha – so why do we have to practice? 
+
+And also, this seems important for bringing it all back to ordinairy things, nothing holy:
+
+How can you build it up? This is a key point you have to learn from now on, toward the 21st century. This is very important. This is a point people don’t know, they always miss it. People are always interested in something *more* than that; because it is *too* pure, it is too simple. It is seemingly not worthy of serious consideration, because daily routine, *gassho*, washing your face, greeting good morning – that is routine. We always say it’s not important, and then practice is something *special*. The religious holiness, if you become holy, what can you do? Please show us. And then you can show walking on the lake. And then people say, “Oh, you are a great holy man!” I don’t think this is [holiness]. Oh, of course, if you can walk [on water], it’s fine. But it is not universal. You have to see the cause and the effect in the realm of the universal world, where all sentient beings exist. Because all sentient beings are qualified to *be*. If you expect something *special* in order to be “holy,” you already ignore the rest of beings who cannot do it! So very naturally, there is discrimination coming up. And then if you become holy, you see the people who are not holy and are always criticizing, consciously or unconsciously, it’s coming up, naturally. 
+
