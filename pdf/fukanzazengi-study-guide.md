@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.11]
+  #text(size: 1.2em)[Draft Version 0.6.12]
   
   #datetime.today().display()
   
@@ -359,15 +359,13 @@ It’s important to understand that this *interacting communion* of appeal and r
 > 
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-Although we say this, nevertheless, *kannō* or the “appeal and response” part of *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find some appropriate shoes. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way.
+Although we say this, nevertheless, *kannō* or the “appeal and response” part of *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find appropriate shoes. Maybe learn something about rock climbing. And then: start walking. 
 
-That is our *appeal*.
+As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way. That is our *appeal*.
 
 We don’t know *how* the universe will respond. Just that it always does. 
 
-The difference implied by the *dōkō* part of *kannō dōkō* – which we would could translate as “spiritual communion” or “crossing the Way” – is that our goal is very *broad*. We could say our goal is “full communication.”
-
-It’s important to understand that *kannō dōkō* or “interacting communion of appeal and response” isn’t a side topic here; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
+The difference implied by the *dōkō* part of *kannō dōkō*, which we could translate as “spiritual communion” or “crossing the Way,” is that our goal is very *broad*. We could say our goal is “full communication.” It’s important to understand that this isn’t a side topic; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
 A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
