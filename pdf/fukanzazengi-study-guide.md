@@ -359,7 +359,7 @@ It’s important to understand that this *interacting communion* of appeal and r
 > 
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-Although we say this, nevertheless, *kannō* or the “appeal and response” part of *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find a walking stick. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *making arrangement*: arranging our circumstances, and our body and mind, so that we can wholeheartedly engage with the Way.
+Although we say this, nevertheless, *kannō* or the “appeal and response” part of *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find some appropriate shoes. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way.
 
 That is our *appeal*.
 
