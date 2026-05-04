@@ -396,7 +396,7 @@ Katagiri Roshi comments on this:
 >
 > – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
-It’s important to understand that *kannō dōkō* isn’t a side topic, it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
+It’s important to understand that this appeal and response isn’t a side topic – it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
 A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
