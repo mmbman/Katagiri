@@ -367,7 +367,7 @@ In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Moun
 > 
 > *Kan* means *perception*, literally. *Perception* means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your *whole body*, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. 
 
-We say that the universe responds, but we are the universe, the universe is us. So perhaps *we* respond…
+We say that the universe responds, but we are the universe, the universe is us. So perhaps *we* respond:
 
 > So you have to respond, but respond to the mountains with your whole body. When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think you want to know; [rather] those inspirations are represented as lots of questions in your life. Many things in the world of inspiration [are] kind of questions; lots of questions you don’t know [the answer to]. Like, “What is that?” All these questions come up. Those questions are not something you can resolve in the realm of intellect or with intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s *movement*. So within the movement, there is full communication there. So that is to climb the mountains. 
 > 
@@ -385,6 +385,14 @@ We don’t know *how* the universe will respond; just that it always does. The *
 
 >> Subtly included within the true,  
 >> inquiry and response come up together.  
+
+Katagiri Roshi comments on this:
+
+> If you knock constantly on the door, very naturally there is something which will come back as a response. But you have to knock constantly on the door. Practice is to keep your eyes open and ask and knock on the door and reach. You can arrive. You can make something happen and then you can arrive. This is the response and also the inquiry.
+>
+> If you want to compose a poem about Winter, you have to take the initiative and move toward Winter. And then Winter will respond to you.
+>
+> Even though you don’t know what the truth is, even though you don’t know what the universal rhythm is, you have to move toward it. Every day. And then the universe will stick out its hand and shake. That’s why you have to inquire, you have to knock on the door for a response. Sometimes the response can be seen, sometimes the response cannot be seen. But you cannot stop it, because everything is interconnected within the absolute. So we never know when or how to get that response. So completely beyond planning and speculation, all you can do is move toward the absolute, which means to knock on the door. And then inquiry and response will come up together.
 >
 > – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
