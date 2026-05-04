@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.12]
+  #text(size: 1.2em)[Draft Version 0.6.13]
   
   #datetime.today().display()
   
@@ -353,19 +353,42 @@ In the talk, Katagiri Roshi vividly describes this appeal in terms of *prayer* �
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
-It’s important to understand that this *interacting communion* of appeal and response isn’t so much about trying to get something specific; rather, it is about *full communication* with the universe. In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
+This *interacting communion* of appeal and response isn’t so much about trying to get something specific; rather, it is about *full communication* with the universe. In other words, we have to open ourselves and *listen*, and then the universe responds. In a different talk, Katagiri Roshi says:
 
-> *Satori* (enlightenment) is found in the very simple movement (of wandering in the mountains) which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō dōkō* (感應道交) in Japanese. 
+> *Kan* (感) means “receive,” or “feel.” *Nō* (應) of *kannō* means “respond.”
 > 
+> – From [“*Kuge*: Flowers in the Sky – Talk 6” (September 26, 1988)](1988-09-26-Kuge-Talk-6)
+
+In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
+
+> When you learn something from the mountain’s life, at that time it’s really something wonderful. So-called *joy*... something more than joy, but anyway, joy. Or in Zen, maybe that is called “enlightenment”: *satori*. 
+> 
+> *Satori* is not something complicated you have to learn. *Satori* is found in the very simple movement which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō dōkō* (感應道交) in Japanese. 
+> 
+> *Kan* means *perception*, literally. *Perception* means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your *whole body*, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. 
+
+We say that the universe responds, but we are the universe, the universe is us. So perhaps *we* respond…
+
+> So you have to respond, but respond to the mountains with your whole body. When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think you want to know; [rather] those inspirations are represented as lots of questions in your life. Many things in the world of inspiration [are] kind of questions; lots of questions you don’t know [the answer to]. Like, “What is that?” All these questions come up. Those questions are not something you can resolve in the realm of intellect or with intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s *movement*. So within the movement, there is full communication there. So that is to climb the mountains. 
+> 
+> When you are completely drawn in by the mountains and living with the mountains, your living is exactly identical with that of the mountains, and you have to die exactly with the mountains and be alive with the mountains. If you do this, very naturally within each movement, responding to the voiceless voice that the mountain has, there is wonderful inspiration, so-called *learning*, learning  the mountains. This is more than intellectual research. It is not sort of a big [deal] or fascination, it’s very simple. Apparently it’s just like the same things. Religiously speaking, Katagiri is Katagiri, mountains are mountains – nothing different. But – within the materialistic aspect of mountains, there is enormous function of communication between you and mountains. 
+>
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-Although we say this, nevertheless, *kannō* or the “appeal and response” part of *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find appropriate shoes. Maybe learn something about rock climbing. And then: start walking. 
+So *response* is not just an intellectual answer to a question; response is manifested in movement. And within this movement, we can learn about the universe, about ourselves, in a deeper way than our usual intellectual sense.
 
-As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way. That is our *appeal*.
+---
 
-We don’t know *how* the universe will respond. Just that it always does. 
+Although we could call it spiritual, *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find appropriate shoes. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way. That is our *appeal*. 
 
-The difference implied by the *dōkō* part of *kannō dōkō*, which we could translate as “spiritual communion” or “crossing the Way,” is that our goal is very *broad*. We could say our goal is “full communication.” It’s important to understand that this isn’t a side topic; it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
+We don’t know *how* the universe will respond; just that it always does. The *Song of the Jewel Mirror Awareness* says:
+
+>> Subtly included within the true,  
+>> inquiry and response come up together.  
+>
+> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
+
+It’s important to understand that *kannō dōkō* isn’t a side topic, it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
 A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
@@ -3458,17 +3481,6 @@ A random example would be his commentary on  [“*Blue Cliff Record* Case 50: Yu
 > 
 > So that *samadhi* must be each existence, each being. Microphone, your gassho, your washing your face, and your zazen, your walking on the street, your studies. 
 
-More on kannō dōkō: from 1982-12-01-Blue-Cliff-Record-Case-36-Talk-1
-
-When you learn something from the mountains’ life, at that time it’s really something wonderful. Something more than joy, but anyway, joy. Or in Zen, maybe that is called enlightenment; *satori*. 
-
-*Satori* is not something complicated you have to learn. Satori is found in the very simple movement which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō dōkō* in Japanese. 
-
-*Kan* means *perception*, literally. Perception means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your whole body, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. So you have to respond, but respond to the mountains with your whole body. 
-
-When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think you want to know, but it is represented as lots of questions in your life, those inspirations. Many things in the world of inspiration are kind of questions, lots of questions you don’t know [the answer to]. Like, “What’s that?” All these questions come up. Those questions are not something you can resolve in the realm of intellect or with intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s movement. So within the movement, there is full communication there. That is to climb the mountains. 
-
-So when you are completely drawn in by the mountains and living with the mountains, your living is exactly identical with that of the mountains, and you have to die exactly with the mountains, be alive with the mountains. If you do this, very naturally within each movement, responding to the voiceless voice that the mountain has, there is wonderful inspiration, so-called *learning*, learning  the mountains. It is more than intellectual research. It is not a sort of “big” thing or [fourth] dimension, it’s really simple. Apparently it’s just like the same things: religiously speaking, Katagiri is Katagiri, mountains are mountains, nothing different. But within the materialistic aspect of Katagiri and mountains, there is an enormous function of communication between you and mountains. 
 
 
 
@@ -3540,3 +3552,18 @@ And also, this seems important for bringing it all back to ordinairy things, not
 
 How can you build it up? This is a key point you have to learn from now on, toward the 21st century. This is very important. This is a point people don’t know, they always miss it. People are always interested in something *more* than that; because it is *too* pure, it is too simple. It is seemingly not worthy of serious consideration, because daily routine, *gassho*, washing your face, greeting good morning – that is routine. We always say it’s not important, and then practice is something *special*. The religious holiness, if you become holy, what can you do? Please show us. And then you can show walking on the lake. And then people say, “Oh, you are a great holy man!” I don’t think this is [holiness]. Oh, of course, if you can walk [on water], it’s fine. But it is not universal. You have to see the cause and the effect in the realm of the universal world, where all sentient beings exist. Because all sentient beings are qualified to *be*. If you expect something *special* in order to be “holy,” you already ignore the rest of beings who cannot do it! So very naturally, there is discrimination coming up. And then if you become holy, you see the people who are not holy and are always criticizing, consciously or unconsciously, it’s coming up, naturally. 
 
+----
+
+>> When knocking and resounding occur together ...
+>
+> This knocking and resounding is also in the *Hōkyō Zanmai* sutra – *Song of Treasure Mirror Samadhi*. In this sutra it says, “Inquiry and response come up together.” Or here it says “when knocking and resounding occur together.” It means if you really devote yourself to do zazen in the realm of zazen – which is very quiet, completely beyond your yardstick, your evaluation – that means you manifest yourself in [a] totally appropriate way. You manifest yourself as you really are. That is called *acceptance*, total acceptance. Just accept zazen and you. Not accept *you* and zazen; accept silence. Silence means something more than evaluation which you find by your yardstick. Total acceptance is you should be just present in that silence. 
+>
+> Simultaneously, *if you accept* means if you acquire this, [then] very naturally, immediately, something responds [to] you. Because in the realm of silence, many beings exist. The many beings are not existing in the position of their own form; at that time they are always fighting each other. But in the silence, they are existent in peace and harmony. That means each of the beings are nothing but energy, total working. So [working or] energies are really tuning in, cooperating, interconnected, interpenetrated [with] each other. That’s why [your life must spring forth]. How can you be one with zazen and you? What should you do? Your life must spring forth. The life of zazen must spring forth. That means [...] you have to put yourself in the realm of silence first, where your zazen is also present. And then what do you do? Just [work] together. 
+>
+> So inquiry and response come together simultaneously. That means if you do zazen, that is total acceptance, and then total acceptance is your experience. But your experience is completely total response from the universe. So the universe *echoes*; the sound of the universe really echoes. That’s why if you do it, you experience something. You don’t know what it is you experience, but you are fascinated, sometimes. Even though you don’t feel good, it’s exactly helping, it’s really helping your life. If you see your life for the long range, it’s really helping. 
+>
+> So remember, the point is that if you do something with your wholeheartedness, there must be all beings which are waiting to respond to your life, very naturally. You don’t see [them], but it’s really natural. All beings in the universe respond your total acceptance. That is the way of deepening your life. That is a way of manifesting your personality in this world.
+> 
+> So if you do zazen, don’t be hanging around the small self. “I am doing zazen, zazen is helping me” – that is really the small self, it is not real zazen. Because if you think so, you make the function of zazen small – separated from you, separate from others. Anyway, zazen and you, or trees, birds, all sentient beings, are exactly the same and living in the realm of silence. Silence is energy, it is just working, functioning. 
+>
+> – From [“*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes, Talk 1” (March 2, 1983) at 20:34](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
