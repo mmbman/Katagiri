@@ -456,9 +456,9 @@ In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which se
 
 But a problem with this way of looking at karma is that it can quickly become *mechanistic*, or *deterministic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A-Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden – and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also, *enjoying* our garden.
 
-*Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. 
+*Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
 
-And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.” This is all about *kannō dōkō*, the concept we introduced earlier in this chapter: interacting communion of appeal and response with the universe. This is not separate from *action*, or *movement*. 
+This is all about *kannō dōkō*, the concept we introduced earlier in this chapter: interacting communion of appeal and response with the universe. This is not separate from *action*, or *movement*. 
 
 ---
 
