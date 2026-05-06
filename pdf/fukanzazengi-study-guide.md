@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.13]
+  #text(size: 1.2em)[Draft Version 0.6.14]
   
   #datetime.today().display()
   
@@ -367,7 +367,7 @@ In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Moun
 > 
 > *Kan* means *perception*, literally. *Perception* means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your *whole body*, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. 
 
-We say that the universe responds, but we are the universe, the universe is us. So perhaps *we* respond:
+We say that the universe responds, but we are the universe, the universe is us. So perhaps, *we* respond. He continues:
 
 > So you have to respond, but respond to the mountains with your whole body. When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think you want to know; [rather] those inspirations are represented as lots of questions in your life. Many things in the world of inspiration [are] kind of questions; lots of questions you don’t know [the answer to]. Like, “What is that?” All these questions come up. Those questions are not something you can resolve in the realm of intellect or with intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s *movement*. So within the movement, there is full communication there. So that is to climb the mountains. 
 > 
@@ -446,15 +446,19 @@ But again, *total personality* is really not something abstract and separate fro
 
 So the “double face” of *total personality* is that it is *buddha-nature*, but simultaneously it is also *karma*: our ordinary, day-to-day lives, sometimes called “karmic life.” Another way of saying this is that karma *is* buddha-nature, and buddha-nature is karma. For many people, this may be surprising to hear, because it is considerably different from how karma is usually understood. 
 
-In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this issue. In the introduction to the transcripts, I attempt to summarize what he said:
+In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this issue. (See [the series of talks on *Karma* at katagiritranscripts.net](https://katagiritranscripts.net/karma).) He notes that karma is often understood as *action*, or as simple *cause and effect* – but this is not all that karma is. Also he says there is a certain sense of “doom” around the concept of karma: karma is seen as something that locks you into a certain destiny – e.g., “Oh, that’s my twisted karma” – and also as something that functions largely punitively – e.g., “Instant karma’s gonna get you!” But Katagiri Roshi, coming from the teachings of Eihei Dōgen and Sōtō Zen Buddhism, sees karma quite differently. To him, karma is *great energy*, which does at least three things:
 
-> The concept of karma is inextricably entwined with Buddhism itself. However, we should be careful to understand what Katagiri Roshi means by *karma*. Karma is not merely *action*, nor *cause and effect*; nor is it some kind of force that locks us into a certain destiny. According to Katagiri Roshi, karma is great energy that allows us to live, to relate to people and the world, and to move freely into the future.
->
-> – From the introduction by Kikan Michael Howard to [Katagiri Roshi’s talks on *Karma*](https://katagiritranscripts.net/karma).
+- Karma allows us to live.
+- Karma allows us to relate to people and world.
+- Karma allows us to move freely into the future.
 
-*Action* and *cause and effect* are *part* of karma. As we mentioned earlier, much of *Fukanzazengi* is about arranging our circumstances and our body and mind so that we can practice: we can think of this as planting karmic *seeds* that will bloom – at some time, in some way. 
+*Action* and *cause and effect* are *part* of karma. As we mentioned earlier, much of *Fukanzazengi* is about arranging our circumstances and our body and mind so that we can practice. We can think of this as planting karmic *seeds* that will bloom – at some time, in some way. 
 
-But action and cause and effect are not the whole story: our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
+But a problem with this way of looking at karma is that it can quickly become *mechanistic*, or *deterministic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A-Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden – and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also, *enjoying* our garden.
+
+*Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. 
+
+And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.” This is all about *kannō dōkō*, the concept we introduced earlier in this chapter: interacting communion of appeal and response with the universe. This is not separate from *action*, or *movement*. 
 
 ---
 
@@ -462,7 +466,7 @@ Why all the confusion around the word *karma*? It is partly because the word *ka
 
 In fact, arguably, the understanding of the word *karma* is *so* confused, that in about the 4th century in India, in the development of the Yogachara teaching of Mahayana Buddhism, they came up with a new word to use instead. That word is *ālayavijñāna*, which means “storehouse consciousness.” This is a big topic, but for the moment, let’s simply understand that *ālayavijñāna* means basically the same thing as *karma*, only without some of the historical baggage. 
 
-And even earlier than that, Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of Buddha,” or “the origin of suchness.”
+And even earlier than that (about the 2nd century), Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of Buddha,” or “the origin of suchness.”
 
 In Zen, *ālayavijñāna* and *tathāgatagarbha* are considered to be two aspects of the same thing. According to Katagiri Roshi, they are like a piece of paper with two sides. This means exactly the same thing as “karma is buddha-nature.”
 
@@ -2270,7 +2274,7 @@ In his series of talks on *Gakudō-yōjinshū*, [“Points To Watch in Buddhist 
 
 We discussed in Chapter 1 the meaning of *Dō* or *Dao*, “the Way,” but it’s important to review it here so that we can understand *gakudō*, “studying the Way”:
 
-> *Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the Way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
+> *Gakudō* (学道) means “to learn or to study the Way.” *Gaku* (学) means to learn or to study. *Dō* (道) is the Way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 >
 > *The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace, in harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way; that is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 >
