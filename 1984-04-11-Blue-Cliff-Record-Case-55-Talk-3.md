@@ -38,7 +38,7 @@ Chapter 55.
 
 This case contemplates the problem of life and death. Last time we studied the case. This case is very important for us. Today I would like to read verse. But, before we read the verse, would you read this case? Page 365. 
 
-**Reader:*
+**Reader:**
 
 > Tao Wu and Chien Yuan went to a house to make a condolence call. Yuan hit the coffin and said, “Alive or dead?” Wu said, “I won’t say alive, and I won’t say dead.” Yuan said, “Why won’t you say?” Wu said, “I won’t say.” Halfway back, as they were returning, Yuan said, “Tell me right away, Teacher; if you don’t tell me, I’ll hit you.” Wu said, “You may hit me, but I won’t say.” Yuan then hit him.
 >
@@ -54,9 +54,9 @@ This case contemplates the problem of life and death. Last time we studied the c
 >
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
-**Katagiri Roshi:* Okay, the verse pease? 
+**Katagiri Roshi:** Okay, the verse pease? 
 
-**Reader:*
+**Reader:**
 
 > Rabbits and horses have horns—  
 > Oxen and Rams have no horns.  
@@ -69,7 +69,7 @@ This case contemplates the problem of life and death. Last time we studied the c
 > 
 > ( From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary)
 
-**Katagiri Roshi:* Thank you.
+**Katagiri Roshi:** Thank you.
 
 The monk Yuan has faced his question of life and death. Finally, he found a chance to ask his teacher about life and death, when they went to perform funeral service. So Yuan opened the casket and said, what is death. The teacher’s answer says, “I will not say that it is dead. I will not say that it is alive.”
 
@@ -211,7 +211,7 @@ There is the poem by Ryokan I mentioned before: when he was asked by his discipl
 
 Back and front are basic fundamental contradiction, very pure contradiction. Regardless of whether you like or dislike, there is a front and back. And then that front and back, so-called contradictions, are always going in the same and one ground. That is called *falling*: vastness of existence. Because within the leaf, *to fall*, so-called *motion*, *action*, is that which comes into existence including by the help of nature. [There is] spring, autumn, summer, winter, and the rhythm of nature – and then motion, so-called *to fall*, comes into existence. So *to fall* is not an idea, *to fall* is action, motion. So that motion is the implication of vastness of existence. 
 
-Who takes care of this motion? The maple leaf. “Maple leaf” means individual life – *you*. So *you* fall to the ground, from moment to moment. There is subjectivity there, a so-called *person* there. Simultaneously it is a *dharma*, so-called *teaching*, so-called *vastness of existence*. 
+Who takes care of this motion? The maple leaf. “Maple leaf” means individual life – *you*. *You* fall to the ground, from moment to moment. So there is subjectivity there, a so-called *person* there. Simultaneously it is a *dharma*, so-called *teaching*, so-called *vastness of existence*. 
 
 What is vastness of existence? This is just motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should *make alive* in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your practice. Digestion of this motion, so-called vastness of existence, is *you* – individual practice. 
 
