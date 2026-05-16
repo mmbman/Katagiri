@@ -207,17 +207,13 @@ So that’s why here it says “The golden relics still exist right now.” Wher
 
 So finally, there is nothing to comment about this. Relics you can see right now, right here, but it’s real; it’s really there. Those relics are golden relics. You have to meet, from moment to moment. When you have to respect, we have to respect. Anyway, we have to deal with the relics. 
 
-There is the poem said by Ryokan I mentioned before: when he was asked by his disciples, “What is a life and death?” He said, “A maple leaf showing its back, its front. It is falling.”
+There is the poem by Ryokan I mentioned before: when he was asked by his disciples, “What is life and death?” He said, “A maple leaf showing its back, its front. It is falling.”
 
-Back and front are basic fundamental contradictions, very pure contradictions. Regardless of whether you like or dislike, there is a front and back. And then that front and back, so-called contradictions, are always going in the same and one ground. That is called, falling. Vastness of existence. 
+Back and front are basic fundamental contradiction, very pure contradiction. Regardless of whether you like or dislike, there is a front and back. And then that front and back, so-called contradictions, are always going in the same and one ground. That is called *falling*: vastness of existence. Because within the leaf, *to fall*, so-called *motion*, *action*, is that which comes into existence including by the help of nature. [There is] spring, autumn, summer, winter, and the rhythm of nature – and then motion, so-called *to fall*, comes into existence. So *to fall* is not an idea, *to fall* is action, motion. So that motion is the implication of vastness of existence. 
 
-Because within the leaf, to fall, so-called motion, action, is that which comes into existence including by the help of nature. Spring, autumn, summer, winter, and the rhythm of nature. And then motion, so-called *to fall*, comes into existence. So *to fall* is not ideas, *to fall* is action, motion. So that motion is implication of vastness of existence. 
+Who takes care of this motion? The maple leaf. “Maple leaf” means individual life – *you*. So *you* fall to the ground, from moment to moment. There is subjectivity there, a so-called *person* there. Simultaneously it is a *dharma*, so-called *teaching*, so-called *vastness of existence*. 
 
-Who takes care of this motion? Maple leaf. “Maple leaf” means individual life. *You*. 
-
-So *you* fall to the ground, from moment to moment. So there is subjectivity there, so-called person there. Simultaneously, there it is a dharma, so-called teaching, so-called vastness of existence. 
-
-What is the vastness of existence? This is just a motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should make it alive in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your [practice]. Digestion of this motion, so-called vastness of existence, is you, individual practice. 
+What is vastness of existence? This is just motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should *make alive* in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your practice. Digestion of this motion, so-called vastness of existence, is *you* – individual practice. 
 
 When you see the teacher’s relics, well, actually nothing to say. But when you see *this is the teacher’s relics*, exactly you should *gassho*, take care of it. 
 

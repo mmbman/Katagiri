@@ -77,13 +77,15 @@ Or a memorial service. The real nature of a memorial service is complete beyond 
 
 #### 20:40
 
-So ultimate nature is completely transparent. Dōgen Zenji [says this] very simply in *Zenki*, “The Whole Works.” It’s very beautiful words. 
+So ultimate nature is completely transparent. 
+
+Dōgen Zenji [says this] very simply in *Zenki*, “The Whole Works.” It’s very beautiful [words]:
 
 > The great path of the buddhas in its consummation is passage to freedom, is actualization. 
 
-“In its consummation” means in its ultimate nature. If you see it in terms of ultimate nature of being, at that time there are two meanings of “the great path of the buddhas.” One is “passage to freedom” – that means *emancipation*. Always something goes beyond; goes beyond the framework of the table, or tape recorder, or Katagiri, or floor and lights, everything. Completely beyond. And [second,] it is also “actualization.” We call [that] *genjō*. *Genjō* means complete actualization, complete manifestation. *Gen* means “manifestation,” *jō* means “completion” or “achievement”...  well, “completion” is better. So, “complete actualization.”
+“In its consummation” means in its ultimate nature. If you see “the great path of the buddhas” in terms of ultimate nature of being, at that time there are two meanings there.  One is a “passage to freedom” – that means *emancipation*. Always something goes beyond the framework of the table, or tape recorder, or Katagiri, or floor and lights, everything – completely beyond. And also this is *actualization*; we call [that] *genjō*. *Genjō* means complete actualization, complete manifestation. *Gen* means “manifestation,” *jō* means “completion” or “achievement”...  well, “completion” is better. So, “complete actualization.”
 
-So showing your form called *gassho* is something *actualized*. But something actualized by you is not something you can see with your six senses – because it is a perfect actualization, beyond good or bad, right or wrong. Why? Because its nature is based on *emancipation*, the functioning of emancipation – *freedom*. The functioning of the passage to freedom. 
+So showing your *form* called “*gassho*” is something *actualized*. But this actualization, something actualized by you, is not something you can see with your six senses, because it is a perfect actualization, beyond good or bad, right or wrong. Why? Because its nature is based on the functioning of *emancipation* [or] *freedom*; the functioning of the passage to freedom. 
 
 That’s why next Dōgen Zenji [says], 
 
@@ -105,19 +107,15 @@ That means when that actualization is taking place, it is complete actualization
 
 So life passes through life to freedom, and death passes through death to freedom. Table passes through the table to freedom! This is perfect, complete actualization. This is a *form*. That’s why form is important. 
 
-For instance, Ryokan Zen Master in Japan, who is pretty well known by Zen students. He looked like a shabby monk, not a usual monk. He didn’t have a temple; he stayed in a very tiny hut, and he lived by begging. [It is an] interesting story around him. And right before he was going to die, he was asked by his disciples: “What do you think about life?” And he said: “A maple leaf is falling, showing its front and back.” 
+For instance, Ryokan Zen Master in Japan (1758–1831), who is pretty well known by Zen students. He looked like a shabby monk, not a usual monk. He didn’t have a temple; he stayed in a very tiny hut, and he lived by begging. [It is an] interesting story around him. And right before he was going to die, he was asked by his disciples: “What do you think about life?” And he said: “A maple leaf is falling, showing its front and back.” 
 
-This is life, for him. You can understand it, you know? What is life? Life is just like a maple leaf is falling. “Falling” means your life is marching toward death. *[He chuckles.]* Marching to the graveyard. And on the way to the grave, what happens? Showing your back, showing your front – that’s it. Showing crying, showing pleasure – showing suffering, always. This is life. 
+This is life, for him. You can understand it, you know? What is life? Life is just like a maple leaf falling. “Falling” means your life is marching toward death. *[He chuckles.]* Marching to the graveyard. And on the way to the grave, what happens? Showing your back, showing your front – that’s it. Showing crying, showing pleasure – showing suffering, always. This is life. 
 
-Somebody asked me to write a calligraphy, so I added one more thing: death. And about death I said, “When [fall of the maple leaf] is taking place, it is no failure [to] fall.” Do you understand? It is no failure in [falling]. In other words, right in the midst of falling, there is no failure.
+Somebody asked me to write a calligraphy [about life], so I added one more thing: death. And about death I said, “When the maple leaf [is falling], it is no failure [to] fall.” In other words, right in the midst of falling, there is no failure. “No failure” means completely beyond success and failure: just going. *[He laughs.]* No way. This is life, this is death – because death is completely beyond. And also, “completely beyond” is not abstract; it is completely something *actualized*, which is complete and perfect. 
 
-“No failure” means completely beyond success and failure: just going. *[He laughs.]* No way. This is life; this is death. Because death is completely beyond. 
+That’s why the scenery of Fall is beautiful; it’s very beautiful. Sometimes it makes me pensive or sad, feeling human impermanence. But as a whole, autumn is autumn. Through the fall of a single leaf, you can realize the whole world becomes autumn. That’s why the fall of a leaf is something more than the fall of a leaf – it’s the total picture of autumn. Is the total picture of autumn something abstract for us? No. The single maple leaf shows it exactly. 
 
-And also, “completely beyond” is not abstract; it is completely something *actualized*, which is complete and perfect. That’s why the scenery of Fall is beautiful. It’s very beautiful. Sometimes it makes me pensive or sad, and feeling human impermanence. But as a whole, autumn is autumn. Through the fall of a single leaf, you can realize the whole world becomes autumn. So that’s why the fall of a leaf is something more than the fall of a leaf – it’s the total picture of autumn.
-
-Is the total picture of autumn something abstract for us? No. The single maple leaf shows it exactly. 
-
-That is our life. [This is] Katagiri’s life right now – next moment, I don’t know if my life is going on or not. Right now, all I can do is just sit down and talk about Buddha’s teaching, anyway. That’s it. Beyond good or bad, right or wrong, or like or dislike. 
+That is our life. [This is] Katagiri’s life right now – next moment, I don’t know if my life is going on or not. Right now, all I can do is just sit down and talk about Buddha’s teaching. That’s it. Beyond good or bad, right or wrong, or like or dislike. 
 
 That is what Dōgen Zenji says (in *Zenki*, “The Whole Works”). It is a very beautiful first and second paragraph, talking about exactly the total picture of the human world. 
 

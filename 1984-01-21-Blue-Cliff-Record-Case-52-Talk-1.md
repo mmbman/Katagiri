@@ -85,7 +85,7 @@ Before you practice Zen, you imagine lots of things about Zen – through books,
 
 Dōgen Zenji also [says] in his *Shōbōgenzō* (in the chapter *Yuibutsu yobutsu*, “Only Buddha and Buddha”):
 
-> When you realize buddha-dharma, you do not think, ‘This is realization just as I expected.’ Even if you think so, realization invariably differs from your expectation. Realization is not like your conception of it. For this reason, realization cannot take place as previously conceived. When you realize buddha-dharma, you do not consider how realization came about. You should reflect on this. What you think one way or another before realization is not a help for realization.
+> When you realize buddha-dharma, you do not think, ‘This is realization just as I expected.’ Even if you think so, realization invariably differs from your expectation. Realization is not like your conception of it. For this reason, realization cannot take place as previously conceived. When you realize buddha-dharma, you do not consider how realization came about. You should reflect on this: what you think one way or another before realization is not a help for realization.
 
 So, “when you realize buddha-dharma”: *Buddha-dharma* is your original nature of existence, which is constantly gushing out like spring water from the ground. This is the life energy which everyone has, every*thing* has. Even a tree, birds, et cetra. That life energy is constantly gushing out like spring water from the ground, constantly. It means constantly changing, constantly developing. There is no chance you can stop, [no place] you can be stuck; it is constantly developing.
 
