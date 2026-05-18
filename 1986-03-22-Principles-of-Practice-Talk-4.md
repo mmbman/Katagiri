@@ -58,7 +58,7 @@ That [is what Dōgen Zenji talks about] in the chapter “Buddha Nature.” The 
 
 > Therefore the self and environment of sentient being, whole being is not in the least involved in the waxing influences of karma, ...
 
-... this is the usual worldly affairs, our karmic life... 
+... this is the usual worldly affairs, our karmic life.
 
 >  ... is not bred by illusory causations, does not come into being naturally, is not practiced or realized through miraculous powers. Were sentient beings, whole being contingent on the power of karma or on causes or on coming into being naturally, then the realization of all saints and the enlightenment of all Buddhas and the eye pupils of buddhas and patriarchs also will be produced in these ways, and they are not. The entire world is completely free of all dusts as object to the self. Right here there is no second person.
 
@@ -66,9 +66,7 @@ That [is what Dōgen Zenji talks about] in the chapter “Buddha Nature.” The 
 
 But what do we mean, “realization of karmic life?” That is still vibration of the mind. You have to understand what karmic life is. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says [that] karmic life is exactly Buddha’s world, all sentient [beings,] whole being. That means the whole universe. 
 
-If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. 
-
-If so, can we not be free from it? But you can be free from it, because [...] “free from” means [there is] no karmic life because it is exactly connected with the one world, so-called whole universe. That means the karmic life is exactly the whole world by itself – not karmic life *is* the whole world, karmic life *exactly whole world*, no partition between. This is the reality of karmic life, the reality of the samsaric world, which is constantly going, in the realm of this partition I mentioned. 
+If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. If so, can we not be free from it? But you can be free from it, because [...] “free from” means [there is] no karmic life because it is exactly connected with the one world, so-called whole universe. That means the karmic life is exactly the whole world by itself – not karmic life *is* the whole world, karmic life *exactly whole world*, no partition between. This is the reality of karmic life, the reality of the samsaric world, which is constantly going, in the realm of this partition I mentioned. 
 
 How can you [talk about] the very first moment of the karmic life? When you get into the karmic life, can you say [something about] the very first moment of karmic life? Nothing to say. It’s very pure. It’s immediately connected to the eternal world, truth, so it’s very vast. Vastness of karmic life means *nothing*: no concept, no perception of karmic life. 
 

@@ -213,7 +213,7 @@ Back and front are basic fundamental contradiction, very pure contradiction. Reg
 
 Who takes care of this motion? The maple leaf. “Maple leaf” means individual life – *you*. *You* fall to the ground, from moment to moment. So there is subjectivity there, a so-called *person* there. Simultaneously it is a *dharma*, so-called *teaching*, so-called *vastness of existence*. 
 
-What is vastness of existence? This is just motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should *make alive* in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your practice. Digestion of this motion, so-called vastness of existence, is *you* – individual practice. 
+What is vastness of existence? This is just motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should *make alive* in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your practice. Digestion of this motion, so-called vastness of existence, is *you*: individual practice. 
 
 When you see the teacher’s relics, well, actually nothing to say. But when you see *this is the teacher’s relics*, exactly you should *gassho*, take care of it. 
 

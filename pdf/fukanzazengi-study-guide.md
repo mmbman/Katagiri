@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.14]
+  #text(size: 1.2em)[Draft Version 0.6.15]
   
   #datetime.today().display()
   
@@ -484,7 +484,7 @@ But practically speaking, what does it mean to sit down in the midst of this *to
 > 
 > In other words, if you really see deeply the total picture of the human world, *samsara* – how transient the world is, how fragile human life is – then you can hear the cries. And then if you hear the cries, very naturally the cries of the human beings are simultaneously the listener, so-called Avalokiteshvara. So immediately you can appeal for help, and simultaneously the universe reaches out to you with its hands. [...] You can see the path through which you and the universe are crossing each other. 
 > 
-> And then how can you do this? That is by manifestation of your wholeheartedness. When you chant, when you repeat the name of Buddha, when you do *gassho*, you *do* it. And then, there is exactly the total presence of your life. That total presence of your life is exactly the same as the total presence of the universe, before you poke your head into it. And then you feel peaceful, simultaneously. 
+> And then how can you do this? That is by manifestation of your wholeheartedness. When you chant, when you repeat the name of Buddha, when you do *gassho* (a standing bow), you *do* it. And then, there is exactly the total presence of your life. That total presence of your life is exactly the same as the total presence of the universe, before you poke your head into it. And then you feel peaceful, simultaneously. 
 > 
 > That is sitting zazen, exactly. You don’t know; but even though you don’t know, if you sit exactly, totally, with wholeheartedness, some part of your body feels it. You can feel peaceful, because your presence and the presence of the universe are exactly crossing each other. 
 > 
@@ -546,7 +546,7 @@ The translation of *shu* (修) as “practice” seems straightforward, but the 
 >
 > The first one and second one, *kaku* and *satori*, both are something which you can experience through the six senses. But *shō* translated as “realization” is a little more than that which you can experience or you can awaken [to]. [It has] a little deeper meaning than *kaku*, “awakening,” or *satori*, “enlightenment.”
 >
-> So I don't know how to translate it, but maybe we can say *shō*, translated literally as *verification* or *witness*, means “actualizing the consummation of being.” [Or actualizing the] ultimate nature of being. 
+> So I don't know how to translate it, but maybe we can say that *shō*, translated literally as *verification* or *witness*, means “actualizing the consummation of being,” [or actualizing the consummation of the] *ultimate nature* of being. 
 >
 > “Consummation of being” – how can I say it – is a place where everything synchronizes with each other. Well, according to [what Buddha said], I think [whether] animate being or inanimate beings, all [were] simultaneously enlightened when he attained enlightenment. He said, “I and heaven and earth [...] are the same and one root, where all living beings attain enlightenment simultaneously.” That is a *consummation of being*. Consummation of the ultimate nature of being is the same and one place where everything coexists in peace. 
 > 
@@ -555,6 +555,8 @@ The translation of *shu* (修) as “practice” seems straightforward, but the 
 Katagiri Roshi then explains that *shō* is the same as “suchness” or “thusness.” We’ll return to the topic of “suchness” in Chapter 11: “Practice Suchness Immediately.” He continues:
 
 > So *shō*, the consummation of being, is not [something] you try to manifest. No, you cannot do it, because this is exactly the *ultimate* state of existence. You don't know [it]. But the unique way is to let it manifest by virtue of making your water clear or calm. Or, practically speaking, you really devote yourself to do something thoroughly, with sincere heart, *exactly* do it: then, the consummation of being comes out, emerges from [that] naturally. That is our practice. 
+>
+> But we always try to get that truth or consummation of being. We try to get it. That's why we say, “By practice, let's attain enlightenment.” That makes you *more* confused. It's pretty hard to get such enlightenment. Of course you can attain enlightenment, but that enlightenment is the first or second enlightenment I mentioned: *kaku* or *satori*. Still *kaku* and *satori* are nothing but a human experience, limited by individualities. So it's not universal. Universal enlightenment is the state of being free from individual experience called *kaku*, awakening, or *satori*. 
 >
 > – From [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5” (March 15, 1987)](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5). 
 
@@ -678,25 +680,23 @@ This relates to the meaning of *dharma vehicle*.
 >
 > (From “Dōgen’s *Bendōwa*,” translation by Norman Waddell and Abe Masao in *The Eastern Buddhist*, Vol. IV, No. 1, May 1971, p. 124-157.)
 
-Buddhism, particularly Zen or Mahayana Buddhism, seems rare among religions in the degree to which it is willing to throw its own teachings under a bus to try to point in the direction of real truth. (See, for example, *The Heart Sutra*.) 
+Buddhism, particularly Zen or Mahayana Buddhism, seems rare among religions in the degree to which it is willing to throw its own teachings under a bus to try to point in the direction of real truth. (See, for example, *The Heart Sutra*.) But here in *Fukanzazengi*, we aren’t talking about vehicles in the sense of different teachings or practices. Here we are talking about the *dharma* vehicle. 
 
-But in these lines in *Fukanzazengi*, we don’t seem to be talking about “vehicles” in the sense of different teachings or practices. Here we are talking about the *dharma* vehicle. 
-
-Katagiri Roshi discusses these lines in his talks on *Blue Cliff Record* Case 2: “The Ultimate Path Is Without Difficulty,” talking about the *dharma vehicle* in connection with two other terms from the case: “the Ultimate Path” and “the fundamental vehicle of transcendence.” He says:
+Katagiri Roshi discusses these lines in his talks on *Blue Cliff Record* Case 2: “The Ultimate Path Is Without Difficulty,” talking about the *dharma vehicle* in connection with two other terms from the case: the *Ultimate Path* and the *fundamental vehicle of transcendence*. He says:
 
 > In this pointer Engo Zen Master emphasizes the significance of “the task of the fundamental vehicle of transcendence.” In other words, that is the great path, or the Ultimate Path; he uses a different term [here], *the task of the fundamental vehicle of transcendence*. This is the main point in this pointer. Plainly speaking, this is the truth, or original nature of existence, or *dharma*. Dōgen Zenji said in *Fukanzazengi*, “The dharma vehicle is free and unrestricted, why should we expend sustained effort?” So Dōgen uses the term *dharma vehicle*. 
 > 
 > – From [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1” (January 19, 1980)](https://katagiritranscripts.net/1980-01-19-Blue-Cliff-Record-Case-2-Talk-1).
 
-Katagiri Roshi spends much of Talk 1 unpacking this; it’s well worth reading, but a bit too much to include here. In Talk 2 he sums it up:  
+We can see here the close relationship between the *dharma vehicle* and the *Way* – indeed, “Path” here is translating *tao* or *dao* (道), “Way.” In the next talk, he summarizes the point:  
 
 > Yesterday I told you, the “Ultimate Path” is the same as “the task of the fundamental vehicle of transcendence.” Usually truth is regarded as something which exists far from us, which no one can touch, but I don’t think Buddhism understands it in that way. The truth is always with us. So the characteristic of truth is completely something *transcendent*, which means beyond human speculation – good or bad, right or wrong. It makes all beings live in peace and harmony. That is characteristic of the truth or universe: unifying all things, beyond human judgement, good or bad, right or wrong. 
 >
 > So from this point, how can we approach truth, how can we reach this truth? That’s why we have to manifest ourselves in the state of transcendence. “Transcendence” means the state of a person who is never tossed away by judgement, good or bad, right or wrong. 
 > 
-> That’s why in zazen we shouldn’t judge ourselves, good or bad, right or wrong. Anyway right now, right here, all you have to do is to let the flower of your life force bloom. At that time, good or bad, right or wrong appears and disappears very naturally. But … if you meddle with those thoughts, judgements, evaluations, [then] simultaneously the many kinds of [affective preferences] appears. That is a problem for us, which leaves human beings in confusion and bewilderment.
+> That’s why in zazen we shouldn’t judge ourselves, good or bad, right or wrong. Anyway right now, right here, all you have to do is to let the flower of your life force bloom. At that time, good or bad, right or wrong appears and disappears very naturally. But … if you meddle with those thoughts, judgements, evaluations, [then] simultaneously the many kinds of [affective preferences] appear. That is a problem for us, which leaves human beings in confusion and bewilderment.
 > 
-> So in order to be one with the truth, we have to manifest ourselves in the state of a person who is never tossed away by thoughts and ideas. That means, yesterday I told you, under all circumstances we have to release and forget ourselves, and throw ourselves away to zazen when you have to do zazen. When we have to do gassho, we have to *do* that. At that time, you can really manifest yourself: bloom the flower of life force from moment to moment. Wherever you may be, it is just like a lotus flower.
+> So in order to be one with the truth, we have to manifest ourselves in the state of a person who is never tossed away by thoughts and ideas. That means, yesterday I told you, under all circumstances we have to release and forget ourselves, and throw ourselves away to zazen when you have to do zazen. When we have to do *gassho* (a standing bow), we have to *do* that. At that time, you can really manifest yourself: bloom the flower of life force from moment to moment. Wherever you may be, it is just like a lotus flower.
 > 
 > That is “the task of the fundamental vehicle of transcendence,” which is called the Ultimate Path. That is really the great vehicle which you are right on. Truth is not something which we can think, we can envision, we can believe, but it is something that you have to *be right on*. That is the Ultimate Path. At that time, it is without difficulty. It’s really just to be right on the vehicle, which is absolutely transcendent of human evaluation.
 > 
@@ -706,81 +706,100 @@ Normally when we hear the word “transcendence” we might think it means going
 
 ---
 
-“Vehicle” implies that, at least when you get on it, you’ll be taking a ride. So at that point, “what need is there for one’s concentrated effort?” Katagiri Roshi discusses this later in Talk 1:
+“Vehicle” implies that we’ll be taking a ride, at least when we get on it. So at that point, “what need is there for one’s concentrated effort?” Katagiri Roshi discusses this in the first talk on “The Ultimate Path”:
 
 > Zen is sometimes misunderstood by people because we don’t have a particular object which is called a divine entity, which is called God, which is called the soul, or whatever you say. [...] So very naturally, in the Buddhistic world it might be easier for us to lose what is called *faith*, if you like. *[He chuckles.]* We use the term *faith* and *Buddhist faith*, et cetera. It’s pretty easy [to lose faith], because there is nothing to depend on. 
 >
 > We *want* [something]. But usually if you see something you want to depend on objectively, that is something different from your daily life – because we always have to research what it is. Buddha or Avalokiteshvara, whatever it is: you very naturally want to research what it is. That is ontology, philosophy, psychology. “What is it?” Always the question comes up. And that question really prevents you from releasing and forgetting yourself and throwing yourself into Buddha’s home. 
 > 
-> [The question] is important, but you cannot be *obsessed* with it. That’s why Buddhas and ancestors constantly say, “Get one hundred percent.” If you want to perform gymnastics, get one hundred percent. How? Right now, right here, what should you do? Jump in. This is very practical... because it is not the ontological object, it is something [where] you have to communicate very closely with your daily life. For this, what should you do? Jump into it. Throw yourself into Buddha’s home. 
+> [The question] is important, but you cannot be *obsessed* with it. That’s why Buddhas and ancestors constantly say, “Get one hundred percent.” If you want to perform gymnastics, get one hundred percent. How? Right now, right here, what should you do? *Jump in*. This is very practical... because it is not the ontological object, it is something [where] you have to communicate very closely with your daily life. For this, what should you do? *Jump into it*. Throw yourself into Buddha’s home. 
+
+This “get one hundred percent” does not mean to evaluate your performance. In the example of gymnastics, it means to completely grab the bar – as opposed to, for example, grabbing the bar with one hand, while perhaps holding a sandwich in the other. Earlier in the same talk, Katagiri Roshi explains:
+
+> For instance, if you want to perform gymnastics on the bar, what should you do? It’s very clear. If you want to perform gymnastics on the bar, first of all you have to grab the bar perfectly. If you don’t, even though you approach ninety percent toward the bar, it’s not perfect; you cannot then show your perfect capability in gymnastics, which is called buddha-nature. So even though you approach ninety percent toward the bar, it’s zero! You cannot say, “I got ninety percent.” Ninety percent doesn’t make sense. If you cannot grasp the bar perfectly, it’s completely zero. There is no other number between zero and one hundred percent, because this is what you have to do if you want to perform gymnastics on the bar. How should you catch the bar for this? With your best effort, you have to perfectly jump into the bar. That is what is called “release and forget yourself, and throw yourself into Buddha’s home.” At that time, very naturally, if you catch it, immediately your body will start to move. You don’t know how to move, but anyway your body moves, and you can perform gymnastics freely. That’s why Dōgen Zenji says (in *Shōji*, “Life and Death”), “When functioning comes from the direction of Buddha and you go in accord with it, then, with no strength needed and no thought expended, free from birth and death, you become Buddha.” 
+>
+> At that time, do your gymnastics come from the bar? Or does the function of your gymnastics come from you? Or from where? Can you say *from the bar*? Or can you say *your capability*? Can you say *in between*? You cannot say either. Because, if you catch the bar immediately, perfectly, very naturally you can perform gymnastics. Gymnastics are on the bar; that means it is not a study of existence which is called “what is the bar?” or “what is Katagiri as a practicer?” That is completely out of the question. Usually we ask “what is the bar” before we jump into it, and then we try to study what the bar is, what Katagiri is. Of course, you should know! But you cannot research it perfectly until you satisfy yourself; you can *never* satisfy yourself. 
+>
+> So you should use your consciousness, and understand what the bar is, what you are, *to the minimum*. And then what you have to do is *release*: forget yourself and throw yourself *into* the bar. This is the point. 
+
+He continues: 
+
+> Without this, it’s very difficult. So particularly when you do zazen, this is very fundamental practice for us; that’s why we have to throw [ourselves] into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. I always tell you, zazen must be *pure* zazen. You have to get a hundred percent; we have to grab zazen perfectly. If you can’t, that is zero, completely zero. No ninety-nine percent. We don’t believe this, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, what is called zazen blooms. That is what is called Buddha, Buddha’s home. 
 > 
-> Without this, it’s very difficult. Particularly when you do zazen, this is the very fundamental practice for us, that’s why we have to throw [ourselves] into zazen itself. If you always create some delusion or fascination within your mind, it is not perfect zazen. I always tell you, zazen must be *pure* zazen. You have to get one hundred percent. We have to grab zazen perfectly. If you can’t, that is zero, completely zero. No ninety-nine percent. We don’t believe this, but this is a very fundamental, important practice for us. Only when you throw yourself into zazen, at that time, what is called zazen blooms. That is what is called Buddha, Buddha’s home. 
+> But if you believe zazen is like this, well, you believe zazen is a particular practice. So Zen says zazen is *not* a particular practice; your daily life is your practice. *Gassho*, working, having breakfast – we have to get one hundred percent. We should handle our daily life with *wholeheartedness*. This is what is called *shikan*.
 > 
-> But if you believe zazen is like this, well, you believe zazen is a particular practice. So Zen says zazen is *not* a particular practice; your daily life is practice. *Gassho*, working, having breakfast – we have to get one hundred percent. We should handle our daily life with wholeheartedness. This is what is called *shikan*.
+> At that time, your daily life becomes *vehicle*. What you call the task is “the task of the fundamental *vehicle* of transcendence.” *Transcendence* means completely there is no need for your effort; the function comes from Buddha’s world. Something takes care of you, if you do it. If you create your circumstances which are called perfect zazen, then perfect zazen takes care of you – even if you don’t want it. 
 > 
-> At that time, your daily life becomes *vehicle*. What you call the task is “the task of the fundamental *vehicle* of transcendence.” *Transcendence* means completely there is no need for your effort; function comes from Buddha’s world. Something takes care of you, if you do it. If you create your circumstances which are called perfect zazen, then perfect zazen takes care of you – even though you don’t want it. 
-> 
-> If you always see the zazen from your viewpoint, always there is a question. There is nothing to get, so that’s why you are very skeptical: “Should I spend my whole life doing zazen which is useless? Nothing to get, nothing to develop?” Ridiculous. You cannot do this. But even though you don’t know how much your life or your personality develops or not, well, if someone [has open eyes, they] know pretty well how much you have been developing. 
+> If you always see the zazen from your [own] viewpoint, always there is a question. There is nothing to get, so that’s why you are very skeptical: “Should I spend my whole life doing zazen which is useless? Nothing to get, nothing to develop?” Ridiculous! You cannot do this. But even though you don’t know how much your life or your personality develops or not, well, if someone [has open eyes, they] know pretty well how much you have been developing. 
 > 
 > Anyway, at that time (when your daily life becomes *vehicle*), there is no need for your particular, sustained effort. Why should we expend sustained effort? All you have to do is throw yourself into zazen. At that time, something helps you. That something is completely transcendent. Nothing to say. Nothing to do. 
 > 
-> That’s why that is “the task of the fundamental vehicle of transcendence.” All you have to do is constantly you should be right on this vehicle, one hundred percent. That is really vast. Nothing holy or not holy, and nothing good or bad. All you have to do is just get the bar, with wholeheartedness. 
+> That’s why that is “the task of the fundamental vehicle of transcendence.” All you have to do is constantly you should be *right on* this vehicle, one hundred percent. That is really vast; nothing holy or not holy, and nothing good or bad. All you have to do is just get to the bar with wholeheartedness. 
 > 
 > – From [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1” (January 19, 1980)](https://katagiritranscripts.net/1980-01-19-Blue-Cliff-Record-Case-2-Talk-1).
 
-It may sound intimidating to have to get one hundred percent, but it isn’t a test, it’s an opportunity. Every moment is an opportunity to be on the vehicle. 
+It may sound intimidating to “get one hundred percent,” but again, it’s only about applying oneself wholeheartedly to the task at hand. It isn’t a test; it’s an opportunity. As Katagiri Roshi says, “All you have to do is throw yourself into zazen. At that time, something helps you.”
+
+This topic will come up again in Chapter 6: “A Hairsbreadth Deviation,” and again when we talk about how to work with the mind in zazen. 
 
 --- 
 
-We mentioned earlier that another term for “the fundamental vehicle” is “the great path.” Dōgen Zenji says that the great path is “transcendence” or “going beyond” but it also is “complete actualization.” Katagiri Roshi explains:
+We mentioned earlier that the *dharma vehicle* is basically the same as the *great path* or the *Ultimate Path*. Dōgen Zenji says that the *great path* is “transcendence,” or “going beyond,” but it also is “complete actualization.” Katagiri Roshi explains:
 
-> Dōgen Zenji [says this] very simply in *Zenki*, “The Whole Works.” It’s very beautiful words. [...] 
+> Dōgen Zenji [says this] very simply in *Zenki*, “The Whole Works.” It’s very beautiful [words]:
 > 
 >> The great path of the buddhas in its consummation is passage to freedom, is actualization. 
 > 
-> “In its consummation” means in its ultimate nature. If you see it in terms of ultimate nature of being, at that time there are two meanings of “the great path of the buddhas.” One is “passage to freedom” – that means *emancipation*. Always something goes beyond; goes beyond the framework of the table, or tape recorder, or Katagiri, or floor and lights, everything. Completely beyond. And [second,] it is also “actualization.” We call [that] *genjō*. *Genjō* means complete actualization, complete manifestation. *Gen* means “manifestation,” *jō* means “completion” or “achievement”...  well, “completion” is better. So, “complete actualization.”
-
-This term *actualization* came up in the previous chapter, where Katagiri Roshi discussed the term *shō* or “realization” as “actualizing the consummation of being” or “actualizing the ultimate nature of being.” What do we mean by “actualization”? He continues:
-
-> So showing your form called *gassho* is something *actualized*. But something actualized by you is not something you can see with your six senses – because it is a perfect actualization, beyond good or bad, right or wrong. Why? Because its nature is based on *emancipation*, the functioning of emancipation – *freedom*. The functioning of the passage to freedom. 
-> 
-> That’s why next Dōgen Zenji [says], 
-> 
-> > That passage to freedom in one sense is that life passes through life to freedom. 
-> 
-> If you see life, immediately we can see life in terms of dualism. At that time, [there are] life and death. The same applies to death. This is natural; but the real picture of life is not something like this. That’s why we have to see the real picture of life! Otherwise, it’s very difficult to build up peaceful life, day to day. That’s why ancestors and buddhas are always talking about this. Even though it is difficult for us, we have to think [about it], consider [it] deeply. 
-> 
-> And also he explained,
-> 
-> > When that actualization is taking place, it is without exception the complete actualization of life. 
-> 
-> So the life you can see is not life opposed to death, or [life that] you handle by your feeling – good or bad, right or wrong, dislike or like. The life you can see is complete actualization. This is the form of life, feeling of life you can see, you can hear. So what is life? Life is something more than you can think. 
-> 
-> And also he said,
-> 
-> > It is the complete actualization of death. 
-> 
-> That means when that actualization is taking place, it is complete actualization of death. So death is what? Death is something more than you can think, opposed to life. If you deal with death opposed to life, it scares you. But death is what? Death is complete actualization beyond like or dislike, or good or bad, right or wrong, hatred or not-hatred. Completely beyond, because it is based on the functioning of freedom – passage to freedom. 
-> 
-> So life passes through life to freedom, and death passes through death to freedom. Table passes through the table to freedom! This is perfect, complete actualization. This is a *form*. That’s why form is important. 
-> 
-> For instance, Ryokan Zen Master in Japan, who is pretty well known by Zen students. He looked like a shabby monk, not a usual monk. He didn’t have a temple; he stayed in a very tiny hut, and he lived by begging. [It is an] interesting story around him. And right before he was going to die, he was asked by his disciples: “What do you think about life?” And he said: “A maple leaf is falling, showing its front and back.” 
-> 
-> This is life, for him. You can understand it, you know? What is life? Life is just like a maple leaf is falling. “Falling” means your life is marching toward death. *[He chuckles.]* Marching to the graveyard. And on the way to the grave, what happens? Showing your back, showing your front – that’s it. Showing crying, showing pleasure – showing suffering, always. This is life. 
-> 
-> Somebody asked me to write a calligraphy, so I added one more thing: death. And about death I said, “When [fall of the maple leaf] is taking place, it is no failure [to] fall.” Do you understand? It is no failure in [falling]. In other words, right in the midst of falling, there is no failure.
-> 
-> “No failure” means completely beyond success and failure: just going. *[He laughs.]* No way. This is life; this is death. Because death is completely beyond. 
-> 
-> And also, “completely beyond” is not abstract; it is completely something *actualized*, which is complete and perfect. That’s why the scenery of Fall is beautiful. It’s very beautiful. Sometimes it makes me pensive or sad, and feeling human impermanence. But as a whole, autumn is autumn. Through the fall of a single leaf, you can realize the whole world becomes autumn. So that’s why the fall of a leaf is something more than the fall of a leaf – it’s the total picture of autumn.
-> 
-> Is the total picture of autumn something abstract for us? No. The single maple leaf shows it exactly. 
-> 
-> That is our life. [This is] Katagiri’s life right now – next moment, I don’t know if my life is going on or not. Right now, all I can do is just sit down and talk about Buddha’s teaching, anyway. That’s it. Beyond good or bad, right or wrong, or like or dislike. 
-> 
-> That is what Dōgen Zenji says (in *Zenki*, “The Whole Works”). It is a very beautiful first and second paragraph, talking about exactly the total picture of the human world. 
+> “In its consummation” means in its ultimate nature. If you see “the great path of the buddhas” in terms of ultimate nature of being, at that time there are two meanings there.  One is a “passage to freedom” – that means *emancipation*. Always something goes beyond the framework of the table, or tape recorder, or Katagiri, or floor and lights, everything – completely beyond. And also this is *actualization*; we call [that] *genjō*. *Genjō* means complete actualization, complete manifestation. *Gen* means “manifestation,” *jō* means “completion” or “achievement”...  well, “completion” is better. So, “complete actualization.”
+>
+> So showing your *form* called “*gassho*” is something *actualized*. But this actualization, something actualized by you, is not something you can see with your six senses, because it is a perfect actualization, beyond good or bad, right or wrong. Why? Because its nature is based on the functioning of *emancipation* [or] *freedom*; the functioning of the passage to freedom. 
 > 
 > – From [“*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 2” (October 16, 1988) at 20:40](https://katagiritranscripts.net/1988-10-16-Blue-Cliff-Record-Case-87-Talk-2#2040)
+
+This term *actualization* came up in the previous chapter, where Katagiri Roshi discussed the term *shō* – “realization” or “verification” – as “actualizing the consummation of the ultimate nature of being.” He says that “consummation of the ultimate nature of being is the same and one place where everything coexists in peace.” That is *passage to freedom*. But still that freedom is must be *actualized*. What does that mean? *Actualized* means that this freedom shows a *form*. But this form is something more than we usually think: this form is backed by the whole universe. As Katagiri Roshi says, “That’s why form is important.”
+
+So *form* is *actualization* of freedom, or actualization of *vastness of the universe*. Katagiri Roshi often illustrates this interrelation of freedom and actualization by referring to the classic Zen poem about a falling maple leaf:
+
+> For instance, Ryokan Zen Master in Japan (1758–1831), who is pretty well known by Zen students. He looked like a shabby monk, not a usual monk. He didn’t have a temple; he stayed in a very tiny hut, and he lived by begging. [It is an] interesting story around him. And right before he was going to die, he was asked by his disciples, “What do you think about life?” And he said: “A maple leaf is falling, showing its front and back.” 
+> 
+> This is life, for him. You can understand it, you know? What is life? Life is just like a maple leaf falling. “Falling” means your life is marching toward death. *[He chuckles.]* Marching to the graveyard. And on the way to the grave, what happens? Showing your back, showing your front – that’s it. Showing crying, showing pleasure – showing suffering, always. This is life. 
+> 
+> Somebody asked me to write a calligraphy [about life], so I added one more thing: death. And about death I said, “When the maple leaf [is falling], it is no failure [to] fall.” In other words, right in the midst of falling, there is no failure. “No failure” means completely beyond success and failure: just going. *[He laughs.]* No way. This is life, this is death – because death is completely beyond. And also, “completely beyond” is not abstract; it is completely something *actualized*, which is complete and perfect. 
+>
+> That’s why the scenery of Fall is beautiful; it’s very beautiful. Sometimes it makes me pensive or sad, feeling human impermanence. But as a whole, autumn is autumn. Through the fall of a single leaf, you can realize the whole world becomes autumn. That’s why the fall of a leaf is something more than the fall of a leaf – it’s the total picture of autumn. Is the total picture of autumn something abstract for us? No. The single maple leaf shows it exactly. 
+> 
+> That is our life. [This is] Katagiri’s life right now – next moment, I don’t know if my life is going on or not. Right now, all I can do is just sit down and talk about Buddha’s teaching. That’s it. Beyond good or bad, right or wrong, or like or dislike. 
+> 
+> So that is what Dōgen Zenji says (in *Zenki*, “The Whole Works”). It is a very beautiful first and second paragraph, talking about exactly the total picture of the human world. 
+> 
+> – From [“*Blue Cliff Record* Case 87: Medicine and Disease Subdue Each Other – Talk 2” (October 16, 1988) at 20:40](https://katagiritranscripts.net/1988-10-16-Blue-Cliff-Record-Case-87-Talk-2#2040)
+
+So the fall of the maple leaf is beautiful, because behind it is the whole reality of autumn. Our life is exactly like this.
+
+At other times Katagiri Roshi said more about this maple leaf:
+
+> The back and front [of the maple leaf] is subject and object, in other words, the dualistic world. The idea of the maple leaf, so-called life and death, is nothing but front and back, the dualistic world. If you *think* it, very naturally [it is] showing the front, showing the back. But you cannot judge the life of a maple leaf in terms of just the front, when it appears. No: next moment, the front disappears and the back appears. Finally you don’t know what the life of the maple leaf is: is it the front, or is it the back? No, always front and back, front and back, interacting, and then that is what? Action. Activity. Motion. That is something alive; the life of the maple leaf. It doesn’t stop even for a moment; it’s always going like this. 
+> 
+> Finally, you don’t know what the life of the maple leaf [is]. The maple leaf just functions: total dynamic working. That’s it. If you think it, if you judge it, if you make a choice of your life, very naturally you can say, “It’s the back,” [or] “It’s the front.” That is an idea: a philosophical idea, biological idea, and psychological idea. The something alive within the life of the maple leaf is always moving, and functioning, constantly.
+>
+> – [From “Mindfulness – Talk 3” (March 23, 1984)
+at 1-17:15](1984-03-23-Mindfulness-Talk-3#1-1715)
+
+This functioning of the maple leaf, or our lives, is called *total dynamic working* – or sometimes *emptiness*, or *vastness of existence* – because it is not just one fixed thing; it shows many faces. 
+
+But knowing that, what do we do? Katagiri Roshi says:
+
+> Back and front are basic fundamental contradiction, very pure contradiction. Regardless of whether you like or dislike, there is a front and back. And then that front and back, so-called contradictions, are always going in the same and one ground. That is called *falling*: vastness of existence. Because within the leaf, *to fall*, so-called *motion*, *action*, is that which comes into existence including by the help of nature. [There is] spring, autumn, summer, winter, and the rhythm of nature – and then motion, so-called *to fall*, comes into existence. So *to fall* is not an idea, *to fall* is action, motion. So that motion is the implication of vastness of existence. 
+> 
+> Who takes care of this motion? The maple leaf. “Maple leaf” means individual life – *you*. *You* fall to the ground, from moment to moment. So there is subjectivity there, a so-called *person* there. Simultaneously it is a *dharma*, so-called *teaching*, so-called *vastness of existence*. 
+> 
+> What is vastness of existence? This is just motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should *make alive* in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your practice. Digestion of this motion, so-called vastness of existence, is *you*: individual practice. 
+>
+> – From [“Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984) at 42:52](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3#4252)
+
+So again, as Dōgen Zenji said in *Zenki*: “The great path of the buddhas in its consummation is passage to freedom, is actualization.” This *great path* is the *dharma vehicle*, which is “free and unrestricted.” And yet, there is something to *do* here: our practice. 
+
+Our practice is *shō*, translated as “realization” or “verification.” This is to be “on the vehicle”; it is to be right there with the falling maple leaf. This is to make the vastness of existence alive in our everyday life.
 
 --- 
 
@@ -796,7 +815,7 @@ We’ve mentioned Mahayana Buddhism, of which Zen is a part. It’s well-known t
 > 
 > – From [“*The Awakening of Faith* – Talk 1: Introduction and Invocation” (March 16, 1984)](https://katagiritranscripts.net/1984-03-16-Awakening-of-Faith-Talk-1).
 
-The term *Hinayana* is now considered pejorative and we avoid using it. Humans being humans, in history the terms *Mahayana* and *Hinayana* were immediately assigned to groups of people, but we should consider that this is not the deeper meaning of these words. As we shall see in the next chapter, we might even think of these as two aspects of practice that work together. 
+The term *Hinayana*, usually translated as “Lesser Vehicle” or “Small Vehicle,” is considered problematic, since it is usually applied to the Theravada branch of Buddhism by members of the Mahayana branch. So today, we avoid using that word. In history, the terms *Mahayana* and *Hinayana* were immediately assigned to groups of people, but we should consider that this is not the deeper meaning of these words. As we shall see in the next chapter, we might even think of these as two aspects of practice that work together. 
 
 ```{=typst}
 #pagebreak()
@@ -851,7 +870,7 @@ This gets us back into our discussion of *karma*, and the fundamental teaching t
 > 
 > > Therefore the self and environment of sentient being, whole being is not in the least involved in the waxing influences of karma, ...
 > 
-> ... this is the usual worldly affairs, our karmic life... 
+> ... this is the usual worldly affairs, our karmic life.
 > 
 > >  ... is not bred by illusory causations, does not come into being naturally, is not practiced or realized through miraculous powers. Were sentient beings, whole being contingent on the power of karma or on causes or on coming into being naturally, then the realization of all saints and the enlightenment of all Buddhas and the eye pupils of buddhas and patriarchs also will be produced in these ways, and they are not. The entire world is completely free of all dusts as object to the self. Right here there is no second person.
 > 
@@ -859,13 +878,11 @@ This gets us back into our discussion of *karma*, and the fundamental teaching t
 > 
 >But what do we mean, “realization of karmic life?” That is still vibration of the mind (i.e., a subtle form of thinking). You have to understand what karmic life is. [*Real*] karmic life is not the karmic life separate from this one world, Buddha’s world. But if you say “by realization of the karmic life *I* will be free from karmic life,” this is already you believe that karmic life is separate! So that’s why here it says [that] karmic life is exactly Buddha’s world, all sentient [beings,] whole being. That means the whole universe. 
 > 
-> If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. 
->
-> If so, can we not be free from it? But you can be free from it, because [...] “free from” means [there is] no karmic life, because it is exactly connected with the one world, so-called whole universe. That means the karmic life is exactly the whole world by itself – not karmic life *is* the whole world, karmic life *exactly whole world*, no partition between. This is the reality of karmic life, the reality of the samsaric world, which is constantly going...
+> If so, do we believe [there is] no karmic life? Yes [there] is; here is karmic life! Because it is very closely connected with the one world, so-called *whole being*; that’s why it exists. If so, can we not be free from it? But you can be free from it, because [...] “free from” means [there is] no karmic life because it is exactly connected with the one world, so-called whole universe. That means the karmic life is exactly the whole world by itself – not karmic life *is* the whole world, karmic life *exactly whole world*, no partition between. This is the reality of karmic life, the reality of the samsaric world, which is constantly going...
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 15:16](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#1516)
 
-That, in brief, is why “the entire world is free from dust.” Yet we do not deny the conventional reality: “Hey, look! Dust!” Yet the entire world is *free* from it. 
+That, in brief, is why “the entire world is free from dust,” or karmic life. Yet we do not deny the conventional reality: “Hey, look! Here’s my ordinairy life.”
 
 That is basically the dynamic of what follows in this chapter... with some exciting historical drama thrown into the mix.
 
@@ -878,10 +895,6 @@ In the story, the Fifth Ancestor, Great Master Hung Jen, challenges his monks to
 So although the word “mirror” does not appear in *Fukanzazengi*,  “mirror” is implied by “brushing it clean.” But *Fukanzazengi* says “the whole body” is far beyond the world’s dust. How is “the whole body” related to the mirror? 
 
 The mirror is a common image in Zen Buddhist literature, and it is a deep subject, a bit challenging. Very briefly, we might say that the mirror is the absolute truth which is like a spacious sky, and also it is that which reflects all things, all phenomena, all *dharmas*. So perhaps we can say that the mirror reflects the whole body; the whole body is the reflection of the mirror. This experience “is never apart from one right where one is.”
-
-For a deeper dive into the meaning of *mirror* in Zen, see Katagiri Roshi’s commentary on Dōgen's Zenji’s [“*Kokyō*: The Ancient Mirror”](https://katagiritranscripts.net/kokyo). Katagiri Roshi also talked about zazen being like a mirror in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 5” (June 13, 1979)](https://katagiritranscripts.net/1979-06-13-Fukanzazengi-Talk-5#1234).
-
---- 
 
 Returning to *The Platform Sutra* and “brushing it clean”: Katagiri Roshi tells the whole story with commentary, but let’s just look at what he says about the verses:
 
@@ -981,8 +994,6 @@ The introduction to McRae’s posthumously released *Zen Evangelist: Shenhui, Su
 
 This is perhaps pretty good. However, we should note that – notwithstanding whatever shenanigans happened in history – an understanding of the harmony of “sudden” and “gradual” probably goes back at least to the time of Bodhidharma, if not further. (The “Two Entrances” treatise attributed to Bodhidharma could be seen in this way). And if we look at the Zen literature between Bodhidharma and Dōgen, we can see that such an understanding never completely went away.
 
---- 
-
 For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the Iron Ox,” the pointer to the kōan says:
 
 > If we discuss the gradual, it is going against the ordinary to merge with the Way: in the midst of a bustling market place, seven ways up and down and eight ways across.  
@@ -993,7 +1004,7 @@ For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the I
 >
 > (From *The Blue Cliff Record*, translated by Thomas Cleary & J.C. Cleary.)
 
-Katagiri Roshi discusses this pointer in detail in [“*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1”](https://katagiritranscripts.net/1982-12-22-Blue-Cliff-Record-Case-38-Talk-1). It is not saying that “sudden” is best or “gradual” is best; once again the point is that we need both, according to Katagiri Roshi. Since the *Blue Cliff Record* originated in the Rinzai school – supposedly identified with “sudden enlightenment” – the nuanced take on the sudden here is rather striking. And this more universal view is by no means limited to this one case.
+Katagiri Roshi discusses this pointer in detail in [“*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1”](https://katagiritranscripts.net/1982-12-22-Blue-Cliff-Record-Case-38-Talk-1). It is not saying that “sudden” is best or “gradual” is best; once again the point is that we need both, according to Katagiri Roshi. Since the *Blue Cliff Record* originated in the Rinzai school – supposedly identified with “sudden enlightenment” – the nuanced take on sudden and gradual here is rather striking. And this more universal view is by no means limited to this one case.
 
 Or, for example, in the *Song of the Jewel Mirror Awareness*, we have the lines:
 
@@ -1228,9 +1239,9 @@ Katagiri Roshi discusses “raising an aspiration to escalade the very skies” 
 > 
 > So that *shō*, the consummation of being, is not [something] you try to manifest. No, you cannot do it, because this is exactly the *ultimate* state of existence. You don't know [it]. But the unique way is to let it manifest by virtue of making your water clear or calm. Or, practically speaking, you really devote yourself to do something thoroughly, with sincere heart, *exactly* do it: then, the consummation of being comes out, emerges from [that] naturally. That is our practice. 
 > 
-> But we always try to get that truth or consummation of being. We try to get it. That's why we say, “By practice, let's attain enlightenment.” That makes you *more* confused. It's pretty hard to get such enlightenment. Of course you can attain enlightenment, but that enlightenment is the first or second enlightenment I mentioned: *kaku* or *satori*. Still *kaku* and *satori* are nothing but a human experience, limited by individualities. So it's not universal. Universal enlightenment is the state of being free from individual experience called *kaku*, awakening, or *satori*. According to Buddha's term, it is called *nirvana*. Nirvana. So *nirvana* corresponds to *shō*: proof, or verification. 
-> 
-> So *nirvana* is a place where all kinds of experience of highest spiritual life are melted into. That is called nirvana. In other words, all kinds of the highest level of spiritual life is liberated. And then it is called *nirvana*. That is called *total liberation*. 
+> But we always try to get that truth or consummation of being. We try to get it. That's why we say, “By practice, let's attain enlightenment.” That makes you *more* confused. It's pretty hard to get such enlightenment. Of course you can attain enlightenment, but that enlightenment is the first or second enlightenment I mentioned: *kaku* or *satori*. Still *kaku* and *satori* are nothing but a human experience, limited by individualities. So it's not universal. Universal enlightenment is the state of being free from individual experience called *kaku*, awakening, or *satori*. 
+>
+> According to Buddha's term, it is called *nirvana*. *Nirvana* corresponds to *shō*: proof, or verification. So *nirvana* is a place where all kinds of experience of highest spiritual life are melted into. That is called nirvana. In other words, all kinds of the highest level of spiritual life is liberated. And then it is called *nirvana*. That is called *total liberation*. 
 > 
 > So that's why ... even though you don't experience this *shō*, the actualizing the consummation of being, even though you don't experience the ultimate nature of existence... as best as we can, we try to approach it, we try to come near to it. In many ways – psychologically, intellectually – in many ways we try [to] see even a dim image. As close as you can, you try to approach. That is our study.
 > 

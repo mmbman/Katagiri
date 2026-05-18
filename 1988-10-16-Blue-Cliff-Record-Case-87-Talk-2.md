@@ -107,7 +107,7 @@ That means when that actualization is taking place, it is complete actualization
 
 So life passes through life to freedom, and death passes through death to freedom. Table passes through the table to freedom! This is perfect, complete actualization. This is a *form*. That’s why form is important. 
 
-For instance, Ryokan Zen Master in Japan (1758–1831), who is pretty well known by Zen students. He looked like a shabby monk, not a usual monk. He didn’t have a temple; he stayed in a very tiny hut, and he lived by begging. [It is an] interesting story around him. And right before he was going to die, he was asked by his disciples: “What do you think about life?” And he said: “A maple leaf is falling, showing its front and back.” 
+For instance, Ryokan Zen Master in Japan (1758–1831), who is pretty well known by Zen students. He looked like a shabby monk, not a usual monk. He didn’t have a temple; he stayed in a very tiny hut, and he lived by begging. [It is an] interesting story around him. And right before he was going to die, he was asked by his disciples, “What do you think about life?” And he said: “A maple leaf is falling, showing its front and back.” 
 
 This is life, for him. You can understand it, you know? What is life? Life is just like a maple leaf falling. “Falling” means your life is marching toward death. *[He chuckles.]* Marching to the graveyard. And on the way to the grave, what happens? Showing your back, showing your front – that’s it. Showing crying, showing pleasure – showing suffering, always. This is life. 
 
@@ -117,7 +117,7 @@ That’s why the scenery of Fall is beautiful; it’s very beautiful. Sometimes 
 
 That is our life. [This is] Katagiri’s life right now – next moment, I don’t know if my life is going on or not. Right now, all I can do is just sit down and talk about Buddha’s teaching. That’s it. Beyond good or bad, right or wrong, or like or dislike. 
 
-That is what Dōgen Zenji says (in *Zenki*, “The Whole Works”). It is a very beautiful first and second paragraph, talking about exactly the total picture of the human world. 
+So that is what Dōgen Zenji says (in *Zenki*, “The Whole Works”). It is a very beautiful first and second paragraph, talking about exactly the total picture of the human world. 
 
 #### 31:53
 
