@@ -973,8 +973,7 @@ But back to the forgery. Katagiri Roshi answers a question about this:
 
 It’s not clear what introduction Katagiri Roshi is referring to above, but “Echū” probably refers to National Teacher Dazheng, Nanyang Huizhong (675-775 CE), a disciple of the Sixth Ancestor who often appears in kōans and is the source of several literary phrases used by Dōgen. In *Sokushin Zebutsu* (“This Mind Itself Is Buddha”), Dōgen approvingly quotes National Teacher Dazheng as he, among other things, criticizes “folk stories” or “vulgar tales” added to *The Platform Sutra* that “erase” the true meaning of the Sixth Ancestor’s teaching:
 
-> “When I was wandering about some time ago, I often encountered this type. These days, they’re particularly flourishing. They gather assemblies of three to five hundred and, gazing up at the Milky Way, tell them, ‘This is the message of the South.’ They
-revise the *Platform Sutra*, mixing in vulgar tales and erasing the sage’s intent, misguiding and confusing later followers. How could it represent the oral instruction? How painful that our tradition is so ruined!”
+> “When I was wandering about some time ago, I often encountered this type. These days, they’re particularly flourishing. They gather assemblies of three to five hundred and, gazing up at the Milky Way, tell them, ‘This is the message of the South.’ They revise the *Platform Sutra*, mixing in vulgar tales and erasing the sage’s intent, misguiding and confusing later followers. How could it represent the oral instruction? How painful that our tradition is so ruined!”
 >
 > – From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p. 156.
 
@@ -992,7 +991,13 @@ The introduction to McRae’s posthumously released *Zen Evangelist: Shenhui, Su
 > 
 > – From *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism* by John R. McRae.
 
-This is perhaps pretty good. However, we should note that – notwithstanding whatever shenanigans happened in history – an understanding of the harmony of “sudden” and “gradual” probably goes back at least to the time of Bodhidharma, if not further. (The “Two Entrances” treatise attributed to Bodhidharma could be seen in this way). And if we look at the Zen literature between Bodhidharma and Dōgen, we can see that such an understanding never completely went away.
+This is perhaps pretty good. “A moment-to-moment re-cognition and affirmation of what is already the case, that is, of one's abiding *bodhi*” is basically what we’ve been discussing – that is, *shushō*, *practice-realization*. 
+
+However, we should consider that the history of “suddden” and “gradual” in Buddhism might be even more nuanced than McRae suggests. We’ll look at some examples in the next section.
+
+---
+
+Notwithstanding whatever shenanigans happened in history, an understanding of the harmony of “sudden” and “gradual” probably goes all the way back to the origins of Zen, if not futher. (The “Two Entrances” treatise attributed to Bodhidharma could be seen in this way.) And if we look at the Zen literature between Bodhidharma and Dōgen, we can see that such an understanding never completely went away – nor was it limited to one “school.” 
 
 For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the Iron Ox,” the pointer to the kōan says:
 
