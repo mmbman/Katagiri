@@ -123,25 +123,25 @@ If so, what is taking refuge? What is the point? How can we realize, how can we 
 
 > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 
-Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means interacting communion of appeal and response (*kannō-dōkō*, 感應道交).
+Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means “interacting communion of appeal and response” (*kannō dōkō*, 感應道交).
 
-Appeal means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you, constantly, for help. 
+“Appeal” means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you constantly for help. 
 
-*I appeal* not to [a particular *I*] for help; this appeal is not open to the particular existence. I appeal [to the] *whole universe* for help. In this case, *the whole universe* means [you] don’t know what it is. You realize there is nothing to ask for help in this world, but you realize there is something you can appeal to beyond the human samsaric world, even though you don’t know what it is. 
+*I appeal* not to a particular [thing]; this appeal is not [to a] particular existence. I appeal [to the] *whole universe* for help. In this case, *the whole universe* means [you] don’t know what it is. You realize there is nothing to ask for help in this world, but there is something you can appeal to *beyond* the human samsaric world, even though you don’t know what it is. 
 
-So at that time how do you do it? You *pray*. You pray for your life [or] others’ lives. [Pray] to ... what? Not [to something] particular: to the vastness of space and existence. How do you do [this] in a concrete way? You look up to the sky, and pray. 
+So at that time how do you do it? You *pray*. You pray for your life [or] others’ lives. [Pray] to ... what? Not [to something] particular: to the vastness of space and existence. 
 
-What’s in the sky? We don’t know. Sky is called *akasha* in Sanskrit. *Akasha* is characterized by no obstruction; nothing to obstruct, nothing to interact with. *Akasha* allows all beings to be functioning in peace and harmony. 
+How do you do [this] in a concrete way? You look up to the sky, and pray. What’s in the sky? We don’t know. Sky is called *akasha* in Sanskrit. *Akasha* is characterized by no obstruction; nothing to obstruct, nothing to interact with. *Akasha* allows all beings to be functioning in peace and harmony. 
 
-You don’t know what space is. When you look up to the sky and pray – “please help me,” or something like that – you don’t know what space is. But spiritually, in a deep sense, you already understand what space is – that’s why naturally you look up to the sky and pray. And also the altar in a church or the altar in a Buddhist temple: the altar is a little higher than you, so you always look up to the upper space, and then you pray. And when you pray, you kneel down to the floor, that means you become lower; in other words you become humble. You really become humble, and then at that time you look up to the sky and pray. Intellectually, you don’t understand it, but spiritually, everyone knows [this].
+You don’t know what space is. When you look up to the sky and pray – “please help me,” or something like that – you don’t know what space is. But spiritually, in a deep sense, you already understand what space is – that’s why naturally you look up to the sky and pray. And also the altar in a church or the altar in a Buddhist temple: the altar is a little higher than you, so you always look up to the upper space, and then you pray. And when you pray, you kneel down to the floor, that means you become lower; in other words you become humble. You really become humble, and then at that time you look up to the sky and pray. Intellectually you don’t understand it, but spiritually, everyone knows [this].
 
 So that is *appeal*. 
 
-And then, *response*. At that time, response comes from the whole universe, space, *akasha*. And then this is called *the whole universe* ... I used a different term: spirit of the universe, spirit of *akasha*, whatever. And then, if you completely feel that spirit of the universe, and appeal for the help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. 
+And then, *response*. At that time, response comes from the whole universe, space, *akasha*. And then this is called *the whole universe* ... I used a different term: spirit of the universe, spirit of *akasha*, whatever. And then, if you completely feel that spirit of the universe, and appeal for help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. 
 
 In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 
-That is called *dōkō*, of *kannō-dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
+That is called *dōkō*, of *kannō dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 
 When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 
@@ -153,7 +153,7 @@ That is really *faith*, total security. The moment your mind is vibrated, you ca
 
 In other words, if you really see deeply the total picture of the human world, *samsara* – how transient the world is, how fragile human life is – then you can hear the cries. And then if you hear the cries, very naturally the cries of the human beings are simultaneously the listener, so-called Avalokiteshvara. So immediately you can appeal for help, and simultaneously the universe reaches out to you with its hands. [...] You can see the path through which you and the universe are crossing each other. 
 
-And then how can you do this? That is by manifestation of your wholeheartedness. When you chant, when you repeat the name of Buddha, when you do gassho, you *do* it. And then, there is exactly the total presence of your life. That total presence of your life is exactly the same as the total presence of the universe, before you poke your head into it. And then you feel peaceful, simultaneously. 
+And then how can you do this? That is by manifestation of your wholeheartedness. When you chant, when you repeat the name of Buddha, when you do *gassho* (a standing bow), you *do* it. And then, there is exactly the total presence of your life. That total presence of your life is exactly the same as the total presence of the universe, before you poke your head into it. And then you feel peaceful, simultaneously. 
 
 That is sitting zazen, exactly. You don’t know; but even though you don’t know, if you sit exactly, totally, with wholeheartedness, some part of your body feels it. You can feel peaceful, because your presence and the presence of the universe are exactly crossing each other. 
 
@@ -187,7 +187,7 @@ So [in] everyday life, we must be mindful of Buddha, dharma, sangha, as well as 
 
 **Same person:** I think he’s talking to a certain Brahman who has been memorizing all the Hindu mantras. 
 
-**Katagiri Roshi:** Ah, I see. Yes, in ancient times, I think the Indian people tried to become one with the universe – in other words, I mentioned *kannō-dōkō*: in order to experience the interacting communion of appeal and response. They tried to [do this]; but they didn’t know how. And then they tried to experience that through ritual. That ritual is [like,] “if you do this, you can go there,” so people are really expecting some benefit through the ritual. So ritual is a unique opportunity to allow them to be one with the universe and their life, but Buddhism is a little different. It’s not ritual. Ritual is important, but [it is] the content of ritual, how you take care of ritual. But usually we expect the *result* of a ritual. That’s why Buddha says always the rock is down in the bottom of the lake. They are always expecting some result, but Buddhism is the *quality* of the ritual: how do you digest ritual, every day, instead of attaching to the result of the ritual. If you attach to the result of the ritual, you become very *utilitarian*. 
+**Katagiri Roshi:** Ah, I see. Yes, in ancient times, I think the Indian people tried to become one with the universe – in other words, I mentioned *kannō dōkō*: in order to experience the interacting communion of appeal and response. They tried to [do this]; but they didn’t know how. And then they tried to experience that through ritual. That ritual is [like,] “if you do this, you can go there,” so people are really expecting some benefit through the ritual. So ritual is a unique opportunity to allow them to be one with the universe and their life, but Buddhism is a little different. It’s not ritual. Ritual is important, but [it is] the content of ritual, how you take care of ritual. But usually we expect the *result* of a ritual. That’s why Buddha says always the rock is down in the bottom of the lake. They are always expecting some result, but Buddhism is the *quality* of the ritual: how do you digest ritual, every day, instead of attaching to the result of the ritual. If you attach to the result of the ritual, you become very *utilitarian*. 
 
 **Same person:** So how can you chant Kanzeon’s name without being utilitarian, if you’re asking for help? 
 
