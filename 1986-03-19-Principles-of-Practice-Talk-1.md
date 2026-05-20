@@ -20,7 +20,7 @@ title: "Principles of Practice, Talk 1: The Purpose of Practice"
 
 Before we go into these three issues, today I would like to talk about the purpose of the practice generally: why we have to practice; what is the purpose of the practice. What is the purpose of spiritual life? 
 
-In *Gakudō-yōjinshū*, “Points To Watch in Buddhist Practice,” in the book *Zen Master Dōgen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dōgen Zenji [says]:
+In *Gakudō-yōjinshū* (学道用心集), “Points To Watch in Buddhist Practice,” in the book *Zen Master Dōgen*, page 52, Number Six: “Advice for the Practice of Zen,” first of all Dōgen Zenji [says]:
 
 > The study of the Way through the practice of zazen is of vital importance.
 
@@ -30,7 +30,7 @@ I think I have to say the same sentence in a different way:
 
 I think “the great matter of one’s whole life” is not only [in Dōgen’s works]; you will see this teaching in various Buddhist textbooks. For instance, in the *Saddharma Pundarika Sutra*, in Chapter Two, “Skillfulness,” I think [it says] that “the advent of Buddha Shakyamuni is due to seeing the causes and conditions of the great matter.” It is the same meaning as Dōgen mentions here. *Sanzen gakudō* is translated according to this book as “the study of the Way through the practice of zazen” – *sanzen gakudō* is the great matter of one’s whole life. 
 
-*Gakudō* means “to learn or to study the Way.” *Gaku* means to learn or to study. *Dō* is the Way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
+*Gakudō* (学道) means “to learn or to study the Way.” *Gaku* (学) means to learn or to study. *Dō* (道) is the Way. So *gakudō* is a pretty technical term Dōgen Zenji uses very often: *gakudō*, to study or to learn the Way. 
 
 *The Way* means the universal life beyond conscious or unconscious worlds. This is the Way, where all beings exist in peace and harmony, prior to the germination of any subtle ideas. [...] All sentient beings exist in the realm of the Way; that is called *universal life*. This life is open not only to human beings or living beings, but also inanimate beings: pebbles, water, et cetera. 
 
