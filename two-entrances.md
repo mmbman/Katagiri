@@ -26,6 +26,8 @@ D: Outline of Practice
 
 G: There are many ways to enter the Tao, but in essence, they fall into two categories. The first is to enter through reason. The second is to [enter through correct conduct].
 
+There are many paths to enlightenment, but in essence, they fall into two categories: one is through understanding principles, and the other is through practice.
+
 A: There are many ways to enter the Path, but briefly Speaking they are of two sorts only. The one is "Entrance by Reason" and the other "Entrance by Conduct". 
  
 B:	Now, in entering the path there are many roads. To summarize them, they reduce to two types. The first is entrance by principle and the second entrance by practice. 
@@ -44,8 +46,7 @@ A: By "Entrance by Reason" we mean the realization of the spirit of Buddhism by 
 
 B:	 Entering by principle means that one awakens to the thesis by means of the teachings, and one deeply believes that all living beings, common and sagely, are identical to the True Nature; that it is merely because of the unreal covering of adventitious dust that the True Nature is not revealed. If one rejects the false and reverts to the real and in a coagulated state abides in wall-examining, then self and other, common man and sage, are identical; ...
 
-C: Entrance via principle means to rely on the teaching to awake to the doctrine. Believe deeply that life, both ordinary people and saints, share an identical true nature, but due to adventitious contamination it
-is covered in falsity and cannot shine forth. If one rejects the false and returns to the true, stabilizing oneself in wall-contemplation, self and other, ordinary person and saint, will be equal, one. 
+C: Entrance via principle means to rely on the teaching to awake to the doctrine. Believe deeply that life, both ordinary people and saints, share an identical true nature, but due to adventitious contamination it is covered in falsity and cannot shine forth. If one rejects the false and returns to the true, stabilizing oneself in wall-contemplation, self and other, ordinary person and saint, will be equal, one. 
 
 D: To enter by reason means to realize the essence through instruction and to believe that all living things share the same true nature, which isn’t apparent because it’s shrouded by sensation and delusion. Those who turn from delusion back to reality, who meditate on walls, the absence of self and other, the oneness of mortal and sage...
 

@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.15]
+  #text(size: 1.2em)[Draft Version 0.6.16]
   
   #datetime.today().display()
   
@@ -490,9 +490,13 @@ But practically speaking, what does it mean to sit down in the midst of this *to
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
-It might seem surprising for Avalokiteshvara to appear in a discussion of Zen meditation, but this is common in Katagiri Roshi’s talks. Avalokiteshvara, The Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe, which is what we do in zazen. Avalokiteshvara represents *compassion* in Buddhism – or another word might be *empathy*. The core of Zen is both wisdom and compassion. 
+It might seem surprising for Avalokiteshvara to appear in a discussion of Zen meditation, but this is common in Katagiri Roshi’s talks. Why? Because Avalokiteshvara is the embodiment of *kannō dōkō*, this interacting communion of appeal and response with the universe. 
 
-If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism, or even theology. Katagiri Roshi often talks about religious practice, even “religious zazen,” but for him the word “religious” usually means something very close to “nondualistic.” In other words, “religious” here means basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is “real” zazen – which means not clinging to ideas.
+In Chinese, Avalokiteshvara is known as *Guanyin* (觀音) or *Guanshiyin* (観世音); in Japanese, *Kannon* or *Kanzeon*. The character *kan* (観) means “to perceive.” It turns out that *kan* (感) in *kannō dōkō* is a different character, meaning “to feel.” Nevertheless, these are closely related. 
+
+Avalokiteshvara represents *compassion* in Buddhism – or given what we are saying, another word might be *empathy*. This empathy is not an excercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into*. Avalokiteshvara, The Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe – which is what we do in zazen. 
+
+If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism. Katagiri Roshi often talks about religious practice, even *religious zazen*, but for him the word *religious* usually means something very close to “nondualistic” – or in other words, it is basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is *real* zazen – which means not clinging to ideas.
 
 Yet we quickly get into discussions about whether Avalokiteshvara is a real entity or not. Katagiri Roshi says:
 
@@ -882,7 +886,7 @@ This gets us back into our discussion of *karma*, and the fundamental teaching t
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 15:16](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#1516)
 
-That, in brief, is why “the entire world is free from dust,” or karmic life. Yet we do not deny the conventional reality: “Hey, look! Here’s my ordinairy life.”
+That, in brief, is why “the entire world is free from dust,” or karmic life. Yet we do not deny the conventional reality: “Hey, look! Here’s my ordinairy life!” Yet, it is *free*.
 
 That is basically the dynamic of what follows in this chapter... with some exciting historical drama thrown into the mix.
 
@@ -939,15 +943,15 @@ And yet, we need to climb that thousand-foot pole. This matter of both Shen Hsiu
 > 
 > – From  [“*Platform Sutra* – Talk 1” (March 6, 1987) at 1:02:08](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1#10208). 
 
-So although the line “who could believe in a means to brush it clean” might initially seem to be supporting the verse attributed to the Sixth Ancestor Hui Neng over the verse attributed to Shen Hsiu, keep in mind that the next words in *Fukanzazengi* are, “and yet.” As Katagiri Roshi states above and on other occasions, these perspectives are two aspects of the same reality, and they work together. They are two sides of the same coin, and Dōgen’s “and yet” is basically flipping the coin. 
+So although the line “who could believe in a means to brush it clean” might initially seem to be supporting the verse attributed to the Sixth Ancestor Hui Neng over the verse attributed to Shen Hsiu, keep in mind that the next words in *Fukanzazengi* are, “and yet.” As Katagiri Roshi states above and on other occasions, these perspectives are two aspects of the same reality, and they work together. They are two sides of the same coin, and Dōgen’s “and yet” is basically him flipping the coin. 
 
 ---
 
-Yet, in large part due to the *Platform Sutra*, it is commonly understood that there was a “Northern School” and a “Southern School” in early Zen, and that the Northern School represented “gradual enlightenment,” while the new Southern School represented “sudden enlightenment” – and the Southern School is regarded as superior. 
+Yet, in large part due to the *Platform Sutra*, it is commonly understood that there was a “Northern School” and a “Southern School” in early Zen, and that the Northern School represented “gradual enlightenment,” while the new Southern School represented “sudden enlightenment” – and we regard the Southern School as superior. 
 
 That is the story that we often hear. However, this does not exactly seem to be Dōgen Zenji’s understanding, nor Katagiri Roshi’s. 
 
-Katagiri Roshi even notes that Dōgen Zenji refers to the *Platform Sutra* as “a forged writing.” According to Dōgen:
+Katagiri Roshi even notes that Dōgen Zenji calls at least part of the *Platform Sutra* “a forged writing.” According to Dōgen:
 
 > The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this is a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
@@ -955,9 +959,7 @@ Katagiri Roshi even notes that Dōgen Zenji refers to the *Platform Sutra* as �
 
 First, an explanation: “to see into one’s own nature” is *kenshō* (見性), a term that many Zen students will recognize. *Kenshō* is usually understood as “an enlightenment experience,” which isn’t necessarily wrong. Two points here: *kenshō* (見性) is not the same as *shō* (證) or “realization,” which we discussed in Chapter 3: “Practice-Realization.” Instead, *kenshō* is considered to be basically the same as *satori*. 
 
-And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” 
-
-Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment* – meaning *satori*, or in this case *kenshō*. But as we discussed in Chapter 3, that is not the goal of Dōgen’s Zen. 
+And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment* – meaning *satori*, or in this case *kenshō*. But as we discussed in Chapter 3, that is not the goal of Dōgen’s Zen. 
 
 But back to the forgery. Katagiri Roshi answers a question about this:
 
@@ -971,7 +973,7 @@ But back to the forgery. Katagiri Roshi answers a question about this:
 >
 > – From [“*Platform Sutra* – Talk 1” (March 6, 1987) at 54:25](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1#5425). 
 
-It’s not clear what introduction Katagiri Roshi is referring to above, but “Echū” probably refers to National Teacher Dazheng, Nanyang Huizhong (675-775 CE), a disciple of the Sixth Ancestor who often appears in kōans and is the source of several literary phrases used by Dōgen. In *Sokushin Zebutsu* (“This Mind Itself Is Buddha”), Dōgen approvingly quotes National Teacher Dazheng as he, among other things, criticizes “folk stories” or “vulgar tales” added to *The Platform Sutra* that “erase” the true meaning of the Sixth Ancestor’s teaching:
+It’s not clear what introduction Katagiri Roshi is referring to above, but “Echū” probably refers to National Teacher Dazheng, Nanyang Huizhong (675-775 CE), a disciple of the Sixth Ancestor who often appears in Zen stories and is the source of several literary phrases used by Dōgen. In *Sokushin Zebutsu* (“This Mind Itself Is Buddha”), Dōgen approvingly quotes National Teacher Dazheng as he, among other things, criticizes “folk stories” or “vulgar tales” added to *The Platform Sutra* that “erase” the true meaning of the Sixth Ancestor’s teaching:
 
 > “When I was wandering about some time ago, I often encountered this type. These days, they’re particularly flourishing. They gather assemblies of three to five hundred and, gazing up at the Milky Way, tell them, ‘This is the message of the South.’ They revise the *Platform Sutra*, mixing in vulgar tales and erasing the sage’s intent, misguiding and confusing later followers. How could it represent the oral instruction? How painful that our tradition is so ruined!”
 >
@@ -979,11 +981,9 @@ It’s not clear what introduction Katagiri Roshi is referring to above, but “
 
 It seems that at least in some circles, it has always been understood that the *Platform Sutra* contains revisions by more than one person, some of which are problematic.
 
---- 
+Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. Here we learn – to summarize briefly – that the entire notion of a “Northern School” and “Southern School” was basically the invention of one person: the monk Shen Hui, who (like National Teacher Dazheng) claimed to be a disciple of the Sixth Ancestor, Hui Neng. (Shen Hui should not be confused with Shen Hsiu, the alleged author of the “brush it clean” verse.) Shen Hui, we learn, essentially weaponized the concept of “sudden enlightenment” as a means to attract religious followers, and probably invented the poetry contest story as a means to that end. So succesful was Shen Hui in presenting his simplistic version of Zen, that for hundreds of years the Buddhist establishment essentially avoided discussing the practice of Zen meditation in public, for fear of being accused of the so-called “gradualist fallacy.” 
 
-Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. Here we learn – to summarize briefly – that the entire notion of a “Northern School” and “Southern School” was basically the invention of one historical person: the monk Shen Hui, who (like National Teacher Dazheng, above) claimed to be a disciple of the Sixth Ancestor, Hui Neng. Shen Hui should not be confused with Shen Hsiu, the alleged author of the “brush it clean” verse. Shen Hui, we learn, essentially weaponized the concept of “sudden enlightenment” as a means to attract religious adherents, and probably invented the poetry contest story as a means to that end. So succesful was Shen Hui in presenting his simplified version of Zen, that for hundreds of years the Buddhist establishment essentially avoided discussing the practice of Zen meditation in public, for fear of being accused of the so-called “gradualist fallacy.” This may be an oversimplification of the story – but perhaps not by much. 
-
-From this perspective, *Fukanzazengi* could be seen as Dōgen’s Zenji’s effort, about five hundred years later, to clarify the relationship between so-called sudden and gradual, liberating Zen meditation from these extreme views. Whether or not this was Dōgen’s exact intent, such a liberation is necessary in order to understand Dōgen’s view of Zen meditation.
+This may be an oversimplification of the story – but perhaps not by much. 
 
 The introduction to McRae’s posthumously released *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism* sums up the general point: 
 
@@ -991,15 +991,17 @@ The introduction to McRae’s posthumously released *Zen Evangelist: Shenhui, Su
 > 
 > – From *Zen Evangelist: Shenhui, Sudden Enlightenment, and the Southern School of Chan Buddhism* by John R. McRae.
 
-This is perhaps pretty good. “A moment-to-moment re-cognition and affirmation of what is already the case, that is, of one's abiding *bodhi*” is basically what we’ve been discussing – that is, *shushō*, *practice-realization*. 
+This is perhaps pretty good. “A moment-to-moment re-cognition and affirmation of what is already the case, that is, of one's abiding *bodhi*,” or buddha-nature, is basically what we’ve been discussing – that is, *shushō*, practice-realization. 
 
-However, we should consider that the history of “suddden” and “gradual” in Buddhism might be even more nuanced than McRae suggests. We’ll look at some examples in the next section.
+From this perspective, *Fukanzazengi* could be seen as Dōgen’s Zenji’s effort, about 450 years after the *Platform Sutra*, to clarify the relationship between so-called sudden and gradual, liberating Zen meditation from these extreme views. Whether or not this was Dōgen’s exact intent, such a liberation is necessary in order to understand Dōgen’s view of Zen meditation.
+
+But we should be clear that, notwithstanding whatever shenanigans took place around the composition of the *Platform Sutra*, this more inclusive understanding of “sudden” and “gradual” can be found throughout history, going all the way back to the origins of Zen, if not further. We’ll look at some examples in the next section.
 
 ---
 
-Notwithstanding whatever shenanigans happened in history, an understanding of the harmony of “sudden” and “gradual” probably goes all the way back to the origins of Zen, if not futher. (The “Two Entrances” treatise attributed to Bodhidharma could be seen in this way.) And if we look at the Zen literature between Bodhidharma and Dōgen, we can see that such an understanding never completely went away – nor was it limited to one “school.” 
+If we look at Zen literature between Bodhidharma and Dōgen – that is, from the 6th century China to 13th century Japan – we can see that an understanding of the harmony of “sudden” and “gradual” never completely went away, nor was it limited to one “school.” 
 
-For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the Iron Ox,” the pointer to the kōan says:
+For example, we have the *Blue Cliff Record*, which was composed in the 10th and 11th centuries, and expanded with commentary in the 12th century. In Case 38: “Feng Hsueh’s Workings of the Iron Ox,” the pointer to the *kōan* says:
 
 > If we discuss the gradual, it is going against the ordinary to merge with the Way: in the midst of a bustling market place, seven ways up and down and eight ways across.  
 > 
@@ -1011,7 +1013,7 @@ For example, in *Blue Cliff Record* Case 38: “Feng Hsueh’s Workings of the I
 
 Katagiri Roshi discusses this pointer in detail in [“*Blue Cliff Record* Case 38: Feng Hsueh’s Workings of the Iron Ox, Talk 1”](https://katagiritranscripts.net/1982-12-22-Blue-Cliff-Record-Case-38-Talk-1). It is not saying that “sudden” is best or “gradual” is best; once again the point is that we need both, according to Katagiri Roshi. Since the *Blue Cliff Record* originated in the Rinzai school – supposedly identified with “sudden enlightenment” – the nuanced take on sudden and gradual here is rather striking. And this more universal view is by no means limited to this one case.
 
-Or, for example, in the *Song of the Jewel Mirror Awareness*, we have the lines:
+Or, for example, in the *Song of the Jewel Mirror Awareness*, composed in the 9th century, we have the lines:
 
 > Now there are sudden and gradual  
 > in connection with which are set up basic approaches.  
@@ -1028,17 +1030,29 @@ Katagiri Roshi comments on this:
 
 Note that again, the “Northern School” and “Southern School” are given equal time. 
 
-So, there is a long history of this view before we arrive at what Dōgen Zenji says in *Bendōwa*:
+From the origins of Ch’an or Zen in 6th century China, we have *Two Entrances and Four Practices*, a short text attributed to the legendary First Ancestor, Bodhidharma. Translated to English, it begins something like this:
+
+> Now, in entering the path there are many roads. To summarize them, they reduce to two types. The first is entrance by principle and the second entrance by practice. Entering by principle means that one awakens to the thesis by means of the teachings, and one deeply believes that all living beings, common and sagely, are identical to the True Nature; that it is merely because of the unreal covering of adventitious dust that the True Nature is not revealed. If one rejects the false and reverts to the real and in a coagulated state abides in wall-examining, then self and other, common man and sage, are identical; firmly abiding without shifting, in no way following after the written teachings—this is mysteriously tallying with principle. It is nondiscriminative, quiescent, and inactive; we call it entrance by principle.
+>
+> Entering by practice means the four practices, for all other practices are included within these. What are the four? The first is the practice of requiting injury; the second is the practice of following conditions; the third is the practice of having nothing to be sought; and the fourth is the practice of according with Dharma.
+> 
+> – From *The Bodhidharma Anthology*, “Two Entrances,” translated by Jeffrey L. Broughton.
+
+There is a lot going on here, including some language that is remarkably similar to that of Dōgen Zenji, or indeed similar to any number of Zen ancestors. And notably, “principle” and “practice” sure *sound* like “sudden” and “gradual.”
+
+So evidently, there is a long history of this understanding before we arrive at what Dōgen Zenji says in *Bendōwa*:
 
 > Opening the books of scripture is so that, clearly knowing what the Tathagata teaches on the gradual and sudden practices, when we practice in accordance with these teachings, we invariably gain verification of them; it is not so that, wasting our thinking and calculating, we try in vain to assess their merit for attaining bodhi. 
 >
 > – From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p.193.
 
-This is perhaps referring to an earlier understanding of sudden and gradual in the teachings of the Buddha, but the meaning is about the same. The word “verification” here is once again *shō* (證), which we discussed earlier. This is not a coincidence. 
+This might be referring to an earlier understanding of sudden and gradual in the teachings of the Buddha – but the meaning is about the same. 
+
+Where Dōgen Zenji says, “when we practice in accordance with these teachings, we invariably gain verification of them,” the word “verification” is once again *shō* (證), which we discussed earlier. This is not a coincidence: *shō* is all about going beyond our concepts, including those of “sudden” and “gradual.”
 
 ---
 
-But if we need both approaches, why did Hui Neng become the Sixth Ancestor and not Shen Hsiu? This is a pretty good question, which someone actually asked:
+But if both approaches are valid, why did Hui Neng become the Sixth Ancestor and not Shen Hsiu? This is a pretty good question, which someone actually asked:
 
 > **Question:** Hojo-san, if in the two poems one isn’t closer to the truth than the other poem, why did the Fifth Patriarch make Hui Neng the Sixth Patriarch, rather than both of them? ... Or neither of them, you know? *[He chuckles.]* 
 >
@@ -1052,7 +1066,7 @@ But if we need both approaches, why did Hui Neng become the Sixth Ancestor and n
 >
 > – From [“*Platform Sutra* – Talk 1” (March 6, 1987) at 1:05:55](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1#10555) 
 
-Even so, it’s not one or the other. Returning to the *Song of the Jewel Mirror Awareness*, the next lines say:
+But even so, we can’t get stuck in *no buddha-nature*. Returning to the *Song of the Jewel Mirror Awareness*, the next lines say:
 
 > But even though the basis is reached and the approach comprehended,  
 > true eternity still flows.  
@@ -1069,6 +1083,8 @@ Katagiri Roshi’s comment:
 >
 > – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
 
+This seems to be saying that “true eternity” can still be found in the gradual. 
+
 --- 
 
 Although it may be helpful to challenge the conventional misconceptions on this topic, it’s important to note that the debate over “sudden” and “gradual” is not the primary point in Buddhism, and it could even be seen as a distraction. In another talk, Katagiri Roshi says:
@@ -1077,9 +1093,7 @@ Although it may be helpful to challenge the conventional misconceptions on this 
 >
 > – From [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1” (May 25, 1983) at 30:00](https://katagiritranscripts.net/1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000)
 
-One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” may be that, as we mentioned earlier, the primary point in Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*).
-
-Another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
+One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” may be that, as we mentioned earlier, the point of Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*). Another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
 
 So... heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
@@ -1124,7 +1138,7 @@ Katagiri Roshi comments on this:
 
 Discussions of *a gap* or *separation* are fundamental in Katagiri Roshi’s teaching – so much so that those terms appear in well over half of his talks. Equally numerous are discussions of the opposite, which would be *samadhi*, “one-pointedness,” or “total acceptance,” et cetera, which are how we live in the state where “time and space becomes fresh from moment to moment,” as he says above. Or as he says in [“Fukanzazengi – Talk 1” (June 9, 1979),](https://katagiritranscripts.net/1979-06-09-Fukanzazengi-Talk-1) “You must accept zazen as total activity which is vividly alive from moment to moment.” We also call this *freedom*, or *liberation*.
 
-The gap is the discrimination of consciousness, the mind. It seems to come down to, this is how consciousness works. This is what Katagiri Roshi calls *the dualistic world*. 
+The *gap* is the discrimination of consciousness, the mind. It seems to come down to: this is how consciousness works. This is what Katagiri Roshi calls *the dualistic world*. 
 
 One good discussion of this is in a talk on *Blue Cliff Record* Case 51 – where, one might observe, someone raises almost the same question as Dōgen:
 
@@ -1172,7 +1186,7 @@ One good discussion of this is in a talk on *Blue Cliff Record* Case 51 – wher
 
 This matter of the energy of life coming from the “self” – and here we are not entirely talking about “Big Self” with a capital S – is deep. This is Buddhist psychology, and it is pervasive in Katagiri Roshi’s talks. In particular, in the Yogachara school of Mahayana Buddhism, this relates to the seventh of eight consciousnesses: *manas*, which Katagiri Roshi translates as “ego consciousness.” A full discussion of *manas* is beyond the scope of this presentation, but among the best places to start studying this is in Katagiri Roshi’s series of talks on Dōgen Zenji’s [*Genjōkōan*](https://katagiritranscripts.net/genjokoan), which includes an entire talk on *manas*.
 
-“Like” and “dislike” are also part of consciousness, cognition. The specific phrase “like or dislike” appears in perhaps over a hundred of Katagiri Roshi’s talks. We should understand that we are not trying to *eliminate* like and dislike, but as Katagiri Roshi says above, to “know its limitation.” In this way, we can work with like and dislike, instead of allowing it to work on *us*. 
+“Like” and “dislike” are also part of consciousness, cognition. The specific phrase “like or dislike” appears in perhaps over a hundred of Katagiri Roshi’s talks. We should understand that we are not trying to *eliminate* like and dislike, but as Katagiri Roshi says above, to “know its limitation.” In this way, we can work with like and dislike, instead of allowing them to work on *us*. 
 
 We’ll return to how to work with like and dislike, good or bad, et cetera, in Chapter 9: “Take the Backward Step,” Chapter 15: “Have No Design on Becoming a Buddha,” and probably in many other places. 
 
@@ -1612,27 +1626,28 @@ Katagiri Roshi says:
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 44:03](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#4403)
 
-If we’re expecting this line in *Fukanzazengi* to be a kind of special technique or trick to “do meditation,” what follows in this chapter may be surprising, perhaps even frustrating. Because to “take the backward step” is something simple, *very* simple. In fact, we already covered it, in Chapter 7, “Playing in the Entranceway”:
+If we’re expecting this line in *Fukanzazengi* to be a kind of special technique or trick to “do meditation,” what follows in this chapter may be surprising, perhaps even frustrating. Because to “take the backward step” is something simple – *very* simple. In fact, we already covered it, in Chapter 7, “Playing in the Entranceway”:
 
 > So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say *how* you do it. No, we don’t know. But this is the *tathāgata* stage, according to *The Awakening of Faith*. It is true! So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by buddha-*tathāgata*. At that time, buddha-*tathāgata* knows how to live there. 
 > 
 > Because whatever you think, no matter how long you cognize or you realize that very minute vibration of the mind, you never stop vibrating your mind. So how do you stop vibrating your mind? This is, it’s very simple, *very* simple. It’s very simple, but it’s too simple to know. *[He laughs.]* So all you have to do is just *be there*. 
 > 
-> Just be. *Tathāgata* stops vibrating. “*Tathāgata* knows how to stop vibrating” means just *be* exactly – with no second person, no second thought. This is total dynamic working. You become exactly one.
+> Just be. *Tathāgata* stops vibrating. “*Tathāgata* knows how to stop vibrating” means 
+ – with no second person, no second thought. This is total dynamic working. You become exactly one.
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986)](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4)
 
-If you got that – or maybe even if you didn’t get it – this is probably a good point to pause, stop reading for a while, and maybe do some actual zazen, before continuing.
+“Just *be there* ... with no second person, no second thought.” If you got that – or maybe even if you didn’t get it – this is probably a good point to pause, stop reading for a while, and maybe do some actual zazen, before continuing.
 
 In the same talk, Katagiri Roshi says much more to explain this, so we will go back to the beginning and cover some ground. 
 
 --- 
 
-Katagiri Roshi’s teachings about “taking the backward step” take us in a direction we might not expect: understanding the nature of Buddhist *faith*, or *belief*. 
+Katagiri Roshi’s teachings about “taking the backward step” or “just be there” take us in a direction we might not expect: understanding the nature of Buddhist *faith*, or *belief*. 
 
-Often in English translations of Buddhist texts, words with Western religious connotations are used where no such connotation is meant, which causes considerable confusion. For example, the word “defiled” means something very different in Buddhism (at least in Zen Buddhism) than how it is usually heard: in Buddhism, *defiled* means almost the same as “dualistic”; there is no moral implication, or at least far less of one. So one might justifiably wonder: “Is there a translation issue here?”
+Often in English translations of Buddhist texts, words with Western religious connotations are used where no such connotations are meant, which leads to considerable confusion. For example, the word “defiled” means something very different in Buddhism (at least in Zen Buddhism) than how it is usually heard: in Buddhism, *defiled* means almost the same as “dualistic”; there is no moral implication, or at least far less of one. So one might justifiably wonder about the word *faith*: “Is there a translation issue here?” 
 
-“Faith,” however, is an accurate translation of the Sanskrit word *śraddhā*, in Japanese *shin* (信). Still, we have to be careful how we understand this *faith*. Buddhist faith is not so much faith in a religious figure or a doctrine. Buddhist faith is faith in the Way: “Where all beings exist in peace and harmony, prior to the germination of any subtle ideas.” (See Chapter 2: “The Way.”)
+“Faith,” however, is an accurate translation of the Sanskrit word *śraddhā*, or in Japanese *shin* (信). Still, we have to be careful how we understand this *faith*. Buddhist faith is not so much faith in a religious figure, doctrine, or ideology. Buddhist faith is faith in the Way: “Where all beings exist in peace and harmony, prior to the germination of any subtle ideas.” (See Chapter 2: “The Way.”)
 
 What does that mean? Katagiri Roshi says:
 
@@ -1644,17 +1659,17 @@ What does that mean? Katagiri Roshi says:
 > > 
 > > (From *Zen Master Dōgen: An Introduction with Selected Writings*, translated by Yuho Yokoi with Daizen Victoria, page 57.)
 > 
-> So the essence of the practice, practicing the Way, is to believe that you are present right in the midst of the Way, “subject to neither delusion, illusive thoughts, and confused ideas nor increase, decrease, and mistaken understanding.” This is the first important point. 
+> So the essence of the practice, practicing the Way, is to believe that you are present right in the midst of the Way, “subject to neither delusion, illusive thoughts, and confused ideas nor increase, decrease, and mistaken understanding.” This is the first important point. If you want to continue to practice spiritual life, I think we should believe that we are constantly present in the Way, and are not deluded, not having the illusive thought, with no increase, no decrease, and no mistaken understanding – something like that. 
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986)](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4)
 
 This is called “belief” – but it’s not intellectual belief, or at least it’s not limited to intellectual belief. In fact it’s more or less the opposite of that: it’s precise oneness with what’s going on, “with no confusions, no perverted views, no increase or decrease, no misunderstanding.” Dōgen Zenji says, “Engendering belief like this, clarify the Way and practice it accordingly.”
 
-Why do we need this belief? For at least two reasons. The first reason is that “to become one with the Way” – “to forget even a trace of enlightenment” – we cannot do that through the intellect. The only way is to put ourselves directly there, again and again. The only way we can do *that* is through something we can call “faith” or “belief” – because it’s something we are *doing*, enacting, right in the midst of whatever we are thinking or feeling about it. 
+Why do we need this belief? For at least two reasons. The first reason is that “to become one with the Way” – “to forget even a trace of enlightenment” – we cannot do that through the intellect. The only way is to put ourselves directly there, again and again. The only way we can do *that* is through something we can call “faith” or “belief” – because it is something that we are *doing*, enacting, right in the midst of whatever we are thinking or feeling about it. 
 
-This “putting ourselves directly there” is “taking the backward step.” So in this sense, taking the backward step is the application of faith.
+This “putting ourselves directly there” is to “take the backward step.” So in this sense, taking the backward step is the application of faith.
 
-Again, taking the backward step is to return to the very inception of the moment. Katagiri Roshi says:
+But *why* do we need to do this in the first place? Katagiri Roshi says: 
 
 > So in the very inception of being, here and now – in other words, in the very inception of birth – [it] is completely [beyond] questions. But in that realm of the world, you are creating your life, constantly. That’s why everyone has a great capability to create a world, life. 
 > 
@@ -1664,7 +1679,19 @@ Again, taking the backward step is to return to the very inception of the moment
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 15:16](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#1516)
 
-Katagiri Roshi says much more about this in the talk, some of which we have already covered, for example in Chapter 5: “Free from Dust,” where we talked about karmic life not being separate from total dynamic working. But for now, we need to move on to Dōgen Zenji’s second point, where he says how we *get to* this faith. 
+This is why, in the previous section, Katagiri Roshi says about “just *be there*”: “This is total dynamic working. You become exactly one.” This *oneness* is not some individual oneness separate from other “things”; this is oneness *of* everything. He continues:
+
+> This is what is called “one world which makes two worlds”: a world of the intellect or [of the] senses, and a world of so-called spiritual life. According to *The Essence of Buddhism* by D.T. Suzuki – we are studying wisdom and compassion through that textbook – he says that most people believe “the world is one” only in a world of the intellect. But he says there are two worlds, intellectual and spiritual, but those are not separated, those are one. So there is only one world, which makes two worlds constantly, and two worlds makes one world. This is the reality we live in constantly. 
+>
+> So that *one world* is really pure and clean, but it’s not the pure and clean separate from the world of the intellect or senses – it’s connected. But on the other hand this world of the senses or intellect is not separate from this one world; it’s always connected. 
+> 
+> That’s why in a sense, *one world* is constantly manifesting a state of purity and cleanness, “undefiled.” If you touch it, you will burn out. If you don’t touch it, your life is frozen. I think *The Song of the Jewel Mirror* [talks] about this point. 
+>
+> It’s very difficult to say, but that is *reality*. That’s why we have to understand that *one world* as clear as we can – through the practice, and through understanding with your wisdom, as best as we can, we have to understand. 
+> 
+> – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986)](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4)
+
+Katagiri Roshi says much more about this in the talk, some of which we have already covered, for example in Chapter 5: “Free from Dust,” where we talked about karmic life not being separate from total dynamic working. But for now, we need to move on to Dōgen Zenji’s second point, where he says more how to *get to* this faith – or how to “be *right there*.”
 
 ---
 
@@ -1678,7 +1705,7 @@ Katagiri Roshi continues with Dōgen Zenji’s second important point in *Gakud�
 > 
 > So how can we reach [...] the oneness, so-called *faith*, Buddhist faith? To cut off that root means [you say], “Please... shut up. Just do it.” *[He laughs.]* That’s it. Don’t you think so? “Please keep your mouth shut, do it.” That’s all we have to do. 
 > 
-> For instance, I mentioned maybe before, a gentleman in Japan was interested in running a business, so he asked a Zen master, “I have a big problem, please help me.” So the Zen master asked, “What’s that?” And then [the gentleman] said, “I am very interested in running a business.” Well, whatever kind of business, business is all right. But he was interested in running a business, and the teacher said, “Oh, that’s interesting. Please do it.” But the gentleman said, “I don’t have any money.” And then the Zen master said, “If you don’t have money, how can you run a business?” You cannot run a business, so stop and forget it. You know, stop running the business! *[He laughs.]* Stop thinking of running the business. [But the gentleman] says, “That is my problem, because that’s why I want to run a business.” And then the Zen master says, “How can I help you? That’s *your* business, not my business.” *[He laughs, and a couple people laugh.]* 
+> For instance, I mentioned maybe before, a gentleman in Japan was interested in running a business. So he asked a Zen master, “I have a big problem, please help me.” The Zen master asked, “What’s that?” And then [the gentleman] said, “I am very interested in running a business.” Well, whatever kind of business, business is all right. But he was interested in running a business, and the teacher said, “Oh, that’s interesting. Please do it.” But the gentleman said, “I don’t have any money.” And then the Zen master said, “If you don’t have money, how can you run a business?” You cannot run a business, so stop and forget it; you know, stop thinking of running the business! *[He laughs.]* [But the gentleman] says, “That is my problem, because that’s why I want to run a business.” And then the Zen master says, “How can I help you? That’s *your* business, not my business.” *[He laughs, and a couple people laugh.]* 
 > 
 > Is that clear for you? That is *cut off the root of discriminating mind*. Not ignoring discriminating mind. We are always doing [something] like this. “I want to do zazen, but I don’t want to have physical pain, et cetera. And I want to sleep in bed until 10 o’clock. So I want to do zazen, I want to deepen my life, et cetera; I want to be happy. But I don’t want to do zazen getting up in the morning!” *[He laughs.]* That is your problem. How can I help you? I don’t know; that’s your business! *[He laughs.]* Do you understand? 
 > 
@@ -1702,7 +1729,9 @@ Katagiri Roshi continues with Dōgen Zenji’s second important point in *Gakud�
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 25:23](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#2523)
 
-People may have a reaction to hearing “please shut up.” In the next talk, there is a question about this:
+This is the other reason why we need faith: because no-one can do this practice for us. Teachers can show and encourage us, buddhas and bodhisattvas support us, but the only person who can do *your* practice is *you*. So we have to have faith in ourselves: faith that we are already a “container” of the dharma, so we are completely qualified to do this practice. *Faith* is the motive power to actually do the practice. 
+
+Despite the statement that this is about putting your body *right there* in Zen meditation and being exactly one with the very minute vibration of the mind, people often have a reaction to hearing “please shut up.” In the next talk, there is a question about this:
 
 > **Question:** Hojo-san? Taking the backward step, it’s like saying, “please shut up”?
 > 
@@ -1718,9 +1747,7 @@ People may have a reaction to hearing “please shut up.” In the next talk, th
 >
 > – From [“Principles of Practice, Talk 5: Direct Transmission” (March 23, 1986) at 1:03:30](https://katagiritranscripts.net/1986-03-23-Principles-of-Practice-Talk-5#10330)
 
-This is the other reason why we need faith: because no-one can do this practice for us. Teachers can show and encourage us, buddhas and bodhisattvas support us, but the only person who can do *your* practice is *you*. So we have to have faith in ourselves: faith that we are already a “container” of the dharma, so we are completely qualified to do this practice. *Faith* is the motive power to actually do the practice. 
-
-But, to be clear, this is not saying to “shut up” forever. It means when you do zazen, *do* zazen. It’s not about attaching to silence. In another talk, Katagiri Roshi says:
+To be clear, this is not saying to “shut up” forever. It’s saying when you do zazen, *do zazen*. And when you speak, *speak*. It’s not about attaching to silence. In another talk, Katagiri Roshi says:
 
 > So, life and death is complete vastness, nothing to comment, nothing to say – but, there is the place you have to apply your effort. So-called, you have to say something about it. 
 > 
@@ -1728,13 +1755,33 @@ But, to be clear, this is not saying to “shut up” forever. It means when you
 >
 > – From [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984)](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
 
+In a talk on *Fukanzazengi*, he used an expression other than “shut up.” Here is referring to *shikantaza*, wholehearted sitting, which is the kind of zazen we do:
+
+> All you have to do is just be one with *shikantaza* itself. At that time, very naturally, your body and mind are really basking in *shikantaza*, and *shikantaza* is basking in your body and mind. They don't bother each other; [they are] just there, [functioning]. But if even for a moment you come out of this *shikantaza*, you can look at yourself and also many things around you. And then immediately, the mind starts to attach – making noise. 
+> 
+> That's why this morning I told you: *cease fire*. Completely cease fire. 
+> 
+> *Cease fire* doesn't mean *throw away*, or [that there is] nothing to do. It's not necessary to do anything particular in order to stop stop firing, stop shooting. Nothing to do; all you have to do is, here is *shikantaza*. [...]
+>
+> – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4” (March 22, 1986) at 32:16](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4#3216)
+
+To “cease fire” is to take the backward step. And then what happens? 
+
+> On the other hand, *stop shooting* “catches” many things. Even the tiny sound of a needle falling onto the floor, you can catch it. So that is completely ceasing fire: [your] surroundings are perfectly calm; at that time, you can *catch* everything. 
+>
+> – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4” (March 22, 1986) at 32:16](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4#3216)
+
+As we will see in a little bit, this is “illuminating the self.”
+
 ---
 
 Katagiri Roshi continues:
 
-> Anyway, let’s go back, let’s go back, every day. And then that is called *the backward step*. [It is] not “withdraw.” 
+> Anyway, let’s go back, let’s go back, every day. And then that is called *the backward step*. [It is] not [to] “withdraw.” 
 >
 > That is called *reflection*. 
+>
+> – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 44:03](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#4403)
 
 Interestingly, Katagiri Roshi calls the backward step “reflection.” This seems to mean looking deeply at discriminating mind in order to cut off discriminating mind. Why is this interesting? Because, in Buddhist terms, the movement of discriminating mind is *suffering*. 
 
