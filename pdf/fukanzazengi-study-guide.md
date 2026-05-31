@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.16]
+  #text(size: 1.2em)[Draft Version 0.6.17]
   
   #datetime.today().display()
   
@@ -185,7 +185,7 @@ Katagiri Roshi explains the term *zazen*:
 >
 > I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
 >
-> In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground or earth 土.) [...] That [indicates that] you have to sit with more than two beings, [and] not only human beings; you cannot sit alone. So you should sit with more than two beings on the earth, in the universe – not in your own egoistic, selfish territory. 
+> In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground or earth 土.) [...] That [indicates that] you have to sit with more than two beings, [and] not only human beings. You cannot sit alone, so you should sit with more than two beings on the earth, in the universe – not in your own egoistic, selfish territory. 
 >
 > [If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. And then very naturally [...] *that* sitting is exactly *zen*, tranquility – because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 > 
@@ -267,7 +267,7 @@ But this is the conclusion: you can do it. Whatever your situation, whether you 
 
 According to *Kenzeiki*, a biography of Dōgen Zenji written in the 15th century, Dōgen’s deep question, the one driving him to seek out the truth of Buddhism, was something like this: “If, as the sutras teach, all people are endowed with Buddha-nature, why is it that we have to practice to realize that Buddha-nature?”
 
-In the first part of *Fukanzazengi*, which we discuss in Chapters 2 through 8, Dōgen Zenji restates this question and answers it. To understand his answer, we first need to understand what Dōgen means by “the Way.”
+In the first part of *Fukanzazengi*, which we discuss in Chapters 2 through 8, Dōgen Zenji restates this question and answers it. To understand his answer, first we need to understand what Dōgen means by “the Way.”
 
 “The Way” is *tao* or *dao* (道) in Chinese, or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
@@ -379,9 +379,11 @@ So *response* is not just an intellectual answer to a question; response is mani
 
 ---
 
-Although we could call it spiritual, *kannō dōkō* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find appropriate shoes. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way. That is our *appeal*. 
+Although we may call it spiritual, *appeal and response* isn’t something divorced from ordinary considerations. If we want to “wander in the mountains,” we may need to do some basic preparation. Pack some provisions. Find appropriate shoes. Maybe learn something about rock climbing. And then: start walking. As we will see, much of the middle part of *Fukanzazengi* is about *arranging* our circumstances and our body and mind so that we can wholeheartedly engage with the Way. That is our *appeal*. 
 
-We don’t know *how* the universe will respond; just that it always does. The *Song of the Jewel Mirror Awareness* says:
+We don’t know *how* the universe will respond; just that it always does. 
+
+The *Song of the Jewel Mirror Awareness* says:
 
 >> Subtly included within the true,  
 >> inquiry and response come up together.  
@@ -400,7 +402,7 @@ It’s important to understand that this appeal and response isn’t a side topi
 
 A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
-If you assume that, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
+If you assume this, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
 
 So what do we assume instead? *Interactive communion* of appeal and response with the universe, or *full communication*. How can we actually experience this *total* communication? Katagiri Roshi says:
 
@@ -446,7 +448,7 @@ But again, *total personality* is really not something abstract and separate fro
 
 So the “double face” of *total personality* is that it is *buddha-nature*, but simultaneously it is also *karma*: our ordinary, day-to-day lives, sometimes called “karmic life.” Another way of saying this is that karma *is* buddha-nature, and buddha-nature is karma. For many people, this may be surprising to hear, because it is considerably different from how karma is usually understood. 
 
-In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this issue. (See [the series of talks on *Karma* at katagiritranscripts.net](https://katagiritranscripts.net/karma).) He notes that karma is often understood as *action*, or as simple *cause and effect* – but this is not all that karma is. Also he says there is a certain sense of “doom” around the concept of karma: karma is seen as something that locks you into a certain destiny – e.g., “Oh, that’s my twisted karma” – and also as something that functions largely punitively – e.g., “Instant karma’s gonna get you!” But Katagiri Roshi, coming from the teachings of Eihei Dōgen and Sōtō Zen Buddhism, sees karma quite differently. To him, karma is *great energy*, which does at least three things:
+In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this matter. (See [the series of talks on *Karma* at katagiritranscripts.net](https://katagiritranscripts.net/karma).) He notes that karma is often understood as *action*, or as simple *cause and effect* – but this is not all that karma is. Also he says there is a certain sense of “doom” around the concept of karma: karma is seen as something that locks you into a certain destiny – e.g., “Oh, that’s my twisted karma” – and also as something that functions largely punitively – e.g., “Instant karma’s gonna get you!” But Katagiri Roshi, coming from the teachings of Eihei Dōgen and Sōtō Zen Buddhism, sees karma quite differently. To him, karma is *great energy*, which does at least three things:
 
 - Karma allows us to live.
 - Karma allows us to relate to people and world.
@@ -454,9 +456,9 @@ In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which se
 
 *Action* and *cause and effect* are *part* of karma. As we mentioned earlier, much of *Fukanzazengi* is about arranging our circumstances and our body and mind so that we can practice. We can think of this as planting karmic *seeds* that will bloom – at some time, in some way. 
 
-But a problem with this way of looking at karma is that it can quickly become *mechanistic*, or *deterministic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A-Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden – and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also, *enjoying* our garden.
+But a problem with this way of looking at karma is that it can quickly become *mechanistic*, or *deterministic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden, and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also – *enjoying* our garden.
 
-*Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary “karmic” lives are actually extraordinary “buddha” lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
+*Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary *karmic* lives are actually extraordinary *buddha* lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
 
 This is all about *kannō dōkō*, the concept we introduced earlier in this chapter: interacting communion of appeal and response with the universe. This is not separate from *action*, or *movement*. 
 
@@ -466,7 +468,7 @@ Why all the confusion around the word *karma*? It is partly because the word *ka
 
 In fact, arguably, the understanding of the word *karma* is *so* confused, that in about the 4th century in India, in the development of the Yogachara teaching of Mahayana Buddhism, they came up with a new word to use instead. That word is *ālayavijñāna*, which means “storehouse consciousness.” This is a big topic, but for the moment, let’s simply understand that *ālayavijñāna* means basically the same thing as *karma*, only without some of the historical baggage. 
 
-And even earlier than that (about the 2nd century), Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of Buddha,” or “the origin of suchness.”
+And even earlier than that (about the 2nd century), Mahayana Buddhism introduced another new word: *tathāgatagarbha*, which means the same thing as *buddha-nature*. In fact, *tathāgatagarbha* is more or less where the term *buddha-nature* comes from. *Tathāgata* is another word for *buddha*, and it also implies *suchness*: it means something like “thus coming and going.” And *garbha* literally means “womb.” So we could  think of *tathāgatagarbha* as “the origin of Buddha,” or “the origin of suchness.” Or even, “the origin of the Way.”
 
 In Zen, *ālayavijñāna* and *tathāgatagarbha* are considered to be two aspects of the same thing. According to Katagiri Roshi, they are like a piece of paper with two sides. This means exactly the same thing as “karma is buddha-nature.”
 
@@ -492,9 +494,9 @@ But practically speaking, what does it mean to sit down in the midst of this *to
 
 It might seem surprising for Avalokiteshvara to appear in a discussion of Zen meditation, but this is common in Katagiri Roshi’s talks. Why? Because Avalokiteshvara is the embodiment of *kannō dōkō*, this interacting communion of appeal and response with the universe. 
 
-In Chinese, Avalokiteshvara is known as *Guanyin* (觀音) or *Guanshiyin* (観世音); in Japanese, *Kannon* or *Kanzeon*. The character *kan* (観) means “to perceive.” It turns out that *kan* (感) in *kannō dōkō* is a different character, meaning “to feel.” Nevertheless, these are closely related. 
+In Chinese, Avalokiteshvara is known as *Guanyin* (觀音) or *Guanshiyin* (観世音); in Japanese, *Kannon* or *Kanzeon*. The character *kan* (観) means “to observe.” It turns out that *kan* (感) in *kannō dōkō* is a different character, meaning “to feel.” Nevertheless, these are closely related. 
 
-Avalokiteshvara represents *compassion* in Buddhism – or given what we are saying, another word might be *empathy*. This empathy is not an excercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into*. Avalokiteshvara, The Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe – which is what we do in zazen. 
+Avalokiteshvara represents *compassion* in Buddhism. Given what we are saying, another word might be *empathy*. This empathy is not an excercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into* something. Avalokiteshvara, the Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe – which is what we do in zazen. 
 
 If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism. Katagiri Roshi often talks about religious practice, even *religious zazen*, but for him the word *religious* usually means something very close to “nondualistic” – or in other words, it is basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is *real* zazen – which means not clinging to ideas.
 
@@ -594,7 +596,7 @@ In one of his talks on the *Diamond Sutra*, Katagiri Roshi explained the distinc
 >
 > – From [“*Diamond Sutra*, Talk 9: Emptiness” (August 1, 1979)](https://katagiritranscripts.net/1979-08-01-Diamond-Sutra-Emptiness).
 
-An important point here is that *shō* is always present. Our practice is to “be with it.” Or sometimes Katagiri Roshi says “be right there,” or “right now, right here,” or “be right on.” We’ll discuss this more in the next section on the *dharma vehicle*.
+An important point here is that *shō* is always present. Our practice is to “be with it.” Or sometimes Katagiri Roshi says “be right there,” or “right now, right here,” or “be right on.” We’ll discuss this more in the next chapter, “The Dharma Vehicle.”
 
 --- 
 
@@ -1087,13 +1089,15 @@ This seems to be saying that “true eternity” can still be found in the gradu
 
 --- 
 
-Although it may be helpful to challenge the conventional misconceptions on this topic, it’s important to note that the debate over “sudden” and “gradual” is not the primary point in Buddhism, and it could even be seen as a distraction. In another talk, Katagiri Roshi says:
+Although it may be helpful to challenge the conventional misconceptions on this topic, the debate over “sudden” and “gradual” is not the primary point in Buddhism, and it could even be seen as a distraction. In another talk, Katagiri Roshi says:
 
 > Zen history says Sōtō Zen is “gradual enlightenment,” Rinzai Zen is “sudden enlightenment.” It’s ridiculous! *[He laughs.]* If you talk about this, it’s ridiculous. If you’re really crazy about this discussion, you don’t understand Zen Buddhism, you don’t understand Buddha’s teaching, you don’t understand human life. *[He chuckles.]* History is history. Don’t worry about it. If you see someone who is interested in history, let him do that. But don’t be involved in it too much.
 >
 > – From [“*Blue Cliff Record* Case 45: Chao Chou’s Seven-Pound Cloth Shirt, Talk 1” (May 25, 1983) at 30:00](https://katagiritranscripts.net/1983-05-25-Blue-Cliff-Record-Case-45-Talk-1#3000)
 
-One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” may be that, as we mentioned earlier, the point of Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*). Another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
+One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that, as we mentioned earlier, the point of Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*). 
+
+Another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
 
 So... heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
@@ -1290,6 +1294,8 @@ Katagiri Roshi discusses “raising an aspiration to escalade the very skies” 
 
 So by zazen you can attain awakening (*kaku*) or enlightenment (*satori*), but these are still temporary, limited experiences – and coming down from them can be a bumpy ride.
 
+On the other hand, you can “arrange circumstances, [arrange] your body and mind to be in peace and harmony, and then, ultimate nature of existence comes out naturally.” That is exactly what *Fukanzazengi* is about.
+
 --- 
 
 Later in the same talk Katagiri Roshi is asked whether *kaku* “awakening” and *satori* “enlightenment” are important.
@@ -1452,8 +1458,6 @@ Katagiri Roshi talks about maturing or deepening our life in most of his talks. 
 > 
 > – From [“Blue Cliff Record Case 51: Hsueh Feng’s What Is It? – Talk 2” (January 18, 1984) at 33:16](https://katagiritranscripts.net/1984-01-18-Blue-Cliff-Record-Case-51-Talk-2#3316).
 
----
-
 Katagiri Roshi often talks about the ripening of the persimmon. Here he is talking about Chao Chou (Jōshū), who was himself a semi-legendary figure in Zen:
 
 > Maybe you can understand the progress of human life in terms of three points. One point, the first stage, is fruit. Second, the ripeness of fruit. [Third], the perfect ripeness of fruit.
@@ -1499,8 +1503,6 @@ But surely a Zen teacher is different from those examples?
 > Uh, no. You cannot say that the teacher is always having the Zen exactness and wonderful zazen. No. Even the teacher has to take care of zazen from moment to moment, as you do. Exactly the same. There is no sign of priding yourself as a master, as a teacher. *No way.* Because, even for the teacher, there is a mind, there is a body, there is breath, and environment, and sensory world. 
 >
 > – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2” (June 10, 1979) at 1:27:20](https://katagiritranscripts.net/1979-06-10-Fukanzazengi-Talk-2#12720).
-
----
 
 And also, this kind of maturation does not happen alone. Here we again see the connection between zazen and the Precepts:
 
@@ -1549,8 +1551,6 @@ After his meeting with Emperor Wu, legend says that Bodhidharma travelled to the
 > **Katagiri Roshi:** That’s it. Wherever he may go. 
 > 
 > For instance, when I come to the United States, on the surface there are many different changes: I used to be in Los Angeles, San Francisco, and [now] here in Minneapolis. But strictly speaking, I’m always sitting and facing the wall. Nothing to teach you, actually. That’s all I have to do. And also, you have nothing to get from me. You’re always sitting facing the wall and being in the location I mentioned (where everything intersects). [...] Day to day, you have to take care of [life] in terms of that location, and then many, many different worlds are coming up, you know? San Francisco and Minneapolis. And then each time we have to take care of different pictures, but basically you have to be in the same location always. That is sitting for nine years; that’s the meaning of Bodhidharma sitting. 
-
---- 
 
 And we sit facing the wall to this day. But here is some more information about what “facing the wall” actually means:
 
@@ -1747,7 +1747,7 @@ Despite the statement that this is about putting your body *right there* in Zen 
 >
 > – From [“Principles of Practice, Talk 5: Direct Transmission” (March 23, 1986) at 1:03:30](https://katagiritranscripts.net/1986-03-23-Principles-of-Practice-Talk-5#10330)
 
-To be clear, this is not saying to “shut up” forever. It’s saying when you do zazen, *do zazen*. And when you speak, *speak*. It’s not about attaching to silence. In another talk, Katagiri Roshi says:
+To be clear, this is not saying to “shut up” forever. It’s saying when you do zazen, *do zazen*. When you think, *think*. And when you speak, *speak*. It’s not about attaching to silence. In another talk, Katagiri Roshi says:
 
 > So, life and death is complete vastness, nothing to comment, nothing to say – but, there is the place you have to apply your effort. So-called, you have to say something about it. 
 > 
@@ -1755,15 +1755,13 @@ To be clear, this is not saying to “shut up” forever. It’s saying when you
 >
 > – From [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984)](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
 
-In a talk on *Fukanzazengi*, he used an expression other than “shut up.” Here is referring to *shikantaza*, wholehearted sitting, which is the kind of zazen we do:
+In a talk on *Fukanzazengi*, he used a different expression meaning the same thing. Here is referring to *shikantaza*, wholehearted sitting, which is the kind of zazen we do:
 
 > All you have to do is just be one with *shikantaza* itself. At that time, very naturally, your body and mind are really basking in *shikantaza*, and *shikantaza* is basking in your body and mind. They don't bother each other; [they are] just there, [functioning]. But if even for a moment you come out of this *shikantaza*, you can look at yourself and also many things around you. And then immediately, the mind starts to attach – making noise. 
 > 
 > That's why this morning I told you: *cease fire*. Completely cease fire. 
 > 
 > *Cease fire* doesn't mean *throw away*, or [that there is] nothing to do. It's not necessary to do anything particular in order to stop stop firing, stop shooting. Nothing to do; all you have to do is, here is *shikantaza*. [...]
->
-> – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 4” (March 22, 1986) at 32:16](https://katagiritranscripts.net/1979-06-12-Fukanzazengi-Talk-4#3216)
 
 To “cease fire” is to take the backward step. And then what happens? 
 
