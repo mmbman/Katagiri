@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.17]
+  #text(size: 1.2em)[Draft Version 0.6.18]
   
   #datetime.today().display()
   
@@ -496,9 +496,9 @@ It might seem surprising for Avalokiteshvara to appear in a discussion of Zen me
 
 In Chinese, Avalokiteshvara is known as *Guanyin* (觀音) or *Guanshiyin* (観世音); in Japanese, *Kannon* or *Kanzeon*. The character *kan* (観) means “to observe.” It turns out that *kan* (感) in *kannō dōkō* is a different character, meaning “to feel.” Nevertheless, these are closely related. 
 
-Avalokiteshvara represents *compassion* in Buddhism. Given what we are saying, another word might be *empathy*. This empathy is not an excercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into* something. Avalokiteshvara, the Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe – which is what we do in zazen. 
+Avalokiteshvara represents *compassion* in Buddhism. Given what we are saying, another word might be *empathy*. This empathy is not an exercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into* something. Avalokiteshvara, the Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe – which is what we do in zazen. 
 
-If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism. Katagiri Roshi often talks about religious practice, even *religious zazen*, but for him the word *religious* usually means something very close to “nondualistic” – or in other words, it is basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is *real* zazen – which means not clinging to ideas.
+If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism. Katagiri Roshi often talks about religious practice, even *religious zazen*, but for him the word *religious* usually means something very close to “non-dualistic” – or in other words, it is basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is *real* zazen – which means not clinging to ideas.
 
 Yet we quickly get into discussions about whether Avalokiteshvara is a real entity or not. Katagiri Roshi says:
 
@@ -888,7 +888,7 @@ This gets us back into our discussion of *karma*, and the fundamental teaching t
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 15:16](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#1516)
 
-That, in brief, is why “the entire world is free from dust,” or karmic life. Yet we do not deny the conventional reality: “Hey, look! Here’s my ordinairy life!” Yet, it is *free*.
+That, in brief, is why “the entire world is free from dust,” or karmic life. Yet we do not deny the conventional reality: “Hey, look! Here’s my ordinary life!” Yet, it is *free*.
 
 That is basically the dynamic of what follows in this chapter... with some exciting historical drama thrown into the mix.
 
@@ -935,7 +935,7 @@ If “originally there is not a single thing,” why does that mean that we have
 > They should step off the top of the thousand-foot pole;  
 > The worlds in the ten directions are their entire body.  
 
-We could say that the first part of the poem, “standing unmoving atop a thousand foot pole,” is realization that “there is not a single thing” – that is, realization of “emptiness.” That’s hard practice! Even if we wanted to, we could not stay there – because “emptiness” is not really “nothingness,” it’s “everythingness.” So rather than keep “ascending” to a pure practice, we need to come down. That’s where we realize that we share our lives with all beings.
+We could say that the first part of the poem, “standing unmoving atop a thousand foot pole,” is realization that “there is not a single thing” – that is, realization of “emptiness.” That’s hard practice! Even if we wanted to, we could not stay there – because “emptiness” is not really “nothingness,” it’s “everything-ness.” So rather than keep “ascending” to a pure practice, we need to come down. That’s where we realize that we share our lives with all beings.
 
 And yet, we need to climb that thousand-foot pole. This matter of both Shen Hsiu’s and Hui Neng’s practices working together is revisited during the questions and answers:
 
@@ -1044,7 +1044,7 @@ There is a lot going on here, including some language that is remarkably similar
 
 So evidently, there is a long history of this understanding before we arrive at what Dōgen Zenji says in *Bendōwa*:
 
-> Opening the books of scripture is so that, clearly knowing what the Tathagata teaches on the gradual and sudden practices, when we practice in accordance with these teachings, we invariably gain verification of them; it is not so that, wasting our thinking and calculating, we try in vain to assess their merit for attaining bodhi. 
+> Opening the books of scripture is so that, clearly knowing what the Tathāgata teaches on the gradual and sudden practices, when we practice in accordance with these teachings, we invariably gain verification of them; it is not so that, wasting our thinking and calculating, we try in vain to assess their merit for attaining bodhi. 
 >
 > – From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p.193.
 
