@@ -38,7 +38,7 @@ The second world is *the world of form*. In other words, this world has no sense
 
 And third is *the world of formlessness*. This is *just* the spiritual world. [In Japanese] we call this *mushiki-kai*. *Mu* is *non*. *Shiki* is *rupa* in Sanskrit. Usually *rupa* is translated as *form*, but *rupa* in Sanskrit means to get something in a dualistic way. In other words, always separating: seeing something, hearing something separately, between subject and object. That is what is called *rupa*: form, the material world, the dualistic world. So *mushiki* means non-*rupa*, non-form. So *formlessness*. 
 
-So dhyāna, zazen, does not take place in the world of desire. The practice of dhyāna starts in the world of form. There is no dhyāna in the world of desire. That’s an interesting point. 
+So *dhyāna*, zazen, does not take place in the world of desire. The practice of *dhyāna* starts in the world of form. There is no dhyāna in the world of desire. That’s an interesting point. 
 
 #### 09:45
 
