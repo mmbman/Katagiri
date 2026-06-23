@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.6.18]
+  #text(size: 1.2em)[Draft Version 0.7]
   
   #datetime.today().display()
   
@@ -46,7 +46,12 @@ fontsize: 12pt
   header: context {
     set text(size: 11pt)
     h(1fr) 
-    [_Making Arrangement: Katagiri Roshi’s Teachings on Fukanzazengi_]
+	let page-num = counter(page).get().first()
+    if calc.even(page-num) {
+		[_Katagiri Roshi’s Teachings on Fukanzazengi_]
+	} else {
+		[_Making Arrangement_]
+	}
     h(1fr) 
   }
 )
@@ -265,7 +270,7 @@ But this is the conclusion: you can do it. Whatever your situation, whether you 
 
 ## Commentary
 
-According to *Kenzeiki*, a biography of Dōgen Zenji written in the 15th century, Dōgen’s deep question, the one driving him to seek out the truth of Buddhism, was something like this: “If, as the sutras teach, all people are endowed with Buddha-nature, why is it that we have to practice to realize that Buddha-nature?”
+According to *Kenzeiki*, a biography of Dōgen Zenji written in the 15th century, Dōgen’s deep question, the one driving him to seek out the truth of Buddhism, was something like this: “If, as the *sutras* (scriptures) teach, all people are endowed with Buddha-nature, why is it that we have to practice to realize that Buddha-nature?”
 
 In the first part of *Fukanzazengi*, which we discuss in Chapters 2 through 8, Dōgen Zenji restates this question and answers it. To understand his answer, first we need to understand what Dōgen means by “the Way.”
 
@@ -365,17 +370,17 @@ In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Moun
 > 
 > *Satori* is not something complicated you have to learn. *Satori* is found in the very simple movement which is exactly fit into the rhythm of life. [You and the mountains] fit together; at that time there is full communication between you and the mountains. That is called *kannō dōkō* (感應道交) in Japanese. 
 > 
-> *Kan* means *perception*, literally. *Perception* means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your *whole body*, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. 
+> *Kan* means *perception*, literally. *Perception* means not only [through] the six senses, not only through consciousness; perception means to receive the mountains with your *whole body*, which exists in the present and the past and the future. So if you perceive the mountains with your whole body, which has been handed down from generation to generation, from the past to the present to the future, at that time you have really great communication. That is *nō* of *kannō*. *Nō* means *respond*. So you have to respond, but respond to the mountains with your *whole* body. 
 
-We say that the universe responds, but we are the universe, the universe is us. So perhaps, *we* respond. He continues:
+This *great communication* is not something abstract or just in our heads; this communication is manifested through *activity*. He continues:
 
-> So you have to respond, but respond to the mountains with your whole body. When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think you want to know; [rather] those inspirations are represented as lots of questions in your life. Many things in the world of inspiration [are] kind of questions; lots of questions you don’t know [the answer to]. Like, “What is that?” All these questions come up. Those questions are not something you can resolve in the realm of intellect or with intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s *movement*. So within the movement, there is full communication there. So that is to climb the mountains. 
+> When your whole body responds to the mountains’ life, at that time it is called *inspiration*. [It is] something more than you think [or] you want to know; [rather the many things in the world of inspiration] are represented as lots of questions you don’t know [the answer to]. Like, “What is that?” Always questions come up. Those questions are not something you can resolve in the realm of intellectual research, but only within movement, only within responding to the rhythm of life which mountains have. If you really respond to this, that response is not a kind of intellectual inspiration, it’s *movement*. Within the movement, there is full communication there. That is to climb the mountains. 
 > 
-> When you are completely drawn in by the mountains and living with the mountains, your living is exactly identical with that of the mountains, and you have to die exactly with the mountains and be alive with the mountains. If you do this, very naturally within each movement, responding to the voiceless voice that the mountain has, there is wonderful inspiration, so-called *learning*, learning  the mountains. This is more than intellectual research. It is not sort of a big [deal] or fascination, it’s very simple. Apparently it’s just like the same things. Religiously speaking, Katagiri is Katagiri, mountains are mountains – nothing different. But – within the materialistic aspect of mountains, there is enormous function of communication between you and mountains. 
+> When you are completely drawn in by the mountains and living with the mountains, your living is exactly identical with that of the mountains, and you have to die exactly with the mountains, and be alive with the mountains. If you do this, very naturally, within each movement responding to the voiceless voice that the mountain has, there is wonderful inspiration, so-called *learning*, learning the mountains. This is more than intellectual research. It is not sort of a big [deal] or fascination; it’s very simple. [It seems to be] just like the [usual] things. Religiously speaking, Katagiri is Katagiri, mountains are mountains – nothing different. *But*, within the materialistic aspect of mountains, there is enormous function of communication between you and the mountains. 
 >
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-So *response* is not just an intellectual answer to a question; response is manifested in movement. And within this movement, we can learn about the universe, about ourselves, in a deeper way than our usual intellectual sense.
+So with this communication, we can learn about the universe, and about ourselves, in a deeper, more direct way than with our usual intellectual processing.
 
 ---
 
@@ -1097,9 +1102,14 @@ Although it may be helpful to challenge the conventional misconceptions on this 
 
 One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that, as we mentioned earlier, the point of Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*). 
 
-Another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
+Another way of putting this is that, if we are studying the *Way*, or *universal life*, it is somewhat absurd to think that it could be divided by north or south, sudden or gradual. As it says in *Sandokai*, “The Harmony of Difference and Sameness,” which dates to 8th century China and is regularly chanted in Zen temples today:
 
-So... heeding Katagiri Roshi’s advice, we’ll leave it at that.
+> While human faculties are sharp or dull,  
+> the Way has no northern or southern ancestors.  
+
+And another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
+
+So, heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
 ```{=typst}
 #pagebreak()
@@ -1430,10 +1440,10 @@ Why was the Buddha “wise at birth,” having “inborn knowledge”? Perhaps i
 
 This matter of “I alone” could perhaps use a bit of additional explanation:
 
-> If you return to the very incipient state of the moment, everything becomes exactly one – interconnectedly, interpenetrately, without any hindrances there. It’s very strange, but it is really true. In terms of human speculation, it’s impossible to think that, but the world of the very incipient moment is really working like this. Everything is working like that. 
+> If you return to the very incipient state of the moment, everything becomes exactly one – interconnectedly, interpenetrately, without any hindrances there. It’s very strange, but it is really true. In terms of human speculation, it’s impossible to think that, but the world of the very incipient moment is really working like this. Everything is working like this. 
 > 
-> That is called *silence*, absolute silence. That is called sometimes *aloneness*. Because when you stand up there, you alone are there – no one around. But you are really working and supported by all living beings. If you have the eyes to open, to see the depths of your existence, you are alone but you are not alone – you are supported by many beings. At that time you can be exactly alone, with stability, with peace and bliss and repose. Exactly. 
-> 
+> That is called *silence*, absolute silence. That is called sometimes *aloneness*. Because when you stand up there, you alone are there – no one around. But you are really working and supported by all living beings. If you have the eyes to open, to see the depths of your existence, you are alone but you are not alone – you are supported by many beings. At that time you can be *exactly* alone, with stability, with peace, and bliss, and repose. Exactly. 
+>
 > – From [“*Kuge*: Flowers in the Sky – Talk 7”](1988-09-27-Kuge-Talk-7)
 
 That is what the Buddha realized. According to Buddhism, “We are Buddha”: that means all beings are already like this; the universe is already functioning in this way. And so:
@@ -3001,6 +3011,9 @@ The “dharma gate of repose and joy” or “dharma gate of repose and bliss”
 
 Search for “repose and bliss.” New good reference in Kuge Talk 7.
 
+> So because everything is interconnected, interpenetrated, when you realize your existence, you are exactly, perfectly, absolutely alone. Beyond being alone or not being alone, beyond your perceptions, you are absolutely alone. Then, you can be free from aloneness. At that time, that is called *repose and bliss*. Just *shikantaza*: sitting zazen, exactly. 
+> 
+> – From [“*Kuge*: Flowers in the Sky – Talk 7”](1988-09-27-Kuge-Talk-7)
 
 ```{=typst}
 #pagebreak()
