@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7]
+  #text(size: 1.2em)[Draft Version 0.7.1]
   
   #datetime.today().display()
   
@@ -200,9 +200,24 @@ Katagiri Roshi explains the term *zazen*:
 
 This was how Katagiri Roshi introduced *zazen* to a small group of people in 1981. Note that almost the very first thing he talks about is not a technical explanation, nor an individual goal, but that we sit with all beings, and not just human beings. 
 
-This point will come up again, frequently. And we’ll return to the definition of zen as *tranquility* in Chapter 12: “Surrender to Tranquility.” 
+This point will come up again, frequently. In fact, it is a key point. A word that we sometimes use for this is *interdependence*.
 
-Katagiri Roshi says about sitting down in *zazen*:
+In a talk on *mindfulness*, Katagiri Roshi explained it like this:
+
+> So [mindfulness is] not the *idea* of mindfulness, because... [Let me say] that [your] observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [and] *you* observe your object, that is the dualistic sense. [That is] very common. And then you judge immediately; [you] think something. That is really taking care of human life according to “one-way traffic.” You never think of *two-way traffic*. Because if you observe your object, the object observes you. In other words, you are *observed by* your object. Subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it, by our customs or patterns of thinking. So that’s why next moment we stumble. You know? *[He chuckles.]*
+>
+> Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it [...] by your sense – see something alive *between* [them], *how* subject and object are working together. That is interpenetration, or *interdependence*, we say. 
+>
+> – [From “Mindfulness – Talk 3” (March 23, 1984)
+at 1-6:56](1984-03-23-Mindfulness-Talk-3#1-656)
+
+Also of interest is the definition of *zen* as *tranquility*. The word *zen* originally comes from the Sanskrit word *dhyana*, which is understood in various ways, but which is usually translated as *meditation*. So to define Zen as *tranquility* is really pointing at something, a question: what *is* Zen meditation? And what is *tranquility*? How should we understand it? And how do we practice it? 
+
+That is basically the topic of *Fukanzazengi*, and this study guide. We’ll return to this understanding of zen as *tranquility* often – espectially in Chapter 12: “Surrender to Tranquility,” where we discuss the term *sanzen*, which is usually translated as “Zen practice.” 
+
+But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
+
+It may sound complicated or confusing at first, but it is actually very simple. Katagiri Roshi says about sitting down in *zazen*:
 
 > *Anyone* can do it. Even if you are not Buddhist, or even if you cannot come [to the Zen Center], you can sit down. [...] This is *shikantaza* (wholehearted sitting). [...] This is *freedom* – open to *everybody*! No exceptions. 
 >
@@ -226,7 +241,7 @@ So zazen is not about eliminating mental or physical states that we don’t like
 
 But what do we mean by “all sentient beings”? This is actually a deep question. In brief, as we will see, “all sentient beings” means *everything*. Sitting with all sentient beings means sitting in the midst of everything that we are experiencing. That, in turn, means sitting in the midst of the total dynamic working of the whole universe. 
 
-This is what Katagiri Roshi means by “not only on our own territory.” Zazen is not a kind of meditation where we are attempting to cut ourselves off from this world and its difficulties. 
+This is what Katagiri Roshi means by “not only on our own territory.” Zazen is not a kind of meditation where we are only trying to improve or perfect ourselves, in a narrow way. Nor are we trying to cut ourselves off from this world and its difficulties. 
 
 Plainly speaking, this is a different understanding than in some varieties of Buddhism. We will explore this topic in more detail as we go on, especially in Chapter 20: “Dullness and Distraction are Struck Aside.”
 
