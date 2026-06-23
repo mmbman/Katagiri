@@ -213,9 +213,7 @@ at 1-6:56](1984-03-23-Mindfulness-Talk-3#1-656)
 
 Also of interest is the definition of *zen* as *tranquility*. The word *zen* originally comes from the Sanskrit word *dhyana*, which is understood in various ways, but which is usually translated as *meditation*. So to define Zen as *tranquility* is really pointing at something, a question: what *is* Zen meditation? And what is *tranquility*? How should we understand it? And how do we practice it? 
 
-That is basically the topic of *Fukanzazengi*, and this study guide. We’ll return to this understanding of zen as *tranquility* often – espectially in Chapter 12: “Surrender to Tranquility,” where we discuss the term *sanzen*, which is usually translated as “Zen practice.” 
-
-But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
+That is basically the topic of *Fukanzazengi*, and this study guide. We’ll return to this understanding of zen as *tranquility* often – espectially in Chapter 12: “Surrender to Tranquility,” where we discuss the term *sanzen*, which is usually translated as “Zen practice.” But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
 
 It may sound complicated or confusing at first, but it is actually very simple. Katagiri Roshi says about sitting down in *zazen*:
 
