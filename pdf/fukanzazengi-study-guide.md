@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7.1]
+  #text(size: 1.2em)[Draft Version 0.7.2]
   
   #datetime.today().display()
   
@@ -211,11 +211,13 @@ In a talk on *mindfulness*, Katagiri Roshi explained it like this:
 > – [From “Mindfulness – Talk 3” (March 23, 1984)
 at 1-6:56](1984-03-23-Mindfulness-Talk-3#1-656)
 
+So basically, *zazen* is sitting in the field of *interdependence*. This is why Katagiri Roshi says, “All we have to do is to do our best to sit in the universe with all sentient beings.”
+
 Also of interest is the definition of *zen* as *tranquility*. The word *zen* originally comes from the Sanskrit word *dhyana*, which is understood in various ways, but which is usually translated as *meditation*. So to define Zen as *tranquility* is really pointing at something, a question: what *is* Zen meditation? And what is *tranquility*? How should we understand it? And how do we practice it? 
 
-That is basically the topic of *Fukanzazengi*, and this study guide. We’ll return to this understanding of zen as *tranquility* often – espectially in Chapter 12: “Surrender to Tranquility,” where we discuss the term *sanzen*, which is usually translated as “Zen practice.” But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
+That is basically the topic of *Fukanzazengi*, and of this study guide. We’ll return to this understanding of zen as *tranquility* often, espectially in Chapter 12: “Surrender to Tranquility,” where we discuss the term *sanzen*, which is usually translated as “Zen practice.” But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
 
-It may sound complicated or confusing at first, but it is actually very simple. Katagiri Roshi says about sitting down in *zazen*:
+It may sound complicated or confusing at first, but it is actually a very simple practice. Katagiri Roshi says about sitting down in *zazen*:
 
 > *Anyone* can do it. Even if you are not Buddhist, or even if you cannot come [to the Zen Center], you can sit down. [...] This is *shikantaza* (wholehearted sitting). [...] This is *freedom* – open to *everybody*! No exceptions. 
 >
@@ -225,11 +227,11 @@ It may sound complicated or confusing at first, but it is actually very simple. 
 
 ---
 
-What does Katagiri Roshi mean when he says that zazen is not only removing all the weeds on our own territory? 
+What does Katagiri Roshi mean when he says that zazen is “not only removing all the weeds on our own territory”? 
 
 By “weeds,” Katagiri Roshi means any mental or physical conditions that we don’t like. We can also understand weeds as *karma* – a topic that we will return to – but again, weeds are the kind of karma that we don’t like. Katagiri Roshi says:
 
-> According to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice... but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
+> But according to a narrow understanding of human life, first you cut off the root of your weeds, and you want to be happy. That's nice... but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
 >
 > So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
 > 
@@ -428,6 +430,8 @@ So what do we assume instead? *Interactive communion* of appeal and response wit
 >
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
+In other words, the practice of *shikan* or *wholeheartedness* is how we experience this full communication.
+
 *Shikan* (只管) here is the same word as in *shikantaza*, “wholehearted sitting.” This is the fundamental practice, here understood in the general sense that we can participate wholeheartedly in *any* activity.
 
 --- 
@@ -514,7 +518,7 @@ It might seem surprising for Avalokiteshvara to appear in a discussion of Zen me
 
 In Chinese, Avalokiteshvara is known as *Guanyin* (觀音) or *Guanshiyin* (観世音); in Japanese, *Kannon* or *Kanzeon*. The character *kan* (観) means “to observe.” It turns out that *kan* (感) in *kannō dōkō* is a different character, meaning “to feel.” Nevertheless, these are closely related. 
 
-Avalokiteshvara represents *compassion* in Buddhism. Given what we are saying, another word might be *empathy*. This empathy is not an exercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into* something. Avalokiteshvara, the Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe – which is what we do in zazen. 
+Avalokiteshvara represents *compassion* in Buddhism. Given what we are saying, another word might be *empathy*. This empathy is not an exercise in imagination – although it might involve some of that – but rather it is the activity of *feeling into* something. Avalokiteshvara, the Bodhisattva Regarder of the Cries of the World, is deeply tuning in to the feeling of the universe. This is is what we do in zazen. 
 
 If this seems religious, that’s because it is – but in a sense of the word that doesn’t involve dogmatism. Katagiri Roshi often talks about religious practice, even *religious zazen*, but for him the word *religious* usually means something very close to “non-dualistic” – or in other words, it is basically the same as “wholehearted,” or *shikan* (只管). “Religious” zazen is *real* zazen – which means not clinging to ideas.
 

@@ -283,11 +283,13 @@ So I told you three important points, but there are four important points. First
 
 And then, if you are under the huge tree, and saved, at that time that is called *salvation*. If salvation is experienced directly, that is *enlightenment*. 
 
-How can you experience enlightenment? Well, first: practice egolessness. How can you practice egolessness? *Samadhi*; one-pointedness. And then, just do it. And then if you just do it, there is no design on expecting any reward. Just do it. That is *shikantaza*. 
+How can you experience enlightenment? Well, first: practice *egolessness*. How can you practice that egolessness? *Samadhi*; one-pointedness. 
+
+And then, just do it. And then if you just do it, there is no design on expecting any reward. Just do it. That is *shikantaza*. 
 
 That is really helpful. That is really a way of helping people: offering your merit, the merit of your practice, to all sentient beings. 
 
-But according to a narrow understanding of human life, first you cut off the root of your weeds, [then] you want to be happy. That's nice... but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
+But according to a narrow understanding of human life, first you cut off the root of your weeds, and you want to be happy. That's nice... but it is a narrow understanding. Because you cannot completely cut off the weeds. You cannot destroy weeds. Weeds grow any time, anywhere. 
 
 So the important point is arrangement of our circumstances: how to use the weeds. Even the weeds are nothing but being, which is helping all sentient beings.
 
