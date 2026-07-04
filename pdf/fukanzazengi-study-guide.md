@@ -19,7 +19,7 @@ fontsize: 12pt
 //#set smartquote(enabled: false)
 
 #align(center + horizon)[
-  #text(size: 3em, weight: "bold")[Making Arrangement]
+  #text(size: 2.5em, weight: "bold")[Sitting Together With All Beings]
   
   #v(1em)
   #text(size: 1.4em)[Katagiri Roshi’s Teachings on _Fukanzazengi_,#linebreak()Zen Master Dōgen’s _Universal Recommendation for Zazen_]
@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7.2]
+  #text(size: 1.2em)[Draft Version 0.7.3]
   
   #datetime.today().display()
   
@@ -50,7 +50,7 @@ fontsize: 12pt
     if calc.even(page-num) {
 		[_Katagiri Roshi’s Teachings on Fukanzazengi_]
 	} else {
-		[_Making Arrangement_]
+		[_Sitting Together With All Beings_]
 	}
     h(1fr) 
   }
@@ -200,18 +200,18 @@ Katagiri Roshi explains the term *zazen*:
 
 This was how Katagiri Roshi introduced *zazen* to a small group of people in 1981. Note that almost the very first thing he talks about is not a technical explanation, nor an individual goal, but that we sit with all beings, and not just human beings. 
 
-This point will come up again, frequently. In fact, it is a key point. A word that we sometimes use for this is *interdependence*.
+This point will come up again frequently. In fact, it is a key point. 
 
-In a talk on *mindfulness*, Katagiri Roshi explained it like this:
+A word that we sometimes use for this is *interdependence*. In a talk on *mindfulness*, Katagiri Roshi explained it like this:
 
-> So [mindfulness is] not the *idea* of mindfulness, because... [Let me say] that [your] observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [and] *you* observe your object, that is the dualistic sense. [That is] very common. And then you judge immediately; [you] think something. That is really taking care of human life according to “one-way traffic.” You never think of *two-way traffic*. Because if you observe your object, the object observes you. In other words, you are *observed by* your object. Subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it, by our customs or patterns of thinking. So that’s why next moment we stumble. You know? *[He chuckles.]*
+> So [mindfulness is] not the *idea* of mindfulness, because... [Let me say] that [your] observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [and] *you* observe your object, that is the dualistic sense. [That is] very common. And then you *judge* immediately; [you] think something. That is really taking care of human life according to “one-way traffic.” You never think of *two-way traffic*. Because if you observe your object, the object observes you. In other words, you are *observed by* your object. Subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it, by our customs or patterns of thinking. So that’s why next moment we stumble. You know? *[He chuckles.]*
 >
 > Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it [...] by your sense – see something alive *between* [them], *how* subject and object are working together. That is interpenetration, or *interdependence*, we say. 
 >
 > – [From “Mindfulness – Talk 3” (March 23, 1984)
-at 1-6:56](1984-03-23-Mindfulness-Talk-3#1-656)
+at 1-6:56](https://katagiritranscripts.net/1984-03-23-Mindfulness-Talk-3#1-656)
 
-So basically, *zazen* is sitting in the field of *interdependence*. This is why Katagiri Roshi says, “All we have to do is to do our best to sit in the universe with all sentient beings.”
+So basically, *zazen* is sitting in the field of *interdependence*. This is why Katagiri Roshi says, “All we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do.”
 
 Also of interest is the definition of *zen* as *tranquility*. The word *zen* originally comes from the Sanskrit word *dhyana*, which is understood in various ways, but which is usually translated as *meditation*. So to define Zen as *tranquility* is really pointing at something, a question: what *is* Zen meditation? And what is *tranquility*? How should we understand it? And how do we practice it? 
 
@@ -377,7 +377,7 @@ This *interacting communion* of appeal and response isn’t so much about trying
 
 > *Kan* (感) means “receive,” or “feel.” *Nō* (應) of *kannō* means “respond.”
 > 
-> – From [“*Kuge*: Flowers in the Sky – Talk 6” (September 26, 1988)](1988-09-26-Kuge-Talk-6)
+> – From [“*Kuge*: Flowers in the Sky – Talk 6” (September 26, 1988)](https://katagiritranscripts.net/1988-09-26-Kuge-Talk-6)
 
 In discussing *Blue Cliff Record* Case 36: “Ch’ang Sha Wandering in the Mountains,” Katagiri Roshi says it like this:
 
@@ -393,7 +393,7 @@ This *great communication* is not something abstract or just in our heads; this 
 > 
 > When you are completely drawn in by the mountains and living with the mountains, your living is exactly identical with that of the mountains, and you have to die exactly with the mountains, and be alive with the mountains. If you do this, very naturally, within each movement responding to the voiceless voice that the mountain has, there is wonderful inspiration, so-called *learning*, learning the mountains. This is more than intellectual research. It is not sort of a big [deal] or fascination; it’s very simple. [It seems to be] just like the [usual] things. Religiously speaking, Katagiri is Katagiri, mountains are mountains – nothing different. *But*, within the materialistic aspect of mountains, there is enormous function of communication between you and the mountains. 
 >
-> – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
+> – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](https://katagiritranscripts.net/1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
 So with this communication, we can learn about the universe, and about ourselves, in a deeper, more direct way than with our usual intellectual processing.
 
@@ -478,7 +478,7 @@ In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which se
 
 *Action* and *cause and effect* are *part* of karma. As we mentioned earlier, much of *Fukanzazengi* is about arranging our circumstances and our body and mind so that we can practice. We can think of this as planting karmic *seeds* that will bloom – at some time, in some way. 
 
-But a problem with this way of looking at karma is that it can quickly become *mechanistic*, or *deterministic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden, and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also – *enjoying* our garden.
+But a problem with this way of looking at karma is that it can quickly become *mechanistic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden, and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also – *enjoying* our garden.
 
 *Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary *karmic* lives are actually extraordinary *buddha* lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
 
@@ -486,7 +486,7 @@ This is all about *kannō dōkō*, the concept we introduced earlier in this cha
 
 ---
 
-Why all the confusion around the word *karma*? It is partly because the word *karma* actually pre-dates Buddhism, and has a variety of meanings in different religious traditions. Plainly speaking, much of our common understanding of karma is coming from Hinduism or Brahmanism, not from Buddhism. 
+Why all the confusion around the word *karma*? It is partly because the word *karma* actually pre-dates Buddhism, and has a variety of meanings in different religious traditions. Plainly speaking, much of our common understanding of karma is coming from Brahmanism or Hinduism, not from Buddhism. 
 
 In fact, arguably, the understanding of the word *karma* is *so* confused, that in about the 4th century in India, in the development of the Yogachara teaching of Mahayana Buddhism, they came up with a new word to use instead. That word is *ālayavijñāna*, which means “storehouse consciousness.” This is a big topic, but for the moment, let’s simply understand that *ālayavijñāna* means basically the same thing as *karma*, only without some of the historical baggage. 
 
@@ -638,7 +638,7 @@ What does practice-realization look like outside of Zen meditation? In the follo
 > 
 > And then at that time, you can say, “I am a guitar player, I am a musician.” Even if you don’t think so, people call you a guitar player. And then, people don’t tell you, but very naturally people hire you, and people ask you to play guitar in public, before they put a certain name on you. So that’s pretty good. Sometimes you don’t know when you become a writer, or when you are a great musician. But it’s not necessary [to know]. People ask you to play the guitar, or to write something. That is a great chance for you to practice, to continue to do it. 
 >
-> – From [“*Diamond Sutra*, Talk 1: Introduction” (May 9, 1979) at 35:44](1979-05-09-Diamond-Sutra-Introduction#3544)
+> – From [“*Diamond Sutra*, Talk 1: Introduction” (May 9, 1979) at 35:44](https://katagiritranscripts.net/1979-05-09-Diamond-Sutra-Introduction#3544)
 
 Often the question comes up of how we work with *emotions* in Buddhism. In Zen, there are no particular rules saying, “If you feel *this*, do one thing; if you feel *that*, do another thing,” et cetera. If we want to be a writer, how do we do it? Katagiri Roshi says, “Continue to write, beyond like or dislike, until your writing is completely flowing just like water. ” 
 
@@ -811,7 +811,7 @@ At other times Katagiri Roshi said more about this maple leaf:
 > Finally, you don’t know what the life of the maple leaf [is]. The maple leaf just functions: total dynamic working. That’s it. If you think it, if you judge it, if you make a choice of your life, very naturally you can say, “It’s the back,” [or] “It’s the front.” That is an idea: a philosophical idea, biological idea, and psychological idea. The something alive within the life of the maple leaf is always moving, and functioning, constantly.
 >
 > – [From “Mindfulness – Talk 3” (March 23, 1984)
-at 1-17:15](1984-03-23-Mindfulness-Talk-3#1-1715)
+at 1-17:15](https://katagiritranscripts.net/1984-03-23-Mindfulness-Talk-3#1-1715)
 
 This functioning of the maple leaf, or our lives, is called *total dynamic working* – or sometimes *emptiness*, or *vastness of existence* – because it is not just one fixed thing; it shows many faces. 
 
@@ -823,7 +823,7 @@ But knowing that, what do we do? Katagiri Roshi says:
 > 
 > What is vastness of existence? This is just motion, energy, moving. But that is not the idea of the motion you can see objectively, because it must be something which you should *make alive* in your everyday life. In other words, it must be *personalized*. It must be digested. By what? Your practice. Digestion of this motion, so-called vastness of existence, is *you*: individual practice. 
 >
-> – From [“Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984) at 42:52](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3#4252)
+> – From [“Blue Cliff Record Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984) at 42:52](https://katagiritranscripts.net/1984-04-11-Blue-Cliff-Record-Case-55-Talk-3#4252)
 
 So again, as Dōgen Zenji said in *Zenki*: “The great path of the buddhas in its consummation is passage to freedom, is actualization.” This *great path* is the *dharma vehicle*, which is “free and unrestricted.” And yet, there is something to *do* here: our practice. 
 
@@ -918,7 +918,7 @@ That is basically the dynamic of what follows in this chapter... with some excit
 
 “Who could believe in a means to brush it clean” is a reference to [*The Platform Sutra*](https://katagiritranscripts.net/platform-sutra) and the well-known story of the Sixth Ancestor, which is considered a foundational story in Chinese Buddhism. 
 
-In the story, the Fifth Ancestor, Great Master Hung Jen, challenges his monks to “use the wisdom-nature of your own original mind to compose a verse”; the monk who understands and expresses the great meaning will become his successor. The top student Shen Hsiu (Japanese: Jinshū) writes a verse comparing Buddhist practice to brushing dust from a mirror to keep it clean. The underdog student Hui Neng (Japanese: Daikan Enō) composes a responding verse, and becomes the Sixth Ancestor.
+In the story, the Fifth Ancestor, Great Master Hung Jen (Daman Hongren), challenges his monks to “use the wisdom-nature of your own original mind to compose a verse”; the monk who understands and expresses the great meaning will become his successor. The top student Shen Hsiu (Japanese: Jinshū) writes a verse comparing Buddhist practice to brushing dust from a mirror to keep it clean. The underdog student Hui Neng (Japanese: Daikan Enō) composes a responding verse, and becomes the Sixth Ancestor.
 
 So although the word “mirror” does not appear in *Fukanzazengi*,  “mirror” is implied by “brushing it clean.” But *Fukanzazengi* says “the whole body” is far beyond the world’s dust. How is “the whole body” related to the mirror? 
 
@@ -983,7 +983,9 @@ Katagiri Roshi even notes that Dōgen Zenji calls at least part of the *Platform
 
 First, an explanation: “to see into one’s own nature” is *kenshō* (見性), a term that many Zen students will recognize. *Kenshō* is usually understood as “an enlightenment experience,” which isn’t necessarily wrong. Two points here: *kenshō* (見性) is not the same as *shō* (證) or “realization,” which we discussed in Chapter 3: “Practice-Realization.” Instead, *kenshō* is considered to be basically the same as *satori*. 
 
-And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment* – meaning *satori*, or in this case *kenshō*. But as we discussed in Chapter 3, that is not the goal of Dōgen’s Zen. 
+And there is a sort of controversy about this, in that the *Platform Sutra* more or less says that *kenshō* is the point of Buddhist practice, while Dōgen more or less says that that’s ridiculous, as above. This is relevant because *kenshō* is associated with “sudden enlightenment.” 
+
+Basically, the whole discussion regarding “sudden enlightenment” or “gradual enlightenment” presupposes that the goal of practice is *enlightenment* – meaning *satori*, or in this case *kenshō*. But as we discussed in Chapter 3, that is not the goal of Dōgen’s Zen. 
 
 But back to the forgery. Katagiri Roshi answers a question about this:
 
@@ -1072,7 +1074,7 @@ So evidently, there is a long history of this understanding before we arrive at 
 
 This might be referring to an earlier understanding of sudden and gradual in the teachings of the Buddha – but the meaning is about the same. 
 
-Where Dōgen Zenji says, “when we practice in accordance with these teachings, we invariably gain verification of them,” the word “verification” is once again *shō* (證), which we discussed earlier. This is not a coincidence: *shō* is all about going beyond our concepts, including those of “sudden” and “gradual.”
+Where Dōgen Zenji says, “when we practice in accordance with these teachings, we invariably gain verification of them,” the word “verification” is once again *shō* (證), which we discussed earlier. This is not a coincidence. *Shō* is all about going beyond our concepts, including those of “sudden” and “gradual.”
 
 ---
 
@@ -1119,12 +1121,14 @@ Although it may be helpful to challenge the conventional misconceptions on this 
 
 One reason why the discussion of “sudden enlightenment” or “gradual enlightenment” is “ridiculous” is that, as we mentioned earlier, the point of Dōgen’s Zen is not *enlightenment* (*satori*) at all, it is *continuous practice*, or *practice-realization* (*shushō*). 
 
-Another way of putting this is that, if we are studying the *Way*, or *universal life*, it is somewhat absurd to think that it could be divided by north or south, sudden or gradual. As it says in *Sandokai*, “The Harmony of Difference and Sameness,” which dates to 8th century China and is regularly chanted in Zen temples today:
+Another way of putting this is that, if we are studying the *Way*, or *universal life*, it is somewhat absurd to think that it could be divided by north or south, sudden or gradual. 
+
+As it says in *Sandokai*, “The Harmony of Difference and Sameness,” which dates to 8th century China and is regularly chanted in Zen temples today:
 
 > While human faculties are sharp or dull,  
 > the Way has no northern or southern ancestors.  
 
-And another reason, probably, is that endlessly discussing the practice... is not actually *doing* the practice.
+And another reason for the absurdity, probably, is that endlessly discussing the practice is not actually *doing* the practice.
 
 So, heeding Katagiri Roshi’s advice, we’ll leave it at that.
 
@@ -1457,11 +1461,11 @@ Why was the Buddha “wise at birth,” having “inborn knowledge”? Perhaps i
 
 This matter of “I alone” could perhaps use a bit of additional explanation:
 
-> If you return to the very incipient state of the moment, everything becomes exactly one – interconnectedly, interpenetrately, without any hindrances there. It’s very strange, but it is really true. In terms of human speculation, it’s impossible to think that, but the world of the very incipient moment is really working like this. Everything is working like this. 
+> If you return to the very incipient state of the moment, everything becomes exactly one – interconnectedly, interpenetrately, without any hindrances there. It’s very strange, but it is really true! In terms of human speculation, it’s impossible to think that, but the world of the very incipient moment is really working like this. Everything is working like this. 
 > 
-> That is called *silence*, absolute silence. That is called sometimes *aloneness*. Because when you stand up there, you alone are there – no one around. But you are really working and supported by all living beings. If you have the eyes to open, to see the depths of your existence, you are alone but you are not alone – you are supported by many beings. At that time you can be *exactly* alone, with stability, with peace, and bliss, and repose. Exactly. 
+> That is called *silence*; absolute silence. That is called sometimes *aloneness*. Because when you stand up there, you alone are there – no one around. But you are really working and supported by all living beings. If you have the eyes to open, to see the depths of your existence, you are alone but you are not alone – you are supported by many beings. At that time you can be *exactly* alone, with stability, with peace, and bliss, and repose. Exactly. 
 >
-> – From [“*Kuge*: Flowers in the Sky – Talk 7”](1988-09-27-Kuge-Talk-7)
+> – From [“*Kuge*: Flowers in the Sky – Talk 7”](https://katagiritranscripts.net/1988-09-27-Kuge-Talk-7)
 
 That is what the Buddha realized. According to Buddhism, “We are Buddha”: that means all beings are already like this; the universe is already functioning in this way. And so:
 
@@ -1780,7 +1784,7 @@ To be clear, this is not saying to “shut up” forever. It’s saying when you
 > 
 > Okay? It’s kind of contradictory. 
 >
-> – From [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984)](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
+> – From [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3” (April 11, 1984)](https://katagiritranscripts.net/1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
 
 In a talk on *Fukanzazengi*, he used a different expression meaning the same thing. Here is referring to *shikantaza*, wholehearted sitting, which is the kind of zazen we do:
 
@@ -3024,13 +3028,15 @@ vipassana is *kan* 觀
 
 The “dharma gate of repose and joy” or “dharma gate of repose and bliss” is discussed in [“Bendōwa: Dōgen's Questions & Answers – Talk 3”](https://katagiritranscripts.net/1987-03-13-Bendowa-Talk-3) at [55:17](https://katagiritranscripts.net/1987-03-13-Bendowa-Talk-3#5517) and [1:11:57](https://katagiritranscripts.net/1987-03-13-Bendowa-Talk-3#11157).
 
+Search also for “bliss and repose” – see Kuge Talk 9
+
 ---
 
 Search for “repose and bliss.” New good reference in Kuge Talk 7.
 
 > So because everything is interconnected, interpenetrated, when you realize your existence, you are exactly, perfectly, absolutely alone. Beyond being alone or not being alone, beyond your perceptions, you are absolutely alone. Then, you can be free from aloneness. At that time, that is called *repose and bliss*. Just *shikantaza*: sitting zazen, exactly. 
 > 
-> – From [“*Kuge*: Flowers in the Sky – Talk 7”](1988-09-27-Kuge-Talk-7)
+> – From [“*Kuge*: Flowers in the Sky – Talk 7”](https://katagiritranscripts.net/1988-09-27-Kuge-Talk-7)
 
 ```{=typst}
 #pagebreak()
@@ -3631,7 +3637,7 @@ In a talk on Dōgen Zenji’s *Kuge*, “Flowers of Emptiness,” Katagiri Roshi
 > 
 > Do you understand that it is quite different from the purpose of Buddhism based on turning delusion *into* enlightenment? 
 > 
-> – From [“*Kuge*: Flowers in the Sky – Talk 6” (September 26, 1988)](1988-09-26-Kuge-Talk-6)
+> – From [“*Kuge*: Flowers in the Sky – Talk 6” (September 26, 1988)](https://katagiritranscripts.net/1988-09-26-Kuge-Talk-6)
 
 So, to rephrase the question in this line of *Fukanzazengi*: “How could the Way, the functioning of the universe, depend on practice-realization?” 
 
@@ -3669,4 +3675,4 @@ How can you build it up? This is a key point you have to learn from now on, towa
 > 
 > So if you do zazen, don’t be hanging around the small self. “I am doing zazen, zazen is helping me” – that is really the small self, it is not real zazen. Because if you think so, you make the function of zazen small – separated from you, separate from others. Anyway, zazen and you, or trees, birds, all sentient beings, are exactly the same and living in the realm of silence. Silence is energy, it is just working, functioning. 
 >
-> – From [“*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes, Talk 1” (March 2, 1983) at 20:34](1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
+> – From [“*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes, Talk 1” (March 2, 1983) at 20:34](https://katagiritranscripts.net/1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
