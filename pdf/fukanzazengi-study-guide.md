@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7.3]
+  #text(size: 1.2em)[Draft Version 0.7.4]
   
   #datetime.today().display()
   
@@ -532,21 +532,19 @@ Yet we quickly get into discussions about whether Avalokiteshvara is a real enti
 
 --- 
 
-So to study the Way is to take refuge in Buddha, dharma, and sangha. As we recite at the beginning of the Full Moon Precepts Ceremony:
+So, to review: The Way is *universal life*. To study the Way is to engage in *full communication* with universal life, which is Buddha, dharma, and sangha. *Buddha* is the universe, *dharma* is the teaching of the universe, and *sangha* is the community of people who make the teaching of the universe alive in their lives. 
 
-> Taking refuge is to return home, arousing a fresh and vivid mind, openly and enthusiastically seeking for perfect peace. Even though body and mind are subject to birth, change and death, this moment of returning home offers the opportunity for the continuous practice of Buddha nature, the ripening of the sweet milk of the long river. 
-
-This refers to the last line of Dōgen Zenji’s *Genjōkōan*:
+This is the basis of Dōgen Zenji’s teaching. The last line of his famous work *Genjōkōan* says:
 
 > The wind of Buddhism makes manifest the great earth’s goldenness, and makes ripen the sweet milk of the long rivers.
-  
-“Making manifest the great earth’s goldenness” is our practice. This is to realize buddha-nature or *tathāgatagarbha* in our lives.
 
-“The long river” is our life: not just our limited, personal life, but *all* life, stretching from beginningless past to endless future. This is *karma*, or *ālayavijñāna*. And through our practice, we *ripen* this sweet milk.
+“The long river” is our life: not just our limited, personal life, but *all* life, stretching from beginningless past to endless future. This is *ālayavijñāna*, or *karma*. Our practice is to deeply taste this *ālayavijñāna* or *karma*, and in that way we turn it over to see its other side: *tathāgatagarbha*, the world of Buddha. This world is totally free and all-inclusive: “perfect and all-pervading.” This is, as Katagiri Roshi says, “the origin of the Way.”
 
-Our practice is to deeply taste this *ālayavijñāna* or *karma*, and in that way we turn it over to see its other aspect: *tathāgatagarbha*, the world of Buddha. This world is totally free and all-inclusive: “perfect and all-pervading.” This is, as Katagiri Roshi says, “the origin of the Way.”
+In this way, “the wind of Buddhism” – our practice –  “makes manifest the great earth’s goldenness.” And through our practice we *ripen* the sweet milk of our lives – together.
 
-We’ll return to this topic often, culminating in the last chapter, where we discuss “the treasure store.”
+But, wait. *Fukanzazengi* just said that the Way is originally perfect and all-pervading. So, to return to our original question: *why* do we need to make anything ripen? 
+
+We’re getting there. But first, we need to clarify what Dōgen Zenji actually means by the seemingly straightforward words, “practice and realization.” It turns out that this is also the core of Dōgen’s teaching.
 
 ```{=typst}
 #pagebreak()
@@ -1432,7 +1430,7 @@ A danger here is that even when we realize that awakening and enlightenment are 
 > Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice? [SZ] 
 
 > Need I mention the Buddha, who was possessed of inborn knowledge?
-the influence of his six years of upright sitting is noticeable still. Or Bodhi-
+The influence of his six years of upright sitting is noticeable still. Or Bodhi-
 dharma's transmission of the mind-seal?—the fame of his nine years of wall-
 sitting is celebrated to this day. Since this was the case with the saints of old,
 how can men of today dispense with negotiation of the Way? [EB]
