@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7.4]
+  #text(size: 1.2em)[Draft Version 0.7.5]
   
   #datetime.today().display()
   
@@ -422,9 +422,11 @@ It’s important to understand that this appeal and response isn’t a side topi
 
 A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
-If you assume this, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way. 
+As long as you assume this, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way – because you’ve already introduced the concept of *you*, separate from *everything else*.
 
-So what do we assume instead? *Interactive communion* of appeal and response with the universe, or *full communication*. How can we actually experience this *total* communication? Katagiri Roshi says:
+So what do we assume instead? *Full communication*. In a pure sense, maybe we don’t assume anything in Zen; but in a practical sense, we assume that all beings are Buddha, and everything is communicating. 
+
+How can we actually experience this *total* communication? Katagiri Roshi says:
 
 > When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 >
@@ -2051,6 +2053,65 @@ But next, in the process of reaching this one world – so-called *belief*, *fai
 
 The specific term *shinjin datsuraku* is discussed in  [“Zazen: Dropping Off Body and Mind”](https://katagiritranscripts.net/1987-01-24-Zazen-Dropping-Off-Body-and-Mind) and in [“Zazen: Entry to the Buddha Dharma”](https://katagiritranscripts.net/1987-03-07-Zazen-Entry-to-the-Buddha-Dharma). In particular, [“Zazen: Dropping Off Body and Mind”](https://katagiritranscripts.net/1987-01-24-Zazen-Dropping-Off-Body-and-Mind) is an important talk where dropping off body and mind is discussed in relation to *compassion*.
 
+
+We need to include a lot from [“Zazen: Dropping Off Body and Mind”](https://katagiritranscripts.net/1987-01-24-Zazen-Dropping-Off-Body-and-Mind). In particular we get back to Avalokitshvara more deeply! (Search for “infinite thought”)
+
+> So, “if many, many beings [hear the] the name of Avalokiteshvara”: *Avalokiteshvara* means [that] if you see the world very *deeply*, then you can hear the sound, very deep sound. You don’t know what kind of sound is there. Because you cannot say it is a good sound, or it is a bad sound. You cannot say. Is it something pensive? Oh yes, sometimes pensive! But if you feel pensive, immediately next moment it’s not pensive, [it’s] something more than pensive. So if you experience something, [you put] the name on it and then say *pensive*, but immediately the moment when you name it you can return to the source, and then you don’t know what it is. *Pensive* disappears, and then, something more than pensive. And then next moment it’s not pensive, and you put the name on it: it’s *not pensive*. And then immediately... well, something more than *not* pensive. *[He laughs.]* So you don’t know. Finally, you [are] always going back to the point, and then [there] you don’t know. 
+>
+> So when you see the world *very* deeply, you don’t know how [you can] say. There is some sound, something there.
+> 
+> And also, that sound of the world is something you are always looking for. And then, that is something you are looking for, that’s why you want to *get it*. But you cannot get it, actually, through your experience. So finally, that is *suffering*, very direct cause of suffering. 
+> 
+> So finally you say, “Please.” Don’t you think so? “Please. How can I call upon?” You say, “Please. Please make me simple. Please make me free.” Whatever you say. [You] call upon something towards the sky, saying please.
+> 
+> The moment when you say so, it is called *Avalokiteshvara*. 
+> 
+> There is a *subject*: *you* are calling upon. And then, is there an *object* you are calling upon? No, no object. Because the subject, you, who is calling upon *something* [...] is simultaneously [the] something you are looking for. Because it’s pretty deep. So if you look upon, and if you call upon, immediately that is Avalokiteshvara. That is the reason we call it Avalokiteshvara. 
+> 
+> So when you sit down, you don’t know why you sit down in zazen. Well, if you think it, many reasons are coming up. But any answers, any reasons don’t hit the mark exactly. [...] You cannot ignore those reasons you have mentioned, because it is a part of truth. But not totally. 
+> 
+> So *totally*, what do you want? 
+> 
+> Totally what you want is just to be present exactly right in the middle of true reality, where you and zazen [are] exactly merging. Nothing else. 
+> 
+> So *to sit* is to call upon something. To sit zazen exactly [is] something you call upon. 
+> 
+> So, where do you sit? 
+> 
+> You exactly sit right in the middle of something you are always looking for and calling upon. We don’t know what it is. But it’s always there. You can see [it], through the seeing the world very deeply. 
+> 
+> So that’s why if you sit down exactly, I think you feel *something*, you taste it. Because if you sit down, by virtue of seeing deeply the human world, hearing the sound of the world, immediately you manifest yourself with wholeheartedness. So that is called, here it says, “with all their mind.” [In Japanese] we call it *isshin*: one-mind, exactly with one-mind. 
+> 
+> So whoever you are, whatever reason you have, [if] you come here and sit down, immediately you can sit with all your mind, wholeheartedness. Even for a moment. That’s pretty good... 
+> 
+> *[Tape change.]*
+
+> ... anyway, true reality, where all minds are interfused. 
+> 
+> So very naturally, all you can do is constantly, [...] you have to return to the source of zazen, which [is] based on casting off the body and mind. 
+> 
+> This is the point we are always seeking. This is called *faith*. This is called faith. And philosophically, this is called *emptiness*. 
+> 
+> In the beginning, emptiness can be seen just like lightning and thunder. Pretty quickly, you know. So it makes you excited, very much. 
+> 
+> But if you penetrate gradually, again and again, it goes very slowly in your life. And [...] wherever you may go, [you can always see] emptiness. That’s pretty hard. Because it’s “sneaking in,” *[he laughs,]* “invading” your life, kind of invading. Have you ever experienced [this]? 
+> 
+> That’s why I mentioned, in the beginning, if you start to do zazen, you feel wonderful, because lots of excitement there. Because you can see the lightning and thunder, which you have never experienced. It’s wonderful! Then, when you go gradually, deeply into Zen practice – finally you are very confused. Because something is sneaking in, *invading* you, very slowly. Very slowly. Kind of, you know, [...] squeezing your neck like a jellyfish. *[Laughter.]* You don’t notice it, but actually it’s really something, you know, [suffocating you]. So you say, finally, “Please!” *[He laughs.]* Okay? So that is very difficult. But you have to go through. 
+> 
+> And if you go through, in the middle of Zen Buddhism, then you can see many things. And also, something sneaking in, invading your life, that’s pretty hard to stay with. But if you go through it, that something sneaking into your life turns into [...] effort, great energies. Okay? Believe me. If you don’t believe me, please believe Buddha. *[He laughs.]* It’s *exactly* great energies. Because energy is just like that; energy is coming up. That’s why energy or human effort is just like spring water coming from the ground.
+> 
+> Because true reality is structured by emptiness. [The] structure of the world is kind of [like] the blueprint: you have to live in the structure of the world. At that time, that is called true reality. At that time, you don’t know what’s going on there. But you have to be there. 
+> 
+> And also, you have to be there because you are looking for that point. That’s why you sit down.
+> 
+> Usually we are always involved in intellectual understanding. That is important, as a blueprint. It is important, but it’s very difficult to taste true reality, which is going on as a flow activity, flow process of life. So, that’s why practice is very important. Zazen is really [the] essence of our practice, [the] basic essence, basic practice for us. That’s why zazen is very important for us. 
+> 
+> Alright. That is called “zazen is casting off or dropping off the body and mind.” Body and mind is [zazen], and the dropping off body and mind is zazen.
+
+
+
+
+
 On “ah”:
 
 > Let me say [more about] this. What do [we] mean by “dropping off body and mind the moment when you do zazen, the moment when you devote yourself in zazen”? Let me say it like this. 
@@ -3374,6 +3435,11 @@ Katagiri Roshi also discussed *ki* in his final talk:
 > 
 > 1988-09-27-Kuge-Talk-7
 
+--------
+
+> Shakyamuni Buddha holding up a flower and winking is not merely legendary stories. This is talking about human life: how rare it is, how precious it is, how sublime human life is. So that’s why through your human body you can notice holding up the udumbata flower and winking. You can see how sublime human life is, how rare human body and mind is. 
+>
+> 1988-09-30-Kuge-Talk-10
 
 ```{=typst}
 #pagebreak()
