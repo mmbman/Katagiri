@@ -33,6 +33,8 @@ And first, Dōgen Zenji says:
 > Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity should not enter. If the entry is a mistake, after some consideration one maybe asked to leave.
 >
 > When the way-seeking mind is aroused inwardly, there is immediately freedom from fame and profit. In the vastness of billions of worlds, true heirs (who have been entrusted with the) dharma are rare. In spite of the long history of our country you should make the (true heirs) the true source, having compassion for later generations by giving emphasis to the present.
+> 
+> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi; modified by Katagiri Roshi.
 
 So, first, “Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity shouldn’t enter. If the entry is a mistake, after some consideration, they may be asked to leave.”
 
