@@ -7,11 +7,9 @@ title: "The Awakening of Faith – Talk 5"
 
 ### Transcript
 
-<p align="center"><b>This transcript is in draft stage.</b></p>
+**This transcript is in draft stage.**
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith9712348" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith9712348)
 
 #### 0:00
 

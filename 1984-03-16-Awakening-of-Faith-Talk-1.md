@@ -11,11 +11,9 @@ Katagiri Roshi briefly introduces *The Awakening of Faith*, goes over the struct
 
 ### Transcript
 
-<p align="center"><b>This transcript is in draft stage.</b></p>
+**This transcript is in draft stage.**
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith)
 
 #### 0:00
 

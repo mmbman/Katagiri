@@ -10,9 +10,7 @@ title: "The Awakening of Faith – Talk 12: Tathāgatagarbha"
 
 **This transcript is in draft stage.**
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/tathagatagarbha" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/tathagatagarbha)
 
 #### 0:00
 

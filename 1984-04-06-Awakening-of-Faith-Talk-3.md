@@ -11,11 +11,9 @@ Katagiri Roshi begins discussing Part Three, the main part of the work. Chapter 
 
 ### Transcript
 
-<p align="center"><b>This transcript is in draft stage.</b></p>
+**This transcript is in draft stage.**
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith2909230" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith2909230)
 
 #### 0:00
 

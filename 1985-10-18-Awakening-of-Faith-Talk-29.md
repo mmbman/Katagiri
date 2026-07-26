@@ -9,9 +9,7 @@ title: "The Awakening of Faith – Talk 29"
 
 **This transcript is in rough draft stage.**
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith8650012" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith8650012)
 
 #### 0:00
 

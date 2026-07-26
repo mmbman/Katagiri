@@ -9,9 +9,7 @@ title: "The Awakening of Faith – Talk 10: Time and Ignorance"
 
 **This transcript is in draft stage.**
 
-<p align="center" style="font-style: italic">
-<a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/time" target="_blank">Listen to this talk</a>
-</p>
+#### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/time)
 
 #### 0:00
 
