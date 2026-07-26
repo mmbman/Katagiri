@@ -31,23 +31,23 @@ This series of transcripts is in draft stage.
 
 ###### Series 3
 
-- Talk 23
-- Talk 24
+- [Talk 23](1984-10-19-Awakening-of-Faith-Talk-23)
+- [Talk 24](1984-10-26-Awakening-of-Faith-Talk-24)
 
 *Talks 25-27 are not yet in the online archive. Talk 28 is missing.*
 
 ###### Series 4
 
-- Talk 29
+- [Talk 29](1985-10-18-Awakening-of-Faith-Talk-29)
 - Talk 30 - *Currently not available. Audio file is a duplicate of Talk 29.*
-- Talk 31
-- Talk 32
+- [Talk 31](1985-11-01-Awakening-of-Faith-Talk-31)
+- [Talk 32](1985-11-15-Awakening-of-Faith-Talk-32)
 
 ###### Series 5
 
-- Talk 33
-- Talk 34
-- Talk 35
-- Talk 36
-- Talk 37
-- Talk 38
+- [Talk 33](1986-03-07-Awakening-of-Faith-Talk-33)
+- [Talk 34](1986-03-14-Awakening-of-Faith-Talk-34)
+- [Talk 35](1986-03-28-Awakening-of-Faith-Talk-35)
+- [Talk 36](1986-04-11-Awakening-of-Faith-Talk-36)
+- [Talk 37](1986-04-18-Awakening-of-Faith-Talk-37)
+- [Talk 38](1986-05-02-Awakening-of-Faith-Talk-38)

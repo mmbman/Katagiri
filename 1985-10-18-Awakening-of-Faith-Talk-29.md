@@ -3,11 +3,11 @@ title: "The Awakening of Faith – Talk 29"
 ---
 ## October 18, 1985 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1985-06-22-Introduction-to-Buddhism) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1985) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1985-06-22-Introduction-to-Buddhism) | [Next](1985-10-25-Awakening-of-Faith-Talk-30) | [List](list#1985) | Series: [Awakening of Faith](awakening-of-faith)
 
 ### Transcript
 
-<p align="center"><b>This transcript is in draft stage.</b></p>
+**This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith8650012" target="_blank">Listen to this talk</a>
@@ -343,4 +343,4 @@ Next time, we will study “Consciousness”, okay?
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1985-06-22-Introduction-to-Buddhism) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1985) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1985-06-22-Introduction-to-Buddhism) | [Next](1985-10-25-Awakening-of-Faith-Talk-30) | [List](list#1985) | Series: [Awakening of Faith](awakening-of-faith)

@@ -3,9 +3,9 @@ title: "The Awakening of Faith – Talk 38"
 ---
 ## May 2, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1986-04-26-Three-Collective-Pure-Precepts) | [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
 
-<p align="center"><b>This transcript is in draft stage.</b></p>
+**This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith1750323" target="_blank">Listen to this talk</a>
@@ -269,4 +269,4 @@ Human experience is there. But if you say human experience, I think the human be
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1986-04-26-Three-Collective-Pure-Precepts) | [Next](1986-05-03-Ten-Grave-Prohibitory-Precepts) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)

@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 2 of 7: Three Aspects of Repentance"
 ---
 ## March 1, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-02-22-Significance-of-Ordination) | [Next](1986-03-08-Triple-Treasure-Lecture-1) | [List](list#1986) | Series: [Precepts](precepts)
+#### [Previous](1986-02-22-Significance-of-Ordination) | [Next](1986-03-07-Awakening-of-Faith-Talk-33) | [List](list#1986) | Series: [Precepts](precepts)
 
 ### Summary
 
@@ -203,4 +203,4 @@ If the sutra uses “cut off” in the negative sense, we always feel pensive, b
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1986-02-22-Significance-of-Ordination) | [Next](1986-03-08-Triple-Treasure-Lecture-1) | [List](list#1986) | Series: [Precepts](precepts)
+#### [Previous](1986-02-22-Significance-of-Ordination) | [Next](1986-03-07-Awakening-of-Faith-Talk-33) | [List](list#1986) | Series: [Precepts](precepts)

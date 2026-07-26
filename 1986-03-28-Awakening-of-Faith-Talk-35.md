@@ -3,9 +3,9 @@ title: "The Awakening of Faith – Talk 35"
 ---
 ## March 28, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1986-03-23-Principles-of-Practice-Talk-5) | [Next](1986-04-11-Awakening-of-Faith-Talk-36) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
 
-<p align="center"><b>This transcript is in draft stage.</b></p>
+**This transcript is in rough draft stage.**
 
 <p align="center" style="font-style: italic">
 <a href="https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/the-awakening-of-faith9333510" target="_blank">Listen to this talk</a>
@@ -153,4 +153,4 @@ Next time, maybe I will explain the permeation of purity. This is also very inte
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1985-10-25-Awakening-of-Faith-Talk-30) | [Next](1986-02-22-Significance-of-Ordination) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1986-03-23-Principles-of-Practice-Talk-5) | [Next](1986-04-11-Awakening-of-Faith-Talk-36) | [List](list#1986) | Series: [Awakening of Faith](awakening-of-faith)

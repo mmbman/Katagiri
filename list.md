@@ -202,14 +202,14 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 61 Talk 1
 
-1. *The Awakening of Faith* – Talk 23
+1. [*The Awakening of Faith* – Talk 23](1984-10-19-Awakening-of-Faith-Talk-23)
 
 1. *Book of Equanimity*: Dongshan's "Always Close" – Talk 1
 1. *Book of Equanimity*: Dongshan's "Always Close" – Talk 2
 
 1. *Blue Cliff Record* Case 61 Talk 2
 
-1. *The Awakening of Faith* – Talk 24
+1. [*The Awakening of Faith* – Talk 24](1984-10-26-Awakening-of-Faith-Talk-24)
 
 1. The Four Sustenances – Talk 1
 1. The Four Sustenances – Talk 2
@@ -254,20 +254,20 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. *Blue Cliff Record* Case 71
 
-1. *The Awakening of Faith* Talk 29
+1. [*The Awakening of Faith* Talk 29](1985-10-18-Awakening-of-Faith-Talk-29)
 
 1. *Blue Cliff Record* Case 72
 
-1. *The Awakening of Faith* Talk 30
+1. *The Awakening of Faith* Talk 30 (*not available*)
 
 1. *Blue Cliff Record* Case 73
 
-1. *The Awakening of Faith* Talk 31
+1. [*The Awakening of Faith* Talk 31](1985-11-01-Awakening-of-Faith-Talk-31)
 
 1. *Blue Cliff Record* Case 74
 1. *Blue Cliff Record* Case 75
 
-1. *The Awakening of Faith* Talk 32
+1. [*The Awakening of Faith* Talk 32](1985-11-15-Awakening-of-Faith-Talk-32)
 
 1. Two Points to Consider: The Great Matter of Birth and Death Saving all Being
 1. Sharing Our Lives: The Practice of Attendance (Using the Selfish Self)
@@ -279,11 +279,11 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Lay Ordination Lecture 1 of 7: Significance of Ordination](1986-02-22-Significance-of-Ordination)
 1. [Lay Ordination Lecture 2 of 7: Three Aspects of Repentance](1986-03-01-Three-Aspects-of-Repentance)
 
-1. *The Awakening of Faith* Talk 33
+1. [*The Awakening of Faith* Talk 33](1986-03-07-Awakening-of-Faith-Talk-33)
 
 1. [Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1](1986-03-08-Triple-Treasure-Lecture-1)
 
-1. *The Awakening of Faith* Talk 34
+1. [*The Awakening of Faith* Talk 34](1986-03-14-Awakening-of-Faith-Talk-34)
 
 1. [Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2](1986-03-15-Triple-Treasure-Lecture-2)
 
@@ -293,21 +293,21 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [Principles of Practice: Faith](1986-03-22-Principles-of-Practice-Talk-4)
 1. [Principles of Practice: Direct Transmission](1986-03-23-Principles-of-Practice-Talk-5)
 
-1. *The Awakening of Faith* Talk 35
-1. *The Awakening of Faith* Talk 36
+1. [*The Awakening of Faith* Talk 35](1986-03-28-Awakening-of-Faith-Talk-35)
+1. [*The Awakening of Faith* Talk 36](1986-04-11-Awakening-of-Faith-Talk-36)
 
 1. [Lay Ordination Lecture 5 of 7: Receiving the Precepts](1986-04-12-Receiving-the-Precepts)
 
 1. [Buddha's Birthday](1986-04-13-Buddhas-Birthday)
 
-1. *The Awakening of Faith* Talk 37
+1. [*The Awakening of Faith* Talk 37](1986-04-18-Awakening-of-Faith-Talk-37)
 
 1. *Book of Equanimity*: Case 5 – Talk 1
 1. *Book of Equanimity*: Case 5 – Talk 2
 
 1. [Lay Ordination Lecture 6 of 7: Three Collective Pure Precepts](1986-04-26-Three-Collective-Pure-Precepts)
 
-1. *The Awakening of Faith* Talk 38 – Final Talk
+1. [*The Awakening of Faith* Talk 38 – Final Talk](1986-05-02-Awakening-of-Faith-Talk-38)
 
 1. [Lay Ordination Lecture 7 of 7: Ten Grave Prohibitory Precepts](1986-05-03-Ten-Grave-Prohibitory-Precepts)
 

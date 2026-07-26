@@ -3,7 +3,7 @@ title: "Lay Ordination Lecture 4 of 7: Triple Treasure, Lecture 2"
 ---
 ## March 15, 1986 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1986-03-08-Triple-Treasure-Lecture-1) | [Next](1986-04-12-Receiving-the-Precepts) | [List](list#1986) | Series: [Precepts](precepts)
+#### [Previous](1986-03-14-Awakening-of-Faith-Talk-34) | [Next](1986-03-19-Principles-of-Practice-Talk-1) | [List](list#1986) | Series: [Precepts](precepts)
 
 ### Summary
 
@@ -203,4 +203,4 @@ But Gandhi’s example is very good for you. You can think of it. If you are Gan
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1986-03-08-Triple-Treasure-Lecture-1) | [Next](1986-04-12-Receiving-the-Precepts) | [List](list#1986) | Series: [Precepts](precepts)
+#### [Previous](1986-03-14-Awakening-of-Faith-Talk-34) | [Next](1986-03-19-Principles-of-Practice-Talk-1) | [List](list#1986) | Series: [Precepts](precepts)

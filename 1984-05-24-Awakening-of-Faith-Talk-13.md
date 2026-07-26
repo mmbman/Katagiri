@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 13: Tathāgatagarbha & Ālayavijñāna"
 ---
 ## May 24, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-05-22-Awakening-of-Faith-Talk-12) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-05-22-Awakening-of-Faith-Talk-12) | [Next](1984-10-19-Awakening-of-Faith-Talk-23) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 
 ### Transcript
@@ -266,4 +266,4 @@ That is Bodhisattva practice. If you read the *Diamond Sutra*, et cetera, [it sa
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-05-22-Awakening-of-Faith-Talk-12) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-05-22-Awakening-of-Faith-Talk-12) | [Next](1984-10-19-Awakening-of-Faith-Talk-23) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
