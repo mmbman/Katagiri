@@ -119,29 +119,29 @@ So that’s why by taking refuge in the Three Treasures, Buddha, dharma, sangha,
 
 #### 33:20
 
-If so, what is taking refuge? What is the point? How can we realize, how can we touch that spirit of taking refuge which turns into motive power? Here it says: 
+If so, what is taking refuge? What is the point? How can we realize, how can we touch that spirit of taking refuge which turns into motive power [for *coming alive* in our everyday life]? Here it says: 
 
 > The merit of having taken refuge in the Three Treasures inevitably appears when there is spiritual communion between the trainee and the Buddha. 
 
-Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means “interacting communion of appeal and response” (*kannō dōkō*, 感應道交).
+Here it says “spiritual communion” between the Buddha and the practitioner, the Buddha and you. “Spiritual communion” means *interacting communion of appeal and response* (*kannō dōkō*, 感應道交).
 
-“Appeal” means, for instance, “I appeal for help.” I ask you to help. Not “ask”; [ask] is a more strong meaning. I appeal in many ways: spiritually and materialistically. Anyway, even if I don’t do something particular, [still] I appeal to you constantly for help. 
+“Appeal” means, for instance, “I appeal for help; I ask you to help.” Not “ask”; “ask” is a more strong meaning. I appeal in many ways, spiritually or materialistically. Even if I don’t do something particular, [still] I appeal constantly to you for help. 
 
-*I appeal* not to a particular [thing]; this appeal is not [to a] particular existence. I appeal [to the] *whole universe* for help. In this case, *the whole universe* means [you] don’t know what it is. You realize there is nothing to ask for help in this world, but there is something you can appeal to *beyond* the human samsaric world, even though you don’t know what it is. 
+So *I appeal* not to a particular [thing]; [...] I appeal [to the] *whole universe* for help. In this case, *whole universe* means [you] don’t know what it is. You realize there is nothing to ask for help in this world – but there is something you can appeal to *beyond* the human *samsaric* world, even though you don’t know what it is. 
 
-So at that time how do you do it? You *pray*. You pray for your life [or] others’ lives. [Pray] to ... what? Not [to something] particular: to the vastness of space and existence. 
+So at that time how do you do it? You *pray*. You pray for your life [and] others’ lives. [Pray] to ... what? Not [to something] particular: to the vastness of space and existence. 
 
-How do you do [this] in a concrete way? You look up to the sky, and pray. What’s in the sky? We don’t know. Sky is called *akasha* in Sanskrit. *Akasha* is characterized by no obstruction; nothing to obstruct, nothing to interact with. *Akasha* allows all beings to be functioning in peace and harmony. 
+How do you do [this] in a concrete way? You look up to the sky, and pray. What’s in the sky? We don’t know. Sky is called *akasha* in Sanskrit. The characteristic of *akasha* is *no obstruction*: nothing to obstruct, nothing to interact with. *Akasha* allows all beings to be functioning in peace and harmony. 
 
-You don’t know what space is. When you look up to the sky and pray – “please help me,” or something like that – you don’t know what space is. But spiritually, in a deep sense, you already understand what space is – that’s why naturally you look up to the sky and pray. And also the altar in a church or the altar in a Buddhist temple: the altar is a little higher than you, so you always look up to the upper space, and then you pray. And when you pray, you kneel down to the floor, that means you become lower; in other words you become humble. You really become humble, and then at that time you look up to the sky and pray. Intellectually you don’t understand it, but spiritually, everyone knows [this].
+You don’t know what space is. When you look up to the sky and pray – “please help me,” or something like that – you don’t know what space is. But *spiritually*, in a deep sense, you already understand what space is – that’s why naturally you look up to the sky and pray. And also [it’s like] the altar in a church, or the altar in a Buddhist temple: the altar is a little higher than you, so you always look up to the upper space, and then you pray. And when you pray, you kneel down to the floor; that means you become lower, in other words you become humble. You really become humble, and then at that time you look up to the sky and pray. Intellectually you don’t understand it, but spiritually, everyone knows [this].
 
-So that is *appeal*. 
+So that is *appeal*. And then, *response*. 
 
-And then, *response*. At that time, response comes from the whole universe, space, *akasha*. And then this is called *the whole universe* ... I used a different term: spirit of the universe, spirit of *akasha*, whatever. And then, if you completely feel that spirit of the universe, and appeal for help, or appeal for the coming alive in your every day life, very naturally you can be one with the universe. That is the response. 
+At that time, *response* is coming from the whole universe, space, *akasha*. This is called [...] the spirit of the universe, spirit of *akasha*, whatever. And then very naturally, if you completely feel that spirit of the universe and appeal for help, or appeal for the *coming alive* in your everyday life, very naturally you can be one with the universe. That is the response. 
 
-In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. That is [spirituality, but in the] broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
+In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. Spiritually, in the broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 
-That is called *dōkō*, of *kannō dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response”. *Dō* of *dōkō* is “the path”. *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
+That is called *dōkō*, of *kannō dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 
 When can you see this? That is exactly *shikan*, or *wholeheartedness*. 
 
