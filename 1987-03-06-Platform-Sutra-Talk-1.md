@@ -48,33 +48,27 @@ Next:
 >
 > From past lives there were karmic conditions which led another man to give Hui Neng a pound of silver, so that he could provide clothing and food for his aging mother. The man instructed him further to go to Huang Mei to call upon and bow to the Fifth Patriarch.
 
-The Fifth Patriarch constantly emphasizes the spirit of the *Diamond Sutra*, saying, “They may see their own nature and straightaway achieve Buddhahood.” This is very common: Zen Buddhism always [talks about this], [whether] in Japan [or] in China. “The real spirit of Zen is to see into one’s own nature and achieve Buddhahood (or become Buddha) straightforwardly” – that is a point Zen Buddhism always [says]. 
+The Fifth Patriarch constantly emphasizes the spirit of the *Diamond Sutra*, saying, “They may see their own nature and straightaway achieve Buddhahood.” This is very common; Zen Buddhism always [talks about this], [whether] in Japan [or] in China. “The real spirit of Zen is to see into one’s own nature and achieve Buddhahood (or become Buddha) straightforwardly” – that is a point Zen Buddhism always [says]. 
 
 But I think this is a little bit questionable. 
 
-Dōgen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shōbōgenzō*. And also in [the book] *Zen Master Dōgen*, Dōgen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); I think in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
+Dōgen Zenji [talks about this]. I think you should read [the chapter] “Buddha Nature” [in] *Shōbōgenzō*. And also in [the book] *Zen Master Dōgen*, Dōgen Zenji [talks about] monks at the four stages of meditation (“*Shi-zen Biku*”); in this chapter he [talks] about the criticism toward that point [that Zen] usually [says]: to see into one’s own nature and become straightaway Buddhahood. For instance, he [says] in that chapter:
 
 > The essence of *Buddhadharma* has never been to see into one’s own nature. Which of the seven past Buddhas or twenty-eight Indian patriarchs ever said that Buddhadharma consisted merely of seeing into one’s own nature? It is true that the sixth patriarch spoke about this question in the *Platform Sutra*, but as this is a forged writing, it cannot be said to represent his true teachings, or to have the transmission of the dharma. We descendents of the Buddha shouldn’t rely on it. 
 >
-> (From *Zen Master Dōgen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, by Yuho Yokoi with Daizen Victoria.)
+> – From *Zen Master Dōgen: An Introduction with Selected Writings*, Chapter 10: “A Monk at the Fourth Stage of Meditation (*Shi-zen Biku*)”, by Yuho Yokoi with Daizen Victoria.
 
-... Something like that. 
+And in the “Sutra of the Mountains and Waters”, Dōgen Zenji [says] also:
 
-And in the “Sutra of the Mountains and Waters”, Dōgen Zenji [says] also,
-
-> *Transforming the environment*, *transforming the mind* is something scorned by great sages; *speaking of mind*, *speaking of nature* ...
-
-*Speaking of nature* means speaking of one’s original nature...
-
-> ... is something not approved by Buddhas and Zen adepts; *seeing into the mind*, *seeing into one’s own nature* is the livelihood of heretics; *sticking to words and phrases* is not the expression of liberation.
+> *Transforming the environment*, *transforming the mind* is something scorned by great sages; *speaking of mind*, *speaking of nature* (i.e., speaking of one’s original nature) is something not approved by Buddhas and Zen adepts; *seeing into the mind*, *seeing into one’s own nature* is the livelihood of heretics; *sticking to words and phrases* is not the expression of liberation.
 >
-> (From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, page 91.)
+> – From *Shōbōgenzō: Zen Essays by Dōgen*, translated by Thomas Cleary, page 91.
 
 So Dōgen Zenji strongly criticizes that pretty usual emphasis of Zen Buddhism in those days, [or] even now. Because if you emphasize [that] the main point of Zen Buddhism is seeing into one’s own nature by the zazen, at that time I think it is still very dualistic. 
 
-So by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always, because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
+So “by zazen and by Zen practice you have to [...] to see [the] true nature of the self and then become Buddha” – this is [a] pretty usual understanding of Zen practice and Buddhist practice. But at that time, in the basic state of existence, I think you cannot be free from agitations and hesitations, uneasiness of your mind always – because you try to get peace and harmony dualistically. [You think,] “I am not perfect, that’s why I need something.” So that is always something agitating you, and makes your life uneasy.
 
-But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajñāpāramitā* [*Sutra*] \[says this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha, from the beginning to end. That is [the] main point. 
+But Dōgen Zenji always [says] your basic nature is exactly buddha. It is not [just] Dōgen’s teaching, but the *Nirvana Sutra* and also the *Diamond Sutra* and *Prajñāpāramitā* [*Sutra*] \[say this]. [The] *Nirvana Sutra* mentions constantly that we *are* buddha, all sentient beings are buddha. So we have to stand up in the buddha-nature, stand up at the place where all sentient beings are buddha, from the beginning to end. That is [the] main point. 
 
 #### 11:00
 

@@ -61,7 +61,7 @@ Why? What is the reason why we have to do this? Dōgen Zenji says:
 
 > We take refuge in the Buddha because he is our great teacher. 
 
-*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words we say Buddha. Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, [...] and functioning of the universe, then Gotama Siddartha [became] Buddha. 
+*Great* means completely beyond the human value good or bad. Buddha is *great* beyond human evaluation. The spirit, the essence of the universe, merit of the universe, and functioning of the universe is completely great, beyond your speculation. When you realize, you become the universe. *You become the universe* means, in other words we say Buddha. Shakyamuni Buddha – Gotama Siddhartha – realized the essence of the universe, the merit or virtue of the universe, [...] and functioning of the universe, then Gotama Siddhartha [became] Buddha. 
 
 >  We take refuge in the Law (the Dharma) because it is good medicine. 
 
