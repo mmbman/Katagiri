@@ -81,7 +81,7 @@ So [...] when the truth is seen in terms of [...] the phenomenal world of human 
 
 #### 20:18
 
-So, “the principle” – the dharma – “of One Mind has two aspects...”
+So, “the principle (the dharma) of One Mind has two aspects.”
 
 > One is the aspect of Mind in terms of the Absolute, ...
 

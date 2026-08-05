@@ -269,7 +269,7 @@ Okay. *Hai.* Do you have questions?
 
 (*Transcriber’s Note:* It’s not clear what introduction is referred to above, but there is a reference to Echū, also known as National Master Daishō, in *Shōbōgenzō* *Soku-shin-ze-butsu* – “Mind Here and Now Is Buddha” – where ostensibly he discusses *The Platform Sutra*.)
 
-That is the general understanding, in Japan, in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
+That is the general understanding, in Japan and in China, about this. So it’s not *exactly* the Sixth Patriarch’s teaching. We are disappointed if we [hear] that, but still we use this Sixth Patriarch’s *Platform Sutra* as one of the Zen Buddhist textbooks. 
 
 So that’s why Dōgen Zenji criticizes [it]... [Although] criticism is [not the right word]. Dōgen Zenji tries to let us know what the *real* teaching of the Sixth Patriarch is, instead of putting it down. 
 

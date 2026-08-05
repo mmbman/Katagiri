@@ -46,11 +46,6 @@ More:
 
 ### Latest Updates
 
+- August 4, 2026: A lot of work is happening behind the scenes. Visible updates to the site may be limited for a while.
+- August 4, 2026: Rough drafts of the remainder of the [*Awakening of Faith*](awakening-of-faith) series are now posted, at least for the talks that are available. Please bear in mind that they are rough drafts.
 - April 24, 2026: Posted drafts of [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 1”](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1) and [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3”](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
-- March 25, 2026: I’ll be leading a four-week class on Katagiri Roshi’s teachings on *Fukanzazengi* starting on April 8, 2026. Information [here](https://app.etapestry.com/cart/CloudsInTheWaterZenCenter/default/item.php?ref=25.0.76296285).
-- February 27, 2026: Posted first version of [“Notes on *Genjōkōan*”](genjokoan-notes).
-- February 25, 2026: Posted [“*Blue Cliff Record* Case 54: Yun Men Extends Both Hands”](1984-02-08-Blue-Cliff-Record-Case-54).
-- February 20, 2026: Posted [“Disporting with the Buddhas: Transformation through Play”](1987-12-19-Transformation-through-Play).
-- February 17, 2026: I’m reorganizing the homepage around a “Dōgen Studies” section. 
-- January 29, 2026: Posted the rest of the [1988 series on the Precepts](precepts).
-

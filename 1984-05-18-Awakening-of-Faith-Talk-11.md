@@ -150,9 +150,7 @@ So very naturally, the mind as phenomena, if you see the mind in terms of phenom
 
 Next:
 
-> What is called the Storehouse Consciousness is that in which “neither birth nor death (nirvana)” diffuses
-harmoniously with “birth and death (samsara)”, [and yet in which both are neither
-identical nor different].
+> What is called the Storehouse Consciousness is that in which “neither birth nor death (nirvana)” diffuses harmoniously with “birth and death (samsara)”, [and yet in which both are neither identical nor different].
 
 What do you understand this [means] – “diffuses [harmoniously] with”? Do you understand that? “Diffuses harmony with.” *[He laughs.]* Is that coming together, or separate, scattered? What [does it] mean, “diffuses harmoniously with”?
 
