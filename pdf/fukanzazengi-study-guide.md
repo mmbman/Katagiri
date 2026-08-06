@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7.7]
+  #text(size: 1.2em)[Draft Version 0.7.8]
   
   #datetime.today().display()
   
@@ -93,7 +93,7 @@ fontsize: 12pt
 
 Zen Master Dōgen’s *Fukanzazengi* (“Universal Recommendation for Zazen”) is probably the most fundamental text of Sōtō Zen Buddhism. Composed by Eihei Dōgen in 13th century Japan, written in Classical Chinese, it explains both the *how* and the *why* of Zen meditation. Traditionally this short text is recited every evening during *sesshin* (Zen meditation retreat), but it has meaning for practitioners in all areas of life – hence “*Universal* Recommendation.”
  
-Dainin Katagiri Roshi, the founder of Sōtō Zen in Minnesota, worked for decades to bring Dōgen Zenji’s teachings to English-speaking Americans, giving hundreds of dharma talks at [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html). In this document, I go through *Fukanzazengi* line-by-line and attempt to bring together Katagiri Roshi’s teachings on each part of the text, drawn from many of his different talks over the years from 1979 to 1989.
+Dainin Katagiri Roshi, the founder of Sōtō Zen in Minnesota, worked for decades to bring Dōgen Zenji’s teachings to English-speaking Americans, giving hundreds of dharma talks at [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html). In this document, I attempt to bring together Katagiri Roshi’s teachings on each part of the *Fukanzazengi*, drawn from many of his dharma talks over the years from 1979 to 1989.
 
 This is a work in progress. I will be updating this document as I continue to transcribe talks and find additional references, and perhaps some day we might even have access to additional talks that we don’t have access to today. Nevertheless, after six or so years of slow but steady work on transcribing Katagiri Roshi’s talks, there is a solid basis to begin this project. 
 
@@ -248,7 +248,7 @@ This was how Katagiri Roshi introduced *zazen* to a small group of people in 198
 
 This is a key point, which will come up again and again. But what do we mean by *all beings* or *all sentient beings*? This is actually a deep question. 
 
-In brief, “all beings” or “all sentient beings” means *everything* – or at least, *everything in our experience*. Katagiri Roshi often referred to “the table,” “the tape recorder,” or “the microphone” in his explanations of Zen Buddhism, presumably because these objects or “beings” were right in front of him. Dōgen Zenji did not really draw a distinction between animate and inanimate beings, visible or invisible beings, or even sentient and insentient beings; he famously taught that “the insentient preach the dharma.” Although we say “all sentient beings,” the understanding is that all beings are in some sense sentient, because they participate with us in the total dynamic working of the universe. 
+In brief, “all beings” or “all sentient beings” means *everything* – or at least, *everything in our experience*. Katagiri Roshi often referred to “the table,” “the tape recorder,” or “the microphone” in his explanations of Zen Buddhism, presumably because these objects or “beings” were right in front of him. Dōgen Zenji did not really draw a distinction between animate and inanimate beings, visible or invisible beings, or even sentient and insentient beings; he famously taught that “the insentient preach the dharma.” Although we say “all sentient beings,” the understanding is that all beings are in some sense sentient, in some sense alive, because they participate with us in the total dynamic working of the universe. 
 
 A word that we sometimes use for this is *interdependence*. In a talk on *mindfulness*, Katagiri Roshi explained it like this:
 
@@ -600,12 +600,12 @@ Yet we quickly get into discussions about whether Avalokiteshvara is a real enti
 > 
 > – From [“*Kokyō*: The Ancient Mirror – Talk 2” (October 19, 1986) at 27:13](https://katagiritranscripts.net/1986-10-19-Kokyo-Talk-2#2713)
 
-But although *you* yourself must act as Avalokiteshvara, it’s not just the “small” you. This is the *you* that is also connected to something much larger. In other words, “*all* of you.”
+But it’s not just *you* alone; this *you* is connected to something much larger than you. A question often comes up which turns out to be related: in the passage quoted from the *Lotus Sutra* above, why is the Buddha talking to a Bodhisattva called Infinite Thought? The short answer is this: because our practice is to be present with our *total personality* – which is *infinite*. Katagiri Roshi says:
 
-A question often comes up which turns out to be related. In the passage quoted from the *Lotus Sutra* above, why is the Buddha talking to a Bodhisattva called Infinite Thought? The short answer is this: it’s because our practice is to sit with our *total personality* – which is *infinite*. Katagiri Roshi says:
-
-> Avalokiteshvara Bodhisattva is always focusing on not particular things, not [praying] for the satisfaction of human desire. Not pointing out the particular situation, not pointing out the particular experience. Avalokiteshvara is always focusing on *Infinite*. Because this is all of us: Infinite. 
-> 
+> This conversation goes between the Bodhisattva Avalokiteshvara and the Bodhisattva Infinite. So this Avalokiteshvara Bodhisattva, the Cries of Regarding the World, tries to talk with not a particular person, [but] Infinite, a Bodhisattva called Infinite. It’s very interesting. 
+>
+> Avalokiteshvara Bodhisattva is always focusing not on particular things, not [praying] for the satisfaction of human desire. Not pointing out a particular situation, not pointing out a particular experience. Avalokiteshvara is always focusing on *Infinite*. Because this is all of us: Infinite. 
+>
 > So, you have to listen to the voice from the Infinite. This is the basis of your existence. 
 > 
 > – From “True Heart is Not Infatuation” (January 12, 1985).
