@@ -111,7 +111,7 @@ According to common sense, in history, Bodhidharma went to China to teach Buddhi
 
 So completely the answer is – all of the questions. Because Buddhism is focused on zazen itself: not after zazen, not before zazen. If you want to do zazen, you have to *do* zazen. That *do* zazen is exactly the intrinsic value of pure human activities, [where] all delusions drop off. Nothing. No pain. 
 
-We don’t understand. But *we don’t understand* doesn’t mean we should stop. We have to plant a good seed. For what? For now? For you? No. For future generations, for the long range. For all sentient beings. 
+We don’t understand, but *we don’t understand* doesn’t mean we should stop. We have to plant a good seed. For what? For now? For you? No. For future generations, for the long range. For all sentient beings. 
 
 Even though you don’t understand, all we have to do is, we have to do zazen based on *freedom*, perfect freedom. There is no chance to be involved in *after zazen* or *before zazen*. If you are involved in after or before, that is nothing but human life with which you are completely tied in the dualistic world. 
 

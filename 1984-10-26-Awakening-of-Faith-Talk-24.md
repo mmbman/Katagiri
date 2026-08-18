@@ -3,7 +3,7 @@ title: "The Awakening of Faith – Talk 24"
 ---
 ## October 26, 1984 Dharma Talk by Dainin Katagiri Roshi
 
-#### [Previous](1984-10-19-Awakening-of-Faith-Talk-23) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-10-19-Awakening-of-Faith-Talk-23) | [Next](1985-01-12-True-Heart-is-Not-Infatuation) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
 
 
 ### Transcript
@@ -264,4 +264,4 @@ So that's a [provision]. And that's why to suffer from shackles means you cannot
 
 #### *This talk was transcribed by Kikan Michael Howard. Audio recordings of Katagiri Roshi are being used with permission of [Minnesota Zen Meditation Center](https://www.mnzencenter.org/katagiri-project.html).*
 
-#### [Previous](1984-10-19-Awakening-of-Faith-Talk-23) | [Next](1985-06-22-Introduction-to-Buddhism) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
+#### [Previous](1984-10-19-Awakening-of-Faith-Talk-23) | [Next](1985-01-12-True-Heart-is-Not-Infatuation) | [List](list#1984) | Series: [Awakening of Faith](awakening-of-faith)
