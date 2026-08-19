@@ -230,7 +230,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 ### 1985
 
 1. Buddha Nature: Something Universal
-1. True Heart is not Infactuation
+1. [True Heart is Not Infatuation](1985-01-12-True-Heart-is-Not-Infatuation)
 1. The Simple Practice
 
 1. *Blue Cliff Record* Case 67
