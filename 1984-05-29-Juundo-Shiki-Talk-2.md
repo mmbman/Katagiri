@@ -26,17 +26,17 @@ Yes, that’s true. Desire, generally. You can say desire too.
 
 Look at your life. If you have intention or if you want to have a certain commitment to something... very generally speaking, in a general point of view, if you want to have a certain commitment to zazen, what is the basic principle of your commitment? Why do you want [to commit]? 
 
-Compassion?
+– Compassion?
 
 Generally speaking. Very generally, usually. 
 
-GREED. *[Laughter.]*
+– GREED. *[Laughter.]*
 
 That’s true. 
 
 Yes, that’s true. 
 
-Seeking truth.
+– Seeking truth.
 
 Seeking truth. Seeking truth is a pretty religious aspiration. So, it’s a little different, but we may find a situation of the general attitude of aspiration, reason, usally based on greed, craving, desire, something like that. So even in the religious aspiration, still there is. That’s why even in religion we always create some problems. 
 
@@ -52,7 +52,7 @@ Yes. Push your button, something is coming up. And then at that time, I told you
 
 You don’t? Everyone? 
 
-You get sick from all the junk that comes out of the machine. 
+– You get sick from all the junk that comes out of the machine. 
 
 Sure, but are you sure? 
 
@@ -66,7 +66,7 @@ Temporarily.
 
 So you can say it doesn’t satisfy you. Can you? 
 
-You can if you try. 
+– You can if you try. 
 
 No, consciously or unconsciously your life is already based on what? Vending machine? Look at your life. Don’t you think so? Very simple vending machine. 
 
@@ -78,39 +78,41 @@ So you cannot say, “It’s lots of junk comes up, so I don’t like it. I’m 
 
 So everyone is a vending machine. *[He laughs.]* It’s interesting, isn’t it? 
 
-What why is the vending machine a problem for human life? Why? It’s a very simple practice: you’re pusshing a button and you’re getting the result. 
+Why is the vending machine a problem for human life? Why? It’s a very simple practice: you’re pushing a button and you’re getting the result. 
 
-Black box? 
+– Black box? 
 
-Black box! You don’t know that you don’t know completely what’s going on inside. All you have to do is just to push a button and then get the result. That’s why people are always doing that. It’s fun. 
+Black box! You don’t know completely what’s going on inside. All you have to do is just to push a button and then get the result. That’s why people are always doing that. It’s fun. 
 
 So, the way seeking mind is to realize that religious aspiration, which you have to seek with the truth, is to realize how [much a] vending machine your life is. The other point is, you shouldn’t be black box. 
 
-- Shouldn’t?
+– Shouldn’t?
 
-Should not. You should know how much, how strongly your life is dependant on vending machine. You should realize. This is first point. Second point, if you realize it, as best as you can, you shouldn’t be black box. As best as you can, you have to learn what’s going on. And then, what do you have to learn? What is it? I didn’t tell you yesterday, but maybe you can give me some ideas. What do you have to know? What is the internal mechanism there? What is it? 
+Should not. You should know how much, how strongly your life is dependant on vending machine. You should realize. This is first point. Second point, if you realize it, as best as you can, you shouldn’t be black box. As best as you can, you have to learn what’s going on. 
 
-- 
+And then, what do you have to learn? What is it? I didn’t tell you yesterday, but maybe you can give me some ideas. What do you have to know? What is the internal mechanism there? What is it? 
+
+– 
 
 Yes. That’s why what is the structure of internal mechanism? What is the structure of internal mechanism for human life? 
 
-- Suffering? 
+– Suffering? 
 
 Suffering? Yes. In the Buddhist teaching, you can use the Buddhist teaching. 
 
-- Greed, anger
+– Greed, anger
 
-- ...
+– ...
 
-Yes it is. *[Laughter.]* Let’s look at a more simple teaching. Tathagatagarbha is a more development aspect of Buddhist teaching, after primitive Buddhism. So let’s return to the primitive religion, while the Buddha was alive. At that time, Buddha teaches us what?
+Yes it is. *[Laughter.]* Let’s look at a more simple teaching. *Tathagatagarbha* is a more [developed] aspect of Buddhist teaching, after primitive Buddhism. So let’s return to the primitive religion, while the Buddha was alive. At that time, Buddha teaches us what?
 
-- Ignorance. 
+– Ignorance. 
 
-- Interdependence. 
+– Interdependence. 
 
 Interdependence, yes, that is one. The other one is? 
 
-Change, impermanence. 
+– Change, impermanence. 
 
 Impermanence is the teaching of looking at the human life in terms of time. The interdependence teaching is looking at the human life in terms of space. Alright? 
 
@@ -118,11 +120,13 @@ And then after the development of Buddhism, then those two teachings are express
 
 Emptiness. Yes. 
 
-So the contents of emptiness is, well mainly, one is impermanence. Second is interdependent co-origination. That is the contents of emptiness. So in order to be free from the black box, you have to learn at least two: impermanence, and also interdependent co-origination. *Interdependent co-origination* means a teaching of causation; how cause and effect operates in the human world. That point was explained yesterday a little bit. Do you understand? Is that alright? Do you remember? 
+So the contents of emptiness is, well mainly, one is impermanence. Second is *interdependent co-origination*. That is the contents of emptiness. 
 
-Okay. So, we have to learn, in order to be free from the black box, we have to know the impermanence and interdependent coorigination teaching of causation – how cause and effect work in human life with all sentient beings. 
+So in order to be free from the black box, you have to learn at least two: impermanence, and also interdependent co-origination. *Interdependent co-origination* means a teaching of causation; how cause and effect operates in the human world. That point was explained yesterday a little bit. Is that alright? Do you remember? 
 
-And then, the vending machine works. How about the causal and effect of the vending machine operates – how? 
+Okay. So, we have to learn, in order to be free from the black box, we have to know the impermanence and interdependent co-origination teaching of causation – how cause and effect work in human life with all sentient beings. 
+
+And then, the vending machine works. How about the cause and effect of the vending machine operates – how? 
 
 Simultaneously... uh-huh...
 
@@ -150,11 +154,13 @@ So, very naturally that teaching of causation is understood in the plain dimensi
 
 And then, the Western scientists have kept their eyes open to see what? Hmm? 
 
-Yeah, to see what? The science, science, I told you yesterday? What is that? 
+Yeah, to see what? The science, I told you yesterday? What is that? 
 
-- Ecology. 
+– Ecology. 
 
-Ecology, yes. Ecology. Finally, we cannot understand cause and effect in the plain dimension, in that way, just like a vending machine. If you always deal with human life or everything just like this, you cannot understand the panorama picture of a human life like this. So very naturally we open our eyes [to] how ecology is important. 
+Ecology, yes. Ecology. 
+
+Finally, we cannot understand cause and effect in the plain dimension, in that way, just like a vending machine. If you always deal with human life or everything just like this, you cannot understand the panoramic picture of a human life like this. So very naturally we open our eyes [to] how ecology is important. 
 
 So, in terms of the ecology, in the cause and effect, how does cause and effect work? 
 
@@ -164,7 +170,7 @@ So, in terms of the ecology, in the cause and effect, how does cause and effect 
 
 So, your past life is connected to the present, present life connected with the past and connected with the future, and the future connected with the present life. All are going circularly, completely [...]. This is *ecology*: mutually helping and developing each other.
 
-And recently, something more important thing happens. That is a what? How should we see cause and effect? Something more than a ecology. 
+And recently, something more important happens. That is a what? How should we see cause and effect? Something more than a ecology. 
 
 - Physics. 
 
@@ -180,9 +186,11 @@ Sure, not critical criticism toward physics, okay? But let’s look at the physi
 
 - Computer. 
 
-Computer. We, anyway, create a computer; that means human beings are already computer. Computer means before you create a computer, human body is exactly fantastic computer system there. Alright? Do you understand? That’s why we can create computers. But now, the problem is, people are really dependent on the machine, computer as a machine, and forgetting the human origin of the computer, from where it comes. 
+Computer. We, anyway, create a computer; that means human beings are already computer. Computer means before you create a computer, human body is exactly fantastic computer system there. Alright? Do you understand? That’s why we can create computers. 
 
-Do you understand? We are already computer, [...] computer, something more than a machine, alright? That’s why we can create computer. But now everyone is really crazy about a computer, just like a god, believing in god. Yes it is! But that is a little bit perverted, because completely they forget themselves. Because we such a computer. Who creates? We create. And then you create computer, and finally the computer eats you up. *[Nervous laughter.]* That’s the problem. If you create the computer, you have to anyway use it subjectively, positively; anyway you should use it. Alright? 
+But now, the problem is, people are really dependent on the machine, computer as a machine, and forgetting the human origin of the computer, from where it comes. 
+
+Do you understand? We are already computer, [...] computer, something more than a machine, alright? That’s why we can create computer. But now everyone is really crazy about a computer, just like a god, believing in god. Yes it is! But that is a little bit perverted, because completely they forget themselves. Because we are such a computer. Who creates? We create. And then you create computer, and finally the computer eats you up. *[Nervous laughter.]* That’s the problem. If you create the computer, you have to anyway use it subjectively, positively; anyway you should use it. Alright? 
 
 But anyway, this is a computer. So what is a computer? Computer is... science? Modern science is physics, and modern science creates this computer. That’s wonderful – in a sense. And this computer looks at the cause and effect, how? Structure of the computer, in other words, original idea of computer comes from what? I don’t know the computer, but anyway, I want to ask you what is the original idea of computers? 
 
@@ -206,11 +214,11 @@ Do you remember? You forgot, huh? *[Laughter.]*
 
 You should remember; this is very important: cause and effect operate as one. Simultaneously. 
 
-This is the original idea of computer. The computer you use is still a machine, you know, just the beginners, you know. I mean, I think in the army and the jet airframes, and for that jet airframe, there are many kinds of computers in this world you have never seen before. But anyway, original idea of computer is based on unity of cause the effect; in other words, oneness of cause and effect, simultaneously. 
+This is the original idea of computer. The computer you use is still a machine, you know, just the beginners, you know. I mean, I think in the army and the jet airplanes, and for that jet airplane, there are many kinds of computers in this world you have never seen before. But anyway, original idea of computer is based on unity of cause the effect; in other words, oneness of cause and effect, simultaneously. 
 
 What is that? How computer works?
 
-Yesterday I told you, the computer on the shelf. 
+Yesterday I told you, the computer on the [ship]. 
 
 - Depends on [...]
 
@@ -244,7 +252,7 @@ So practice is what? Practice is... what is the practice? Okay? Two aspects. Wha
 
 - [...]
 
-Right. Just going, proceeding, constantly proceeding. Don’t stop. You have to constantly proceeding. On the other hand, you have to constantly learn; information. Those proceeding, that is output, simultaneously input come together, and unity, and that unity of the input and output becomes energies, for the ship to direct her course correctly. 
+Right. Just going, proceeding, constantly proceeding. Don’t stop. You have to constantly [be] proceeding. On the other hand, you have to constantly learn; information. Those proceeding, that is output, simultaneously input come together, and unity, and that unity of the input and output becomes energies, for the ship to direct her course correctly. 
 
 Do you understand? 
 
@@ -322,9 +330,7 @@ So, that is *the way seeking mind*. The way seeking mind is quite different from
 
 ...  You become a vending machine in the religious world. That’s really complicated; and also that is really strong ego sense there, ignorance there. That’s why if you create a problem, that problem is really enormous, terrible fires, you know? And [confusion] all over the world. It’s very difficult to “blow out.” *[He chuckles.]* Very difficult. That’s why you have to be careful. That’s why you have to do zazen like this. *[He chuckles.]*
 
-So, anyway, if you don’t understand the way seeking mind: first of all your life should proceed constantly, on the other hand, you should get information. That is, learning constantly. But with within the learning, we have to constantly learn in terms of broad perspective. That is *prayer*, *reflection*, and many things. 
-
-And then very naturally you can proceed. 
+So, anyway, if you don’t understand the way seeking mind: first of all your life should proceed constantly, on the other hand, you should get information. That is, learning constantly. But with within the learning, we have to constantly learn in terms of broad perspective. That is *prayer*, *reflection*, and many things. And then very naturally you can proceed. 
 
 How do we do it? Zazen is very typical crystalization of all kinds of Buddhist practice. Zazen is [...] 
 
@@ -336,21 +342,21 @@ That is not right zazen. If you get the information, if you don’t know how to 
 
 So, anyway, constantly proceed. But we don’t do it. You know, “Oh, exhaustion...” So that’s why the other day I mentioned, “Don’t be beaten by the self.” Even though you are beaten by circumstances. It’s very natural; people are completely crushed by the circumstances, and object, et cetera. But the important point is don’t be crushed by the self. That means you are computer. You must be what? Constantly [working]. How do we know? Just proceed. Your ship must be proceeding. Bodhi-mind is already constantly watching; that is computer. Regardless of whether you like it or not, your bodhi-mind is constantly working. So all you have to do is, you should learn what the ship is. This is your body and your mind.
 
-But nevertheless, it’s very difficult to know whole things, that’s why you should proceed, get information, and constantly unity of the input and output, [it] comes together and lets you move constantly. That is a practice; we say *gyōji*. Maintaining the Buddha’s practice, constantly. 
+But nevertheless, it’s very difficult to know whole things, that’s why you should proceed, get information, and constantly unity of the input and output, [it] comes together and lets you move constantly. That is a practice; we say *gyōji*: maintaining the Buddha’s practice, constantly. 
 
 But that Buddhist practice, we don’t know what the Buddhist practice is, that’s why Buddhist practice is supported by continuous proceeding and getting the information, simultaneously with prayer, reflection, repentance; like this. Then, the whole things works together. That is the *internal mechanism*. Alright? We should know this. 
 
 At that time, very naturally, we can taste what bodhi-mind is.
 
-Actually, in ancient times, traditionally we don’t explain the way seeking mind like this. No. *Practically*. The teacher, anyway, *[unknown]* *doshin* in the way seeking mind. Just like there is an example, and this is an event which happens in China. Two monks went to see the [Sekkin] Zen Master, who lived in the 8th century or so. And in the monastery, do you know, there is a *tangaryo* where you have to practice for a while, for a week before you join the other monks. You have to stay in a particular room, so-called *tanga*, means *stay overnight*. One zen master says *tanga* means the name of a bird which stayed only overnight. I don’t know, I have never heard of that kind of bird, but a Zen master said. Anyway, it doesn’t matter. Anyway, we have a *tangaryo*, a room of *tanga*, for the novices or visitor to practice there for a while before they are allowed to join monks’ life. And then, anyway, two monks went there and put were put in the *tangaryo*. Unfortunately, the [Sekyin] Zen master’s temple was very poor, very poor. And also, in addition to this, he was very strict; *very* strict. But anyway, they knew already how strict he was and how poor he was, but anyway, they wanted to go there and practice it. And then he put them in the *tangaryo* and he said, you should get out, because I don’t want to accept you. And that’s it. 
+Actually, in ancient times, traditionally we don’t explain the way seeking mind like this. No. *Practically*. The teacher, anyway, *[unknown]* *doshin* in the way seeking mind. Just like there is an example, and this is an event which happens in China. Two monks went to see the [Sekkin] Zen Master, who lived in the 8th century or so. And in the monastery, do you know, there is a *tangaryo* where you have to practice for a while, for a week before you join the other monks. You have to stay in a particular room, so-called *tanga*, means *stay overnight*. One zen master says *tanga* means the name of a bird which stayed only overnight. I don’t know, I have never heard of that kind of bird, but a Zen master said. Anyway, it doesn’t matter. 
+
+Anyway, we have a *tangaryo*, a room of *tanga*, for the novices or visitor to practice there for a while before they are allowed to join monks’ life. And then, anyway, two monks went there and put were put in the *tangaryo*. Unfortunately, the [Sekyin] Zen master’s temple was very poor, very poor. And also, in addition to this, he was very strict; *very* strict. But anyway, they knew already how strict he was and how poor he was, but anyway, they wanted to go there and practice it. And then he put them in the *tangaryo* and he said, you should get out, because I don’t want to accept you. And that’s it. 
 
 But they really wanted to practice there, so they sat continually in *tangaryo*, and later he came to Tangaryo again and said, “I am very poor. I don’t have enough food to support you. So get out.” But still they didn’t. They continued to sit. And it was cold winter; it was really cold winter. 
 
 At midnight, he woke up and went to the *tangaryo* and found them, and said, “You’re still there!” Immediately he carried a bucket of cold water and threw it at them. *[Laughter.]*
 
-And then everyone says, “Oh, how terrible [Sekyin] Zen master was! He was a really cruel, nasty guy! *[He laughs.]* *[Laughter.]* 
-
-But he didn’t care. Anyway, he did it, and next morning he appeared again and said, “You are *still* there.” Then he said, “You should get out of here immediately before I throw you away. They said, “I will never move. I want to stay here. Whatever you do, I don’t want to move here.” And then [Sekkyin] Zen master said, “Oh, is that so? Okay, I will accept you.”
+And then everyone says, “Oh, how terrible [Sekyin] Zen master was! He was a really cruel, nasty guy! *[He laughs.]* *[Laughter.]* But he didn’t care. Anyway, he did it, and next morning he appeared again and said, “You are *still* there.” Then he said, “You should get out of here immediately before I throw you away. They said, “I will never move. I want to stay here. Whatever you do, I don’t want to move here.” And then [Sekkyin] Zen master said, “Oh, is that so? Okay, I will accept you.”
 
 Do you understand? *[Laughter.]*
 
@@ -374,9 +380,7 @@ But for a mountaineer it is a little bit easier, because there is a mountain, wh
 
 So, spiritual life is pretty hard. But we want to do it, because we already have bodhi-mind.
 
-That’s why Dōgen Zenji says bodhi-mind is not something gotten by somebody’s compulsion, or your compulsion. No; bodhi-mind is already there. It’s already coming up, constantly. 
-
-According to the book *The Awakening of Mahayana Faith*, the bodhi-mind is called “Original Enlightenment.” So it’s coming up, constantly. 
+That’s why Dōgen Zenji says bodhi-mind is not something gotten by somebody’s compulsion, or your compulsion. No; bodhi-mind is already there. It’s already coming up, constantly. According to the book *The Awakening of Mahayana Faith*, the bodhi-mind is called “Original Enlightenment.” So it’s coming up, constantly. 
 
 So, that’s why even though you don’t understand bodhi-mind, we are already in the bodhi-mind, that’s why let’s practice bodhi-mind every day. That is, continually proceed, and learn. 
 
