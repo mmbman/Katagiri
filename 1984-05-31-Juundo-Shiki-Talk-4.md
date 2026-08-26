@@ -20,7 +20,7 @@ title: "Jūundō Shiki, Rules for the Monks Annex – Talk 4"
 >
 > Do not look for a chance to go out. But if necessary, going out is permitted once a month. People in the past lived in the remote mountains and practiced far away in the forests. Not only were they free of nearly all worldly affairs, but they also abandoned all involvements. You should learn the heart of their covering brilliance and obscuring traces. Now is the time for the fire on your head to be wiped out. Is it not sad if you waste this time, concerning yourself with secular affairs? The impermanent is unreliable. No one knows where and when this dew-like existence will drop into the grass. Not recognizing impermanence is truly regrettable.
 >
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi, modified by Katagiri Roshi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi; modified by Katagiri Roshi.
 
 Well, I think this is Dogen Zenji’s teaching. We should get taste in your whole life, day by day. Dogen Zenji says to his disciples, “I will never leave Mount Eihei, and never leave the *sōrin* (叢林), life after life.” *Sōrin* means monastery. 
 
@@ -566,7 +566,7 @@ So this time, this opportunity is very important. That’s why Dogen Zenji says:
 
 > Now is the time for the fire on your head to be wiped out.
 >
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
 
 That is a very emergency case. 
 
@@ -578,7 +578,7 @@ And then, Dogen Zenji says,
 
 > The impermanent is unreliable.
 >
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
 
 This is the observation of impermanence, exactly. Because if you live like that, very naturally impermanent, how impermanent, working very quickly, swiftly. How changeable we are – including your mind, your body. 
 

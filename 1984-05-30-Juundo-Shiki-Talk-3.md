@@ -16,9 +16,11 @@ title: "Jūundō Shiki, Rules for the Monks Annex – Talk 3"
 
 **Archive Issue: The first half of the recording is blank.**
 
+> 2.
+> 
 > The assembly of students in the hall should blend, like milk and water, to support the activity of the way. Although now for some period you are guest or host, later you will be buddha ancestors equally throughout time. Therefore you should not forget the feeling of gratitude. It is rare to meet one another and to practice what is rare to practice. This is called the body and mind of buddha-dharma; you will certainly become a buddha ancestor.
 > 
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
 
 #### 00:39:21
 
@@ -52,7 +54,7 @@ So someday, you have to put yourself like this, in the bamboo stick.
 
 > This is called the body and mind of buddha-dharma; you will certainly become a buddha ancestor.
 > 
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
 
 “This is called the body and mind of buddha-dharma”: this means opportunity you can meet each other on rare opportunity and practice what is rare, true practice. This modified this sentence. So this opportunity which you can meet is very rare, with each other, practice which is rare to practice is what is called buddha ancestor. The body and mind of the buddha ancestor. We don’t understand this one, but according to what I said for two days so far on the way seeking mind: the way seeking mind is the mainspring of burning your energy, vitality. That is the way seeking mind. Drive your engine, drive your ship. Constantly, you cannot stop it. You have to move; you have to proceed. And also, in the process of proceeding, you have to continually learn all sentient beings. It’s impossible, but you have to learn all sentient beings, which is impossible for you to learn all. That’s why you have to learn, constantly. You have to make a determination to learn: how? Continually, you have to learn. But it’s pretty hard. That’s why with vow, repentence, reflection, and prayer, we can make a determination of learning continually; the whole situation, all sentient beings, which is impossible for us to learn all, in this life. 
 
@@ -108,7 +110,7 @@ So that is *the body and mind of buddha-dharma*. You will certainly become a Bud
 
 > You have left your home and birthplace. You depend on clouds and you depend on water. 
 >
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi.
 
 Clouds and water [means] human life is helped by people and grasses, birds, skies, [nations], weather. Rainy days, snowy days. You cannot live alone. You cannot take care of yourself by yourself. That’s why you depend on clouds and water. It means the whole universe, every day. Rare opportunity, now and here. Next moment. The whole situation: you really depend upon the whole situation, the panoramic picture of the universe. Which is just like a cloud: as it really is. Cloud is moving constantly, hanging in the sky – but nothing to hang on to. It’s moving, but it’s there, in the sky. Just like water. 
 
@@ -122,7 +124,7 @@ So, “You depend on the clouds and you depend on water...”
 
 > The helpfulness of this assembly in support of you and your practice surpasses that which was given by your father and mother. Your father and mother are temporarily close to you in birth and death, but this assembly of students is your companion in the way of enlightenment for all time.
 >
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi, probably modified by Katagiri Roshi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi; modified by Katagiri Roshi.
 
 Maybe you have lots of questions about this, but I don’t mean you should disrespect your parents, mother and father, because your mother and father let you be born in this world, and raised your life. But the people in the sangha are something more than father and mother, because they make you *mature*. Mature, and peaceful. Visibly or invisibly, the people in the sangha put you [to] work exactly in peace and harmony. Just like a ship moving, every day. 
 

@@ -24,17 +24,22 @@ So anyway, that is the *jū*: “double.”
 
 *Undō* means “cloud hall.” *Cloud* is another name for the monks. We say *unsui*: “cloud and water” – that is another name for the monks. So the *undō*, cloud hall, means the hall for monks. But now, mainly we say *sōdō*; *sō* means “monk.” So, “monks hall.” So *sōdō*, *undō*, *zendo*; many names. But here, Dōgen Zenji used the *undō*. So, double *undō*. 
 
-*Shiki* of *jūundō shiki* means “regulations.” So, the translation here says, “Regulation for Auxiliary Cloud Hall.” Well, it’s alright. 
+*Shiki* of *jūundō shiki* means “regulations.” So, the translation here says, “Regulations for the Auxiliary Cloud Hall.” Well, it’s alright. 
 
+(*Transcriber’s Note:* The Sōtō Zen Text Project translates the title as “Procedures for the Hall of Gathered Clouds,” which may actually be more in the spirit of the piece.)
+	
 #### 06:13
 
 And first, Dōgen Zenji says:
 
+> 1.
+>
 > Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity should not enter. If the entry is a mistake, after some consideration one maybe asked to leave.
 >
 > When the way-seeking mind is aroused inwardly, there is immediately freedom from fame and profit. In the vastness of billions of worlds, true heirs (who have been entrusted with the) dharma are rare. In spite of the long history of our country you should make the (true heirs) the true source, having compassion for later generations by giving emphasis to the present.
 > 
-> – From *Moon in a Dewdrop*, edited by Kazuaki Tanahashi; modified by Katagiri Roshi.
+> – From “Regulations for the Auxiliary Cloud Hall (Jūundō-shiki)” in *Moon in a Dewdrop*, edited by Kazuaki Tanahashi; modified by Katagiri Roshi.
+
 
 First, “Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity shouldn’t enter. If the entry is a mistake, after some consideration, they may be asked to leave.”
 
