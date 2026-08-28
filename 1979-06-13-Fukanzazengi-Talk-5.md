@@ -105,7 +105,7 @@ Because he had tried to leave for other temples, to see other Zen teachers and c
 
 > Gensha said, “Bodhidharma didn’t come to the East. The Second Patriarch didn’t go to the West.” 
 
-That means we shouldn’t go to before zazen, we shouldn’t go to after zazen. So that is, “Bodhidharma didn’t go east, west.” 
+That means we shouldn’t go to before zazen, we shouldn’t go to after zazen. That is [the meaning of] “Bodhidharma didn’t go east, west.” 
 
 According to common sense, in history, Bodhidharma went to China to teach Buddhism. This is common sense. But Buddhism doesn’t deal with the subject in that way. Buddhism always makes a question: “Why did Bodhidharma come to China to teach?” A Zen teacher doesn’t answer this question according to common sense. Some Zen Master says, “He didn’t come.” He didn’t come to China. He didn’t teach anything in China. Just sitting. 
 
