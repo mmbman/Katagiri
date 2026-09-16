@@ -203,7 +203,7 @@ But practically, it’s very simple, very simple, because you have to return hom
 
 But when you expect something, you completely go away from your home, seeking for something. But actually not; there is nothing to get. And finally you have to return. 
 
-So if you seek something going out of yourself, out of your home – well it’s fine, but it makes you busy, that’s all. Running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony, and then you say, “Oh, this is [alright].” 
+So if you seek something going out of yourself, out of your home – well it’s fine, but it makes you busy, that’s all. Running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is [alright].” 
 
 This is our point. That’s all. The basic practice is very simple, very simple.
 

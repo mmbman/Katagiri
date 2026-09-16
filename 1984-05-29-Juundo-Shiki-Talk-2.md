@@ -120,11 +120,11 @@ And then after the development of Buddhism, then those two teachings are express
 
 Emptiness. Yes. 
 
-So the contents of emptiness is, well mainly, one is impermanence. Second is *interdependent co-origination*. That is the contents of emptiness. 
+So the contents of emptiness is, well mainly, one is *impermanence*. The second is *interdependent co-origination*. That is the contents of emptiness. 
 
-So in order to be free from the black box, you have to learn at least two: impermanence, and also interdependent co-origination. *Interdependent co-origination* means a teaching of causation; how cause and effect operates in the human world. That point was explained yesterday a little bit. Is that alright? Do you remember? 
+So in order to be free from “black box,” you have to learn at least two: impermanence, and also interdependent co-origination. *Interdependent co-origination* means a teaching of causation; how cause and effect operates in the human world. That point was explained yesterday a little bit. Is that alright? Do you remember? 
 
-Okay. So, we have to learn, in order to be free from the black box, we have to know the impermanence and interdependent co-origination teaching of causation – how cause and effect work in human life with all sentient beings. 
+Okay. So, in order to be free from the black box, we have to [learn] the impermanence and interdependent co-origination teaching of causation – how cause and effect work in human life with all sentient beings. 
 
 And then, the vending machine works. How about the cause and effect of the vending machine operates – how? 
 
@@ -132,9 +132,11 @@ Simultaneously... uh-huh...
 
 How does cause and effect work in the vending machine? 
 
-Give and take. Anything else? 
+Give and take. 
 
-[...]
+Anything else? 
+
+- Input and output.
 
 - Input becomes output? 
 
@@ -148,27 +150,27 @@ Hmm? No. Do you think so? No.
 
 So, yes... sorry, no. *[Laughter.]*
 
-So, the cause and effect of the vending machine operates in a very simple way. That is, in other words, in a very plain dimension. Very plain dimension: cause, and effect. Push a button, get a result. That’s it. Next moment, you should push the button, cause and effect. Next moment, push the button and effect. On and on like that. Finally, that life affects everyone, but finally that teaching of causation doesn’t connect with your life. 
+#### 16:42
+
+The cause and effect of the vending machine operates in a very simple way; in other words, in a very plain dimension: cause, and effect. Push a button, get a result. That’s it. Next moment, you should push the button: cause, and effect. Next moment, push the button, and effect. On and on like that. That life affects everyone, but finally that teaching of causation doesn’t connect with your life. 
 
 So, very naturally that teaching of causation is understood in the plain dimension; that’s it. Just like the jet airplanes: just [whoosh]! That’s it. No coming back. Okay? 
 
-And then, the Western scientists have kept their eyes open to see what? Hmm? 
-
-Yeah, to see what? The science, I told you yesterday? What is that? 
+And then, the Western scientists have had their eyes open to see what? The science, I told you yesterday? What was that? 
 
 – Ecology. 
 
 Ecology, yes. Ecology. 
 
-Finally, we cannot understand cause and effect in the plain dimension, in that way, just like a vending machine. If you always deal with human life or everything just like this, you cannot understand the panoramic picture of a human life like this. So very naturally we open our eyes [to] how ecology is important. 
+Finally, we cannot understand cause and effect in the plain dimension in that way, just like a vending machine. If you always deal with everything just like this, you cannot understand the panoramic picture of human life. So very naturally we open our eyes to how *ecology* is important. 
 
-So, in terms of the ecology, in the cause and effect, how does cause and effect work? 
+So, in terms of *ecology*, how does cause and effect work? 
 
-- ... 
+- [...]
 
-[...] Everything is connected, alright? 
+[...] 
 
-So, your past life is connected to the present, present life connected with the past and connected with the future, and the future connected with the present life. All are going circularly, completely [...]. This is *ecology*: mutually helping and developing each other.
+Everything is connected. Your past life is connected to the present, present life connected with the past and connected with the future, and the future connected with the present life. All are going circularly, completely beyond your speculation. This is *ecology*: mutually helping and developing each other.
 
 And recently, something more important happens. That is a what? How should we see cause and effect? Something more than a ecology. 
 

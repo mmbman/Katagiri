@@ -14,12 +14,12 @@ fontsize: 12pt
 ---
 ```{=typst}
 //#import "@preview/hydra:0.6.0": hydra
-#set document(title: [Sitting Together With All Beings: Katagiri Roshi’s Teachings on _Fukanzazengi_], author: "Kikan Michael Howard, Dainin Katagiri, Eihei Dōgen", description: [Commentary © 2026 Kikan Michael Howard. Katagiri Roshi’s talks © Minnesota Zen Meditation Center.])
+#set document(title: [Sitting With All Beings: Katagiri Roshi’s Teachings on _Fukanzazengi_], author: "Kikan Michael Howard, Dainin Katagiri, Eihei Dōgen", description: [Commentary © 2026 Kikan Michael Howard. Katagiri Roshi’s talks © Minnesota Zen Meditation Center.])
 
 //#set smartquote(enabled: false)
 
 #align(center + horizon)[
-  #text(size: 2.5em, weight: "bold")[Sitting Together With All Beings]
+  #text(size: 2.5em, weight: "bold")[Sitting With All Beings]
   
   #v(1em)
   #text(size: 1.4em)[Katagiri Roshi’s Teachings on _Fukanzazengi_,#linebreak()Zen Master Dōgen’s _Universal Recommendation for Zazen_]
@@ -28,7 +28,7 @@ fontsize: 12pt
   #text(size: 1.2em)[Kikan Michael Howard]
   
   #v(4em)
-  #text(size: 1.2em)[Draft Version 0.7.8]
+  #text(size: 1.2em)[Draft Version 0.7.9]
   
   #datetime.today().display()
   
@@ -50,7 +50,7 @@ fontsize: 12pt
     if calc.even(page-num) {
 		[_Katagiri Roshi’s Teachings on Fukanzazengi_]
 	} else {
-		[_Sitting Together With All Beings_]
+		[_Sitting With All Beings_]
 	}
     h(1fr) 
   }
@@ -103,11 +103,11 @@ The purpose of the [Katagiri Transcripts](https://katagiritranscripts.net) proje
 
 ## About the English Translations of *Fukanzazengi*
 
-[EB] indicates text from the translation of *Fukanzazengi* by Norman Waddell and Masao Abe in *The Eastern Buddhist* magazine, Vol. 6, No. 2 (October, 1973), pp. 115-128. This is the translation that Katagiri Roshi himself was using in the 1970s.
+(EB) indicates text from the translation of *Fukanzazengi* by Norman Waddell and Masao Abe in *The Eastern Buddhist* magazine, Vol. 6, No. 2 (October, 1973), pp. 115-128. This is the translation that Katagiri Roshi himself was using in the 1970s.
 
-[SZ] indicates the [Sōtōshū translation of *Fukanzazengi*](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html). This translation is often used in English-speaking Zen centers today.
+(SZ) indicates the [Sōtōshū translation of *Fukanzazengi*](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html). This translation is often used in English-speaking Zen centers today.
 
-[KR] indicates a translation which appears to be by Katagiri Roshi himself. 
+(KR) indicates a translation which appears to be by Katagiri Roshi himself. 
 
 ```{=typst}
 #pagebreak()
@@ -131,7 +131,7 @@ The purpose of the [Katagiri Transcripts](https://katagiritranscripts.net) proje
 
 # The *Eastern Buddhist* Translation
 
-Source: “Dōgen's *Fukanzazengi* and *Shōbōgenzō zazengi*,” translated by Norman Waddell and Abe Maso, *The Eastern Buddhist*, Vol. 6, No. 2 (October, 1973). [EB]
+Source: “Dōgen's *Fukanzazengi* and *Shōbōgenzō zazengi*,” translated by Norman Waddell and Abe Maso, *The Eastern Buddhist*, Vol. 6, No. 2 (October, 1973). (EB)
 
 ```{=typst}
 #text(font: "Proxima Nova", size: 11pt)[
@@ -146,11 +146,9 @@ Need I mention the Buddha, who was possessed of inborn knowledge? The influence 
 
 You should therefore cease from practice based on intellectual understanding, pursuing words, and following after speech, and learn the backward step that turns your light inwardly to illuminate your self. Body and mind of themselves will drop away, and your original face will be manifest. If you want to attain suchness, you should practice suchness without delay.
 
-For _sanzen_, a quiet room is suitable. Eat and drink moderately. Cast aside all
-involvements and cease all affairs. Do not think good or bad. Do not administer pros and cons. Cease all the movements of the conscious mind, the gauging of all thought and views. Have no designs on becoming a buddha. _Sanzen_ has nothing whatever to do with sitting or lying down.
+For _sanzen_, a quiet room is suitable. Eat and drink moderately. Cast aside all involvements and cease all affairs. Do not think good or bad. Do not administer pros and cons. Cease all the movements of the conscious mind, the gauging of all thought and views. Have no designs on becoming a buddha. _Sanzen_ has nothing whatever to do with sitting or lying down.
 
-At the site of your regular sitting, spread out thick matting and place a cushion above it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, you first place your right foot on your left thigh and your left foot on your right thigh. In the half-lotus, you simply press your left foot against your right thigh. You should have your robes and belt loosely bound and arranged in order. Then place your right hand on you left leg and your left palm facing upwards on your right palm, thumb tips touching. Thus sit upright in correct bodily posture, neither inclining to the left nor to the right, neither leaning forward nor backward. Be sure your ears are on a plane with your shoulders and your nose in line with your navel. Place your tongue against the front roof of your mouth, with teeth
-and lips both shut. Your eyes should always remain open, and you should breathe gently through your nose.
+At the site of your regular sitting, spread out thick matting and place a cushion above it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, you first place your right foot on your left thigh and your left foot on your right thigh. In the half-lotus, you simply press your left foot against your right thigh. You should have your robes and belt loosely bound and arranged in order. Then place your right hand on your left leg and your left palm facing upwards on your right palm, thumb tips touching. Thus sit upright in correct bodily posture, neither inclining to the left nor to the right, neither leaning forward nor backward. Be sure your ears are on a plane with your shoulders and your nose in line with your navel. Place your tongue against the front roof of your mouth, with teeth and lips both shut. Your eyes should always remain open, and you should breathe gently through your nose.
 
 Once you have adjusted your posture, take a deep breath, inhale and exhale, rock your body right and left, and settle into a steady, immobile sitting position. Think of not-thinking. How do you think of not-thinking? Non-thinking. This in itself is the essential art of zazen.
 
@@ -168,13 +166,12 @@ You have gained the pivotal opportunity of human form. Do not use your time in v
 
 Please, honored followers of Zen, long accustomed to groping for the elephant, do not be suspicious of the true dragon. Devote your energies to a way that directly indicates the absolute. Revere the person of complete attainment who is beyond all human agency. Gain accord with the enlightenment of the buddhas; succeed to the legitimate lineage of the ancestors' samadhi. Constantly perform in such a manner and you are assured of being a person such as they. Your treasure-store will open of itself, and you will use it at will.
 ]
-
 #pagebreak()
 ```
 
 # The Sōtō Zen Text Project Translation
 
-Source: [Sōtō Zen Text Project](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html). [SZ]
+Source: [Sōtō Zen Text Project](https://www.sotozen.com/eng/zazen/advice/fukanzanzeng.html). (SZ)
 
 ```{=typst}
 #text(font: "Proxima Nova", size: 11pt)[
@@ -222,48 +219,52 @@ Please, honored followers of Zen, long accustomed to groping for the elephant, d
 > 普勸坐禪儀  
 > *Fukan zazen gi*
 
-> Universal Promotion of the Principles of Zazen [EB]
+> Universal Promotion of the Principles of Zazen (EB)
 
-> Universally Recommended Instructions for Zazen [SZ]
+> Universally Recommended Instructions for Zazen (SZ)
 
-> Universal Recommendation for Zazen [KR]
+> Universal Recommendation for Zazen (KR)
 
 ## Commentary
 
 Katagiri Roshi explains the term *zazen*:
 
 > *Zazen* [is] Zen meditation: in Japanese *za zen* (坐禪). *Za* (坐) is “sitting.” *Zen* (禪) is zen, “tranquility.” 
->
-> I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
->
-> In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 depicts two people 人 sitting on the ground or earth 土.) [...] That [indicates that] you have to sit with more than two beings, [and] not only human beings. You cannot sit alone, so you should sit with more than two beings on the earth, in the universe – not in your own egoistic, selfish territory. 
->
-> [If] you must open yourself and sit in the universe, very naturally you have to sit *with* all sentient beings. That is called *sitting*. And then very naturally [...] *that* sitting is exactly *zen*, tranquility – because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. 
 > 
-> So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. All we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do. 
+> I always use the term *zazen*, because the zazen we do is a little different from the meditation that [...] other religions do. That’s why I want to use the original term *zazen*. 
+> 
+> In Chinese, etymologically, the *za* [is that] two persons sit in the universe. (*Transcriber’s Note:* The character *za* 坐 visually depicts two people 人 sitting on the ground or earth 土.) [...] That [indicates that] you have to sit with more than two beings, [and] not only human beings. You cannot sit alone, so you should sit with more than two beings, on the earth, in the universe – not in your own egoistic, selfish territory. So you must open yourself and sit in the universe; very naturally you have to sit *with* all sentient beings. That is called *sitting*. 
+> 
+> And then very naturally [...] *that* sitting is exactly *zen*, tranquility – because all sentient beings around you are exactly sitting with you! So very naturally that is called *zen*: tranquility. You, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*. 
+> 
+> So all we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do. 
 >
 > – From [“Katagiri Roshi’s Zazen Instruction” (1981)](https://katagiritranscripts.net/zazen-instruction). 
 
-This was how Katagiri Roshi introduced *zazen* to a small group of people in 1981. Note that almost the very first thing he talks about is not a personal, individual goal for “enlightenment,” nor is it a technique to reach that goal – it’s that we sit with all beings, and not just human beings. 
+This was how Katagiri Roshi introduced *zazen* to a small group of people in 1981. Note that the first thing he talks about is not an exhortation that we should strive for “enlightenment,” nor is it a technique to reach that goal – it’s that we sit with all beings, and not just human beings. 
 
-This is a key point, which will come up again and again. But what do we mean by *all beings* or *all sentient beings*? This is actually a deep question. 
+This is a key point, which will come up again and again. 
 
-In brief, “all beings” or “all sentient beings” means *everything* – or at least, *everything in our experience*. Katagiri Roshi often referred to “the table,” “the tape recorder,” or “the microphone” in his explanations of Zen Buddhism, presumably because these objects or “beings” were right in front of him. Dōgen Zenji did not really draw a distinction between animate and inanimate beings, visible or invisible beings, or even sentient and insentient beings; he famously taught that “the insentient preach the dharma.” Although we say “all sentient beings,” the understanding is that all beings are in some sense sentient, in some sense alive, because they participate with us in the total dynamic working of the universe. 
+But what do we mean by *all beings*, or *all sentient beings*? This is actually a deep question. 
+
+In brief, “all beings” or “all sentient beings” means *everything* – or at least, *everything in our experience*. Katagiri Roshi often referred to “the table,” “the tape recorder,” or “the microphone” in his explanations of Zen Buddhism, presumably because these objects or “beings” were right in front of him. Dōgen Zenji did not really draw a distinction between animate and inanimate beings, visible or invisible beings, or even sentient and insentient beings; he famously taught that “the insentient preach the dharma.” Although we say “all sentient beings,” the understanding is that all beings are in some sense sentient, in some sense *alive*, because they participate with us in the total dynamic working of the universe. 
 
 A word that we sometimes use for this is *interdependence*. In a talk on *mindfulness*, Katagiri Roshi explained it like this:
 
-> So [mindfulness is] not the *idea* of mindfulness, because... [Let me say] that [your] observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [and] *you* observe your object, that is the dualistic sense. [That is] very common. And then you *judge* immediately; [you] think something. That is really taking care of human life according to “one-way traffic.” You never think of *two-way traffic*. Because if you observe your object, the object observes you; in other words, you are *observed by* your object. Subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it, by our customs or patterns of thinking. So that’s why next moment we stumble. You know? *[He chuckles.]*
+> So [mindfulness is] not the *idea* of mindfulness, because... [Let me say] that [your] observation is completely pure, perfectly pure, beyond purity or impurity. Why? Because if you contemplate or if you observe something, your object, [and] *you* observe your object – that is the dualistic sense. [That is] very common. And then you *judge* immediately; [you] think something. That is really taking care of human life according to “one-way traffic.” You never think of *two-way traffic*. Because if you observe your object, the object observes you; in other words, you are *observed by* your object. Subject and object are always interwoven, interacting like this, simultaneously. But our sense is always setting up subject and object [as] separate, and next moment, [instead of seeing] that interaction, we judge it, by our customs or patterns of thinking. So that’s why next moment we stumble. You know? *[He chuckles.]*
 >
 > Buddhism always sees that subject and object, because this is a very natural situation. But instead of seeing something and judging it [...] by your sense – see something alive *between* [them], *how* subject and object are working together. That is interpenetration, or *interdependence*, we say. 
 >
 > – [From “Mindfulness – Talk 3” (March 23, 1984)
 at 1-6:56](https://katagiritranscripts.net/1984-03-23-Mindfulness-Talk-3#1-656)
 
-So basically, *zazen* is sitting in the field of *interdependence*. This is why Katagiri Roshi says, “All we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do.”
+Often we may understand interdependence in an abstract way: all of these things “out there” are interacting and influencing each other. That’s no doubt true, and it’s a fine thing to understand – but what we are talking about here is the interdependence that we are actually *experiencing*, right here and right now. 
+
+Basically, *zazen* is sitting in this field of interdependence. That’s why Katagiri Roshi says, “All we have to do is to do our best to sit in the universe with all sentient beings. That’s *all* we have to do.”
 
 Also of interest is the definition of *zen* as *tranquility*. The word *zen* originally comes from the Sanskrit word *dhyana*, which is understood in various ways but which is usually translated as *meditation*. So to define Zen as *tranquility* is really pointing at something, a question: what *is* Zen meditation? And what is *tranquility*? How should we understand it? And how do we practice it? 
 
-That is basically the topic of *Fukanzazengi*, and of this study guide. We’ll return to this understanding of zen as *tranquility* often, especially in Chapter 12: “Surrender to Tranquility,” where we discuss the term *sanzen*, which is usually translated as “Zen practice.” But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
+That is basically the topic of *Fukanzazengi*, and of this study guide. We’ll return to this understanding of zen as *tranquility* often – especially in Chapter 13, where we discuss the term *sanzen*, which is usually translated as “Zen practice.” But it relates to what Katagiri Roshi said above: “So you, and the universe, earth, all beings, and all circumstances, [...] become sitting with you, together. This is called *zazen*.” This is where tranquility and interdependence meet. 
 
 It may sound complicated or confusing at first, but it is actually a very simple practice. Katagiri Roshi says about sitting down in *zazen*:
 
@@ -272,6 +273,9 @@ It may sound complicated or confusing at first, but it is actually a very simple
 > That’s why Dōgen Zenji says “Universal Recommendation for Zazen” – *universal* recommendation. It’s really *universal*. [It’s] not only weeding out (that is, removing all weeds) on your own territory. Anyone can do it. Wherever you may be, you can do it. 
 >
 > – From [“*Fukanzazengi*: Dōgen's Universal Recommendation for Zazen – Talk 3,” June 11, 1979, at 1:02:07](https://katagiritranscripts.net/1979-06-11-Fukanzazengi-Talk-3#10207).
+
+So there are two meanings of the word *universal* that are being used simultaneously here. One meaning of *universal* is that anyone can do this
+practice of zazen. The other meaning is that in zazen we sit with all beings *in the universe*. As we’ll begin to see in the following sections, these two meanings are related.
 
 ---
 
@@ -289,9 +293,9 @@ It’s important to remember that one of the *all sentient beings* that you sit 
 
 Zazen is not about eliminating mental or physical states that we don’t like. Nor, in fact, is it about chasing after mental states that we *do* like. Instead, zazen is about arranging our circumstances – our environment, and our body and mind – so that we can sit *with* all sentient beings. *Sitting with all sentient beings* means sitting in the midst of everything that we are experiencing. That, in turn, means sitting in the midst of the total dynamic working of the whole universe. 
 
-This is what Katagiri Roshi means by “not only on our own territory.” Zazen is not a kind of meditation where we are only trying to improve or perfect ourselves, in a narrow way. Nor are we trying to cut ourselves off from this world and its difficulties. 
+This is what Katagiri Roshi means by “not only on our own territory.” Zazen is not a kind of meditation where we are focused on trying to perfect or improve ourselves. Nor are we trying to cut ourselves off from this world and its difficulties. Zazen is bigger than that.
 
-Plainly speaking, this is a different understanding than in some varieties of Buddhism. We will explore this topic in more detail as we go on, especially in Chapter 20: “Dullness and Distraction are Struck Aside.”
+Plainly speaking, this is a different understanding than in some varieties of Buddhism. We will explore this topic in more detail as we go on, especially in Chapter 21: “Dullness and Distraction are Struck Aside.”
 
 ---
 
@@ -325,17 +329,19 @@ But this is the conclusion: you can do it. Whatever your situation, whether you 
 
 > 原夫道本圓通、  
 
-> The Way is basically perfect and all-pervading. [EB] 
+> The Way is basically perfect and all-pervading. (EB) 
 
-> The Way is originally perfect and all-pervading. [SZ] 
+> The Way is originally perfect and all-pervading. (SZ) 
  
-> The origin of the Way is perfect and all-pervading. [KR] 
+> The origin of the Way is perfect and all-pervading. (KR)
 
 ## Commentary
 
+Many translations of *Fukanzazengi* present this line as something like, “The Way is originally perfect and all-pervading.” However, Katagiri Roshi translates this as, “The *origin of the Way* is perfect and all-pervading.” We’ll come back to this point. First, we need to cover some fundamentals of Zen Buddhism.
+
 According to *Kenzeiki*, a biography of Dōgen Zenji written in the 15th century, Dōgen’s deep question, the one driving him to seek out the truth of Buddhism, was something like this: “If, as the *sutras* (scriptures) teach, all people are endowed with Buddha-nature, why is it that we have to practice to realize that Buddha-nature?”
 
-In the first part of *Fukanzazengi*, which we discuss in Chapters 2 through 8, Dōgen Zenji restates this question and answers it. To understand his answer, first we need to understand what Dōgen means by “the Way.”
+In the first part of *Fukanzazengi*, which we discuss in Chapters 2 through 9, Dōgen Zenji restates this question and answers it. To understand his answer, first we need to understand what Dōgen means by “the Way.”
 
 “The Way” is *tao* or *dao* (道) in Chinese, or in Japanese, *dō*. Dōgen Zenji’s name, *Dō*-*gen* (道元), means “Way Origin.”
 
@@ -399,7 +405,7 @@ After some explanation of the meaning of “excellent friends,” he continues:
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 14:00](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#1400).
 
-So we can say that the Way as *universal life* is the teaching of the universe, the *buddha-dharma*. And the community of people who are following the Way is the *sangha*.
+So we can say that the Way as *universal life* is the teaching of the universe, the *buddha-dharma*. And the community of people who try to follow the Way is the *sangha*.
 
 --- 
 
@@ -429,7 +435,7 @@ Katagiri Roshi vividly describes this appeal in terms of *prayer*:
 > 
 > In other words, if you try to reach out your hand to the universe, the universe reaches out its own hands. Spiritually, in the broad sense, it’s really true. And then Buddha, the spirit of the universe, and you – the path of your life and the path of the universe – become one, interconnected, crossing each other. 
 > 
-> That is called *dōkō*, of *kannō dōkō*. *Kan* means “appeal”. The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
+> That is called *dōkō*, of *kannō dōkō*. *Kan* means “appeal.” The *nō* of *kannō* is “response.” *Dō* of *dōkō* is “the path.” *Kō* of *dōkō* is “to cross.” So appeal and response come across, very quickly. 
 > 
 > – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1” (March 8, 1986) at 33:20](https://katagiritranscripts.net/1986-03-08-Triple-Treasure-Lecture-1#3320).
 
@@ -457,7 +463,7 @@ This *great communication* is not something abstract or just in our heads; this 
 >
 > – From [“*Blue Cliff Record* Case 36: Ch’ang Sha Wandering in the Mountains, Talk 1” (December 1, 1982) at 16:42](https://katagiritranscripts.net/1982-12-01-Blue-Cliff-Record-Case-36-Talk-1#1642)
 
-So with this communication, we can learn about the universe, and about ourselves, in a deeper, more direct way than with our usual intellectual processing.
+So with this communication, we can learn about the universe, and about ourselves, in a deeper, more direct way than with our usual thinking.
 
 ---
 
@@ -482,9 +488,9 @@ Katagiri Roshi comments on this:
 
 It’s important to understand that this appeal and response isn’t a side topic – it’s the main point. “Full communication” isn’t a step toward attaining enlightenment; full communication *is* enlightenment. 
 
-A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be an individual goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
+A mistake that many academic researchers (and other people) make in trying to analyze *Fukanzazengi* is that – despite what Dōgen says, and sometimes despite even what they say themselves – they still assume that *really* there must be a self-oriented goal to attain here, *somehow*, if only we can figure out what it is. So naturally, in order to reach that goal, there must be some secret mental technique that Dōgen is perversely hiding from us. 
 
-As long as you assume this, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way – because you’ve already introduced the concept of *you*, separate from *everything else*.
+As long as you assume this, you will not understand *Fukanzazengi*. It simply does not make sense when analyzed in that way – because you’ve already introduced the concept of your *self*, separate from *everything else*. 
 
 So what do we assume instead? *Full communication*. In a pure sense, maybe we don’t assume anything in Zen; but in a practical sense, we assume that all beings are Buddha, and everything is communicating. 
 
@@ -508,13 +514,13 @@ To put this another way: in taking refuge in dharma through the practice of *who
 >
 > – From [“Depending on the Dharma” (August 3, 1988) at 11:30](https://katagiritranscripts.net/1988-08-03-Depending-on-the-Dharma#11:30).
 
-*Total personality* is an important term that Katagiri Roshi uses frequently. In his talks on *Fukanzazengi*, Katagiri Roshi says that sitting down in zazen is about sitting down in the core of our total personality.
+*Total personality* is an important term that Katagiri Roshi uses frequently. In his talks on *Fukanzazengi*, Katagiri Roshi says that sitting down in zazen is about sitting down in the core of our total personality. For example:
 
 > ... let's sit down in the core of your total personality. That is *buddha-nature*. And then this total personality, which is called *buddha*, is completely perfect and all-pervading. Dōgen Zenji says, “The origin of the way is perfect and all-pervading.” 
 >
 > – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 1” (June 9, 1979) at 56:36](https://katagiritranscripts.net/1979-06-09-Fukanzazengi-Talk-1#5636).
 
-So it seems *the Way* is *total personality*, which is our personality in connection with the whole universe of space and time. And this is *buddha-nature*.
+So it seems *the Way* is *total personality*, which is our personality in connection with the whole universe of space and time. And this is *buddha-nature*:
 
 > Bottomlessness of your personality is what is called *buddha*. We say *buddha*, or *vastness of your nature*, or *vastness of your capability*. [This is what] is called buddha-nature, or buddha, or buddha-dharma; we say so.
 >
@@ -532,9 +538,9 @@ But again, *total personality* is really not something abstract and separate fro
 >
 > – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2” (June 10, 1979) at 34:20](https://katagiritranscripts.net/1979-06-10-Fukanzazengi-Talk-2#3420).
 
-So the “double face” of *total personality* is that it is *buddha-nature*, but simultaneously it is also *karma*: our ordinary, day-to-day lives, sometimes called “karmic life.” Another way of saying this is that karma *is* buddha-nature, and buddha-nature is karma. For many people, this may be surprising to hear, because it is considerably different from how karma is usually understood. 
+So the “double face” of *total personality* is that it is *buddha-nature*, but simultaneously it is also *karma*: our ordinary, day-to-day lives, sometimes called “karmic life.” Another way of saying this is that karma *is* buddha-nature, and buddha-nature is karma. For many people this may be surprising to hear, because it is considerably different from how karma is usually understood. 
 
-In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this matter. (See [the series of talks on *Karma* at katagiritranscripts.net](https://katagiritranscripts.net/karma).) He notes that karma is often understood as *action*, or as simple *cause and effect* – but this is not all that karma is. Also he says there is a certain sense of “doom” around the concept of karma: karma is seen as something that locks you into a certain destiny – e.g., “Oh, that’s my twisted karma” – and also as something that functions largely punitively – e.g., “Instant karma’s gonna get you!” But Katagiri Roshi, coming from the teachings of Eihei Dōgen and Sōtō Zen Buddhism, sees karma quite differently. To him, karma is *great energy*, which does at least three things:
+In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which seemed to be largely about clarifying this matter. (See [the series of talks on *Karma* at katagiritranscripts.net](https://katagiritranscripts.net/karma).) He notes that karma is often understood as *action*, or as simple *cause and effect* – but this is not all that karma is. Also he says there is a certain sense of “doom” around the concept of karma: karma is seen as something that locks you into a certain destiny – e.g., “Oh, that’s my twisted karma” – and also as something that functions largely punitively – e.g., “Karma’s a [b-word].” But Katagiri Roshi, coming from the teachings of Eihei Dōgen and Sōtō Zen Buddhism, sees karma quite differently. To him, karma is *great energy*, which does at least three things:
 
 - Karma allows us to live.
 - Karma allows us to relate to people and world.
@@ -544,9 +550,33 @@ In the summer of 1980, Katagiri Roshi gave a two-week seminar on karma, which se
 
 But a problem with this way of looking at karma is that it can quickly become *mechanistic*. For example: we decide what we want to do with our garden. We have a *goal*: our garden should look a particular way. To accomplish this, we plant *Seed A*, which will produce *Result A Prime*. Repeat as necessary. That’s fine, as far as it goes, but it misses the important aspect of *communication* or *relation*. The difference, basically, is between *planting seeds* to make our garden, and *walking in* our garden, *communicating with* our garden, *working with* our garden. And also – *enjoying* our garden.
 
-*Action* and *cause and effect* are not the whole story: our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means our so-called ordinary *karmic* lives are actually extraordinary *buddha* lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.”
+Katagiri Roshi once explained that with a simplistic idea of cause and effect, we often treat our spiritual practice like a vending machine. He said:
 
-This is all about *kannō dōkō*, the concept we introduced earlier in this chapter: interacting communion of appeal and response with the universe. This is not separate from *action*, or *movement*. 
+> If you go to Japan, there are many vending machines. They’re *everywhere*. At the platform, at the corner of the street, or by the newspaper or magazine stand. Wherever you may go in Japan, you can get a 7 Up, and hot noodles, and hot *sake*, cold *sake*, and magazines; many kinds of magazines. So *everywhere*, there’s all [these] vending machines there. Then you put in the dime or the quarters, and then you can get [something]. If you push a button, you immediately get [something].
+> 
+> But the problem is... *[he chuckles]*... you don’t know what’s going on *inside*. The inside is completely a black box. Do you understand *black box*? *Black box* [means] the internal mechanism is completely hidden and mysterious to the user. 
+>
+> So the more the human world is civilized by mechanisms, technology, the more human life becomes convenient, and you can get a better life. But, your life becomes a black box – just like a vending machine. At that time, it’s not necessary to know carefully what’s going on the inside of the internal mechanism of life. Just push a button, and you can get it. It’s pretty easy. 
+> 
+> And then that is the so-called *intellectual way of life*. You know, systematical. There is a cause, and effect. So if you have a cause, very naturally the result comes up, and then that result is influencing A, B, C, and D, [and] finally it’s gone. Do you understand? That teaching of cause and effect is very *flat*. [It’s] just like a water ring. If you throw a pebble in the ocean, you can make a water ring, and the water ring is going, but finally it disappears. So, one cause creates lots of things – the activity of the one pebble influences many water rings – but finally that influence disappears. That is our intellectual sense. 
+> 
+> But recently [...] in human society we realize that cause and effect is not operating in this very flat world. In other words, if you do something as a cause, then you can create a result, but simultaneously that result comes back to the cause. So, that is called, what would it be called – [a cycle]. [...] Everything is going, everything is coming back, connected. We’ve had that science for many, many years, but we didn’t pay attention to it. And then [more] recently we pay attention to how important it is, because microscopic creatures in the oceans and land creatures, all sentient beings are connected. *Ecology* – yes, it is ecology, I think. So we realized, “Well, the understanding of the cause and effect which we had is not right!” So very naturally we should pay attention to the *ecology*, thinking carefully how all sentient beings are connected. [...]
+>
+> And also in Zen Buddhism, [and really all] Buddhist teaching, [we say that] cause and effect become one simultaneously. So cause is a cause, but simultaneously cause becomes result. That is an interesting teaching [that] you don’t understand; but in science, we realize this.
+>
+> – From “*Jūundō Shiki*, Rules for the Monks Annex – Talk 1” (May 28, 1984).
+
+He continued in the next talk:
+
+> Finally, we cannot understand cause and effect in the plain dimension in that way, just like a vending machine. If you always deal with everything just like this, you cannot understand the panoramic picture of human life. So very naturally we open our eyes to how *ecology* is important. 
+> 
+> – From “*Jūundō Shiki*, Rules for the Monks Annex – Talk 2” (May 29, 1984).
+
+Zen practice is not like a vending machine. We could say it’s more like going to the forest, and paying attention to what’s going on there. And what’s going on there is *karma*. 
+
+Our practice is to look at this bigger picture. That is *kannō dōkō*, the concept we introduced earlier in this chapter: full communication between you and the universe. 
+
+So *karma* as simple cause and effect is not the whole story. Our causes and conditions extend to all of time and space; they go far beyond anything that we can understand conceptually. This means that our so-called ordinary *karmic* lives are actually extraordinary *buddha* lives. And as Katagiri Roshi says above: “If you do zazen, immediately [it] (this extraordinary nature) appears. That is what is called the original nature of existence manifesting itself.” 
 
 ---
 
@@ -562,9 +592,9 @@ The relationship between *ālayavijñāna* and *tathāgatagarbha* is a fundament
 
 But at this point, one might ask: why are we discussing *ālayavijñāna* and *tathāgatagarbha*, or *karma* and *buddha-nature*? 
 
-We are discussing *ālayavijñāna* and *tathāgatagarbha*, *karma* and *buddha-nature*, because *Fukanzazengi* is exactly about this relationship, and how we can practice with it in our lives. This is about sitting in the midst of our *total personality*, through *wholeheartedness*, or *shikan*.
+We are discussing *ālayavijñāna* and *tathāgatagarbha*,  or *karma* and *buddha-nature*, because *Fukanzazengi* is exactly about this relationship, and how we can practice with it in our lives. This is about sitting in the midst of our *total personality*, through *wholeheartedness*, or *shikan*.
 
-Please keep in mind: the point is not that we constantly flip over the paper to see just one side, the *buddha-nature*. That would be an exhausting practice. The point is that it’s like one sheet of paper, that presents two sides. 
+Although, please keep in mind, the point is not that we constantly flip over the paper to see just one side, the *buddha-nature*. That would be an exhausting practice. The point is that it’s like one sheet of paper that presents two sides. 
 
 --- 
 
@@ -636,9 +666,9 @@ We’re getting there. But first, we need to clarify what Dōgen Zenji actually 
 
 > 爭假修證。  
 
-> How could it be contingent upon practice and realization? [EB] 
+> How could it be contingent upon practice and realization? (EB) 
 
-> How could it be contingent on practice and realization? [SZ] 
+> How could it be contingent on practice and realization? (SZ) 
 
 ## Commentary
 
@@ -658,7 +688,7 @@ The translation of *shu* (修) as “practice” seems straightforward, but the 
 > 
 > – From [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5” (March 15, 1987)](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5). 
 
-Katagiri Roshi then explains that *shō* is the same as “suchness” or “thusness.” In the interest of time, we’ll skip that part for now, and come back to it in Chapter 11: “Practice Suchness Immediately.” After that, he continues:
+Katagiri Roshi then explains that *shō* is the same as “suchness” or “thusness.” In the interest of time, we’ll skip that part for now, and come back to it in Chapter 12: “Practice Suchness Immediately.” After that, he continues:
 
 > So *shō*, the consummation of being, is not [something] you try to manifest. No, you cannot do it, because this is exactly the *ultimate* state of existence. You don't know [it]. But the unique way is to let it manifest by virtue of making your water clear or calm. Or, practically speaking, you really devote yourself to do something thoroughly, with sincere heart, *exactly* do it: then, the consummation of being comes out, emerges from [that] naturally. That is our practice. 
 >
@@ -760,11 +790,11 @@ So, to rephrase this line of *Fukanzazengi*: “How could the Way, the functioni
 
 > 宗乘自在、何費功夫。  
 
-> The Dharma-vehicle is free and untrammeled. What need is there for one’s concentrated effort? [EB] 
+> The Dharma-vehicle is free and untrammeled. What need is there for one’s concentrated effort? (EB) 
 
-> The true vehicle is self-sufficient. What need is there for special effort? [SZ] 
+> The true vehicle is self-sufficient. What need is there for special effort? (SZ) 
   
-> The dharma vehicle is free and unrestricted, why should we expend sustained effort? [KR] 
+> The dharma vehicle is free and unrestricted. Why should we expend sustained effort? (KR) 
 
 ## Commentary
 
@@ -844,9 +874,9 @@ He continues:
 > 
 > – From [“*Blue Cliff Record* Case 2: The Ultimate Path Is Without Difficulty, Talk 1” (January 19, 1980)](https://katagiritranscripts.net/1980-01-19-Blue-Cliff-Record-Case-2-Talk-1).
 
-It may sound intimidating to “get one hundred percent,” but again, it’s only about applying oneself wholeheartedly to the task at hand. It isn’t a test; it’s an opportunity. As Katagiri Roshi says, “All you have to do is throw yourself into zazen. At that time, something helps you.”
+It may sound intimidating to “get one hundred percent,” but again, it’s only about applying oneself wholeheartedly to the task at hand; it’s about tuning in 100%. It isn’t a test; it’s an opportunity. As Katagiri Roshi says, “All you have to do is throw yourself into zazen. At that time, something helps you.”
 
-This topic will come up again in Chapter 6: “A Hairsbreadth Deviation,” and again when we talk about how to work with the mind in zazen. 
+This topic will come up again in Chapter 7: “A Hairsbreadth Deviation,” and again when we talk about how to work with the mind in zazen. 
 
 --- 
 
@@ -931,15 +961,15 @@ The term *Hinayana*, usually translated as “Lesser Vehicle” or “Small Vehi
 
 ## Paragraph 1 Part 4
 
-> 況乎全體逈出塵埃兮、孰信拂拭之手段。大都不離當處兮、豈用修行之脚頭者乎。  
+> 況乎全體逈出塵埃兮、孰信拂拭之手段。
 
-> Indeed, the Whole Body is far beyond the world’s dust. Who could believe in a means to brush it clean? It is never apart from one right where one is. What is the use of going off here and there to practice? [EB] 
+> Indeed, the Whole Body is far beyond the world’s dust. Who could believe in a means to brush it clean? (EB) 
 
-> Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? It is never apart from this very place; what is the use of traveling around to practice? [SZ] 
- 
+> Indeed, the whole body is free from dust. Who could believe in a means to brush it clean? (SZ) 
+
 ## Commentary
 
-“The whole body” is *zenshin* (全身) in Japanese. *Zenshin* as “the whole body” also appears in Dōgen’s *Ikka myōju*, “One Bright Pearl”:
+“The whole body” here is *zenshin* (全身) in Japanese. *Zenshin* as “the whole body” also appears in Dōgen’s Zenji’s *Ikka myōju*, “One Bright Pearl”:
 
  > Thus, the suchness and beginninglessness of this bright pearl is limitless. It is the one bright pearl of all the worlds in the ten directions; it is not described as “two” or “three.” Its whole body is a single true dharma eye; its whole body is the true body; its whole body is a single phrase; its whole body is radiance; its whole body is the whole mind. When it is the whole body, it is not obstructed by the whole body. It is round, round; it rolls round and round.
 >
@@ -948,9 +978,7 @@ The term *Hinayana*, usually translated as “Lesser Vehicle” or “Small Vehi
 So perhaps we could say that “the whole body” means your personal body and mind, but also the entire universe in space and time. 
 
 Consider this verse, which is probably the source of the common Zen expression “stepping off the top of a hundred-foot pole” which is used by Dōgen:
-```{=typst}
-#pagebreak()
-```
+
 > 百丈竿頭不動人、雖然得入未為眞。百丈竿頭須進歩、十方世界是全身。  
 > 
 > The person unmoving atop a thousand-foot pole —  
@@ -958,7 +986,7 @@ Consider this verse, which is probably the source of the common Zen expression �
 > They should step off the top of the thousand-foot pole;  
 > The worlds in the ten directions are their entire body.  
 > 
-> – Verse by Changsha Jingcen (長沙景岑) (dates unknown). From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p. 321.
+> – Verse by Changsha Jingcen (長沙景岑) (788-868 CE). From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p. 321.
 
 “Entire body” here is *zenshin*. So there is a sense of stepping into this vastness which contains everything... or rather, which *is* everything.
 
@@ -1045,13 +1073,13 @@ And yet, we need to climb that thousand-foot pole. This matter of both Shen Hsiu
 > 
 > – From  [“*Platform Sutra* – Talk 1” (March 6, 1987) at 1:02:08](https://katagiritranscripts.net/1987-03-06-Platform-Sutra-Talk-1#10208). 
 
-So although the line “who could believe in a means to brush it clean” might initially seem to be supporting the verse attributed to the Sixth Ancestor Hui Neng over the verse attributed to Shen Hsiu, keep in mind that the next words in *Fukanzazengi* are, “and yet.” As Katagiri Roshi states above and on other occasions, these perspectives are two aspects of the same reality, and they work together. They are two sides of the same coin, and Dōgen’s “and yet” is basically him flipping the coin. 
+So although the line “who could believe in a means to brush it clean” might initially seem to be supporting the verse attributed to the Sixth Ancestor Hui Neng over the verse attributed to Shen Hsiu, keep in mind that the next paragraph in *Fukanzazengi* begins with, “And yet...” As Katagiri Roshi states above and on other occasions, these perspectives are two aspects of the same reality, and they work together. They are two sides of the same coin, and Dōgen’s “and yet” is basically him flipping the coin. 
 
 ---
 
 Yet, in large part due to the *Platform Sutra*, it is commonly understood that there was a “Northern School” and a “Southern School” in early Zen, and that the Northern School, led by Shen Hsiu, represented “gradual enlightenment,” while the new Southern School, led by Hui Neng, represented “sudden enlightenment.” And we regard the Southern School as superior. 
 
-That is the story that we hear very often. However, this does not exactly seem to be Dōgen Zenji’s understanding, nor Katagiri Roshi’s. He says:
+That is the story that we hear very often. However, this does not exactly seem to be Dōgen Zenji’s understanding, nor Katagiri Roshi’s. At one point, Dōgen even refers to the *Platform Sutra* as “a forged writing.” Katagiri Roshi brings this matter up right away in a series of talks on the  *Platform Sutra*:
 
 > The Fifth Patriarch constantly emphasizes the spirit of the *Diamond Sutra*, saying, “They may see their own nature and straightaway achieve Buddhahood.” This is very common; Zen Buddhism always [talks about this], [whether] in Japan [or] in China. “The real spirit of Zen is to see into one’s own nature and achieve Buddhahood (or become Buddha) straightforwardly” – that is a point Zen Buddhism always [says]. 
 > 
@@ -1105,7 +1133,9 @@ It’s not clear what introduction Katagiri Roshi is referring to above, but “
 >
 > – From *Treasury of the True Dharma Eye: Dōgen’s Shōbōgenzō, Volume I-VII*, by the Sōtō Zen Text Project, p. 156.
 
-It seems that at least in some circles, it has always been understood that the *Platform Sutra* contains revisions by more than one person, some of which are problematic. As Katagiri Roshi says, “That is the general understanding, in Japan and in China, about this.”
+At this point, we can probably guess at least one “vulgar tale” in the *Platform Sutra* that “erases the sage’s intent.”
+
+So it seems that at least in some circles, it has always been understood that the *Platform Sutra* contains revisions by more than one person, some of which are problematic. As Katagiri Roshi says, “That is the general understanding, in Japan and in China, about this.”
 
 Western historical scholarship may be catching on to this point of view. John R. McRae’s *The Northern School and the Formation of Early Ch’an Buddhism* provides a compelling look at the history behind the composition of the *Platform Sutra*. Here we learn – to summarize briefly – that the entire notion of a “Northern School” and “Southern School” was basically the invention of one person: the monk Shen Hui, who (like National Teacher Dazheng) claimed to be a disciple of the Sixth Ancestor, Hui Neng. (Shen Hui should not be confused with Shen Hsiu, the alleged author of the “brush it clean” verse.) Shen Hui, we learn, essentially weaponized the concept of “sudden enlightenment” as a means to attract religious followers, and probably invented the poetry contest story as a means to that end. So successful was Shen Hui in presenting his simplistic version of Zen, that for hundreds of years the Buddhist establishment essentially avoided discussing the practice of Zen meditation in public, for fear of being accused of the so-called “gradualist fallacy.” 
 
@@ -1247,16 +1277,82 @@ So, heeding Katagiri Roshi’s advice, we’ll leave it at that.
 ```{=typst}
 #pagebreak()
 ```
+# Chapter 6: Never Apart
 
-# Chapter 6: A Hairsbreadth Deviation
+## Paragraph 1 Part 5
+
+> 大都不離當處兮、豈用修行之脚頭者乎。  
+
+> It is never apart from one right where one is. What is the use of going off here and there to practice? (EB) 
+
+> It is never apart from this very place; what is the use of traveling around to practice? (SZ)
+
+## Commentary
+
+This will be a relatively short chapter, since at the time of writing, I have not found a talk where Katagiri Roshi comments on this line *directly*. On the other hand, references to our practice being “right here, right now” are too numerous to list, and reminders that *buddha* and *dharma* are not something apart from us are also frequent. We have already seen several examples in the preceding chapters. 
+
+That said, the following story may exemplify this teaching. The story comes from *The Record of Tung-shan*, and is referred to in Case 49 of the *Book of Serenity*. Here is Katagiri Roshi’s telling of it:
+
+> Tozan practiced under the guidance of Ungan. One day he was to leave his teacher and set out on a pilgrimage to other Zen temples. Before he left, Tozan asked Ungan:
+> 
+> “After you have passed away, how can I answer someone who asks me what you were like?”
+>
+> Ungan replied, “Say to him, *just this is*.” Ungan then went on to say, “You must now be very careful, as you are carrying this great thing. Consider it again and again.”
+>
+> Do you see what Ungan meant by “Just this is?”
+> 
+> Tozan went on his travels, always pondering this statement “Just this is.” Then one day he was crossing a body of water and saw his image reflected there. Immediately he understood the teaching of Ungan, and composed the following *gatha*:
+>
+>> You shouldn’t search it outwardly  
+>> If you do, the truth will become more remote from you.  
+>> But when alone I proceed through myself,  
+>> Wherever I go I meet him.  
+>> Now he is not other than myself, yet I am not he.  
+>> Only if you understand this will you unite with the Tathāgata.  
+> 
+> If you want to seek the truth you cannot search for it outwardly. If you do, the truth will become more and more remote from you. The more you conceptualize, the more you try to achieve objective and rational understanding, the more complex and distant the truth will become. But in fact the truth is really very simple.
+>
+> – From Katagiri Roshi’s talks on *Song of the Jewel Mirror Awareness* (November 7, 1983 to January 1, 1984), transcribed by Earl Broadbent, edited by Jeffrey Broadbent.
+
+Tozan is the Japanese name for Dongshan, who is considered to be one of the founders of the Caodong – or in Japanese, *Sōtō* – school.
+
+---
+
+It’s probably worth noting that Katagiri Roshi didn’t literally have something against travelling around to practice. Here is a comment from him about religious pilgrimage: 
+
+> You know pilgrimage in Japan, or India? Religious pilgrimage is very helpful for you, because it is a real practice, an actual practice of spiritual life. So very naturally, you can share your life, you can share your understanding of kindness with people directly, every day: communicating with human beings and nature, et cetera, through the practice of pilgrimage. So you can feel something deep. 
+>
+> – From [“Lay Ordination Lecture 3 of 7: Triple Treasure, Lecture 1”](1986-03-08-Triple-Treasure-Lecture-1) (March 8, 1986).
+
+Dōgen Zenji, of course, famously travelled to China. Katagiri Roshi came to teach in the United States. Clearly, there can be some advantage to travelling around to practice. But the point is that wherever we are, wherever we go, reality is right there. 
+
+In Zen, this *reality* is considered to be our real home. Katagiri Roshi says about zazen:
+
+> [It is a] simple form, simple practice: let’s return home. That’s why zazen is *return home and sit in peace and harmony*. What is home? Home is just energy. In Buddhist terminology, it is Buddha. 
+> 
+> – From [“Blue Cliff Record Case 42: Layman P’ang’s Good Snowflakes, Talk 2” (March 9, 1983)](https://katagiritranscripts.net/1983-03-09-Blue-Cliff-Record-Case-42-Talk-2)
+
+In another talk, he adds:
+
+> So if you seek something going out of yourself, out of your home – well it’s fine, but it makes you busy, that’s all. Running here and there always. The more you are busy, the more you are exhausted. And finally you have to return home and settle yourself in peace and harmony. And then you say, “Oh, this is [alright].” 
+> 
+> This is our point. That’s all. The basic practice is very simple, very simple.
+>
+> – From [“Diamond Sutra, Talk 1: Introduction” (May 9, 1979) at 54:13](https://katagiritranscripts.net/1979-05-09-Diamond-Sutra-Introduction#5413)
+
+```{=typst}
+#pagebreak()
+```
+
+# Chapter 7: A Hairsbreadth Deviation
 
 ## Paragraph 2 Part 1
 
 > 然而毫釐有差天地懸隔、違順纔起紛然失心。  
 
-> And yet, if there is the slightest discrepancy, the Way is as distant as heaven from earth. If the least like or dislike arises, the Mind is lost in confusion. [EB]
+> And yet, if there is the slightest discrepancy, the Way is as distant as heaven from earth. If the least like or dislike arises, the Mind is lost in confusion. (EB)
 
-> And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. [SZ] 
+> And yet, if there is a hairsbreadth deviation, it is like the gap between heaven and earth. If the least like or dislike arises, the mind is lost in confusion. (SZ) 
 
 ## Commentary
 
@@ -1335,7 +1431,7 @@ This matter of the energy of life coming from the “self” – and here we are
 
 “Like” and “dislike” are also part of consciousness, cognition. The specific phrase “like or dislike” appears in perhaps over a hundred of Katagiri Roshi’s talks. We should understand that we are not trying to *eliminate* like and dislike, but as Katagiri Roshi says above, to “know its limitation.” In this way, we can work with like and dislike, instead of allowing them to work on *us*. 
 
-We’ll return to how to work with like and dislike, good or bad, et cetera, in Chapter 9: “Take the Backward Step,” Chapter 15: “Have No Design on Becoming a Buddha,” and probably in many other places. 
+We’ll return to how to work with like and dislike, good or bad, et cetera, in Chapter 10: “Take the Backward Step,” Chapter 16: “Have No Design on Becoming a Buddha,” and probably in many other places. 
 
 --- 
 
@@ -1365,19 +1461,23 @@ This topic comes up a lot. In fact, it will come up again in the very next chapt
 #pagebreak()
 ```
 
-# Chapter 7: Playing in the Entranceway
+# Chapter 8: Excursions about the Frontiers
 
 ## Paragraph 2 Part 2
 
 > 直饒誇會豐悟兮、獲瞥地之智通、得道明心兮、擧衝天之志氣、雖逍遙於入頭之邊量、幾虧闕於出身之活路。  
 
-> Suppose one gains pride of understanding and inflates one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the Way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation. [EB] 
+> Suppose one gains pride of understanding and inflates one’s own enlightenment, glimpsing the wisdom that runs through all things, attaining the Way and clarifying the mind, raising an aspiration to escalade the very sky. One is making the initial, partial excursions about the frontiers but is still somewhat deficient in the vital Way of total emancipation. (EB) 
 
-> Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation. [SZ] 
+> Suppose you are confident in your understanding and rich in enlightenment, gaining the wisdom that knows at a glance, attaining the Way and clarifying the mind, arousing an aspiration to reach for the heavens. You are playing in the entranceway, but you are still short of the vital path of emancipation. (SZ) 
 
 ## Commentary
 
-Mahayana Buddhist teaching talks about the “vibration of the mind,” including the very subtlest vibrations. The basic issue is, this finest vibration never goes away. Katagiri Roshi says: 
+In the Sōtō Zen Text Project translation of this paragraph, the part about “playing in the entranceway” is certainly catchy, but it introduces a problem. If we say we are “playing in the entranceway,” it may imply that we are playing in the entranceway *to* something in particular – a fixed goal, so-called “enlightenment.” However, if we say we are “making the initial, partial excursions about the frontiers,” this leaves open the possibility that we are exploring something that is vast, even boundless – which is the case. So in this respect the *Eastern Buddhist* translation may be more in alignment with the meaning of *Fukanzazengi*, as Katagiri Roshi presents it.
+
+This paragraph suggests that we may have a magnificent enlightenment experience – or at least think so – but even then, we are “still short of the vital path of emancipation.” Why is this the case?
+
+Technically speaking, Mahayana Buddhist teaching talks about the “vibration of the mind,” including the very subtlest vibrations. The basic issue is, this subtlest vibration never completely goes away. Katagiri Roshi says: 
 
 > For instance, according to *The Awakening of Faith*: at the *tathāgata* stage, Buddha knows the finer of the fine vibration of the mind. Among the fine vibration of the mind, there is the *finest* vibration there; very minute vibration of the mind. Because mind is constantly moving. Even though you say *moment* – the *Abhidharmakosha* says the moment consists of 65 instances. If so, what is a moment, you know? So the moment is a very fine vibration of the mind, but still there is the finest vibration of the mind within the moment – that is at the 65th vibration of the mind. How can you touch it? You don’t know what it is. But it’s there. Through zazen you can notice this.
 > 
@@ -1396,6 +1496,8 @@ That’s the issue. But if we stopped there, it might be a bit of a downer. Kata
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986)](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4)
 
 So, you can do it – or *tathāgata* can do it. What you can’t do is attach to it. It’s not something that “you” get to “have.”
+
+And this is good news. Because if it were something that “you” got to “have,” it would be something *fossilized* – not something alive.
 
 ---
 
@@ -1435,9 +1537,7 @@ Katagiri Roshi discusses “raising an aspiration to escalade the very skies” 
 >
 > – From [“*Bendōwa*: Dōgen's Questions & Answers – Talk 5” (March 15, 1987)](https://katagiritranscripts.net/1987-03-15-Bendowa-Talk-5)
 
-So by zazen you can attain awakening (*kaku*) or enlightenment (*satori*), but these are still temporary, limited experiences – and coming down from them can be a bumpy ride.
-
-On the other hand, you can “arrange circumstances, [arrange] your body and mind to be in peace and harmony, and then, ultimate nature of existence comes out naturally.” That is exactly what *Fukanzazengi* is about.
+So by zazen you can attain awakening (*kaku*) or enlightenment (*satori*), but these are still temporary, limited experiences – and coming down from them can be a bumpy ride. On the other hand, you can “arrange circumstances, [arrange] your body and mind to be in peace and harmony, and then, ultimate nature of existence comes out naturally.” That is exactly what *Fukanzazengi* is about.
 
 --- 
 
@@ -1535,17 +1635,25 @@ A danger here is that even when we realize that awakening and enlightenment are 
 #pagebreak()
 ```
 
-# Chapter 8: Buddha and Bodhidharma
+# Chapter 9: Buddha and Bodhidharma
 
 ## Paragraph 3
 
 > 矧彼祇園之爲生知兮、端坐六年之蹤跡可見。少林之傳心印兮、面壁九歳之聲名尚聞。古聖既然、今人盍辦。  
 
-> Need I mention the Buddha, who was possessed of inborn knowledge? The influence of his six years of upright sitting is noticeable still. Or Bodhidharma's transmission of the mind-seal? The fame of his nine years of wall-sitting is celebrated to this day. Since this was the case with the saints of old, how can men of today dispense with negotiation of the Way? [EB]
+> Need I mention the Buddha, who was possessed of inborn knowledge? The influence of his six years of upright sitting is noticeable still. Or Bodhidharma's transmission of the mind-seal? The fame of his nine years of wall-sitting is celebrated to this day. Since this was the case with the saints of old, how can men of today dispense with negotiation of the Way? (EB)
 
-> Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice? [SZ] 
+> Consider the Buddha: although he was wise at birth, the traces of his six years of upright sitting can yet be seen. As for Bodhidharma, although he had received the mind-seal, his nine years of facing a wall is celebrated still. If even the ancient sages were like this, how can we today dispense with wholehearted practice? (SZ) 
 
 ## Commentary
+
+As with the previous chapter, here the *Eastern Buddhist* and Sōtō Zen Text Project Translations differ, but in this case the Sōtō Zen Text Project translation has an advantage. The issue is somewhat subtle. 
+
+Sometimes this passage is interpreted as meaning that the Buddha’s and Bodhidharma’s practice has had a great influence on the world that has carried on to this day, which is why we should practice now, so that our practice in turn can influence the future. This is true, but it is not what this paragraph is about. Here we are talking about what the ancient sages themselves were *like*, what they *did*. The point here is not the effect of anyone’s practice on the future, although that is certainly an important consideration in Buddhism. The point is that the ancestors’ practice had an effect on *them* – just as our practice has an effect on *us*. This in turn has an influence that propagates forever.
+
+The preceding paragraph, simply speaking, states that an experience of so-called enlightenment is not enough; *practice-realization* is an ongoing *practice* for us. The examples of Buddha and Bodhidharma illustrate how this was the case with the sages of the past, so it must surely be the case now. Let’s begin by “considering the Buddha.”
+
+--- 
 
 Why was the Buddha “wise at birth,” having “inborn knowledge”? Perhaps it’s something like what Katagiri Roshi spoke about on Buddha’s Birthday:
 
@@ -1643,7 +1751,7 @@ But surely a Zen teacher is different from those examples?
 >
 > – From [“Fukanzazengi: Dōgen's Universal Recommendation for Zazen – Talk 2” (June 10, 1979) at 1:27:20](https://katagiritranscripts.net/1979-06-10-Fukanzazengi-Talk-2#12720).
 
-And also, this kind of maturation does not happen alone. Here we again see the connection between zazen and the Precepts:
+And also, this kind of maturation does not happen alone:
 
 > [Kyōgō Zen master says,] “In attaining enlightenment under Bodhi tree Shakyamuni Buddha fruited the precepts.” Shakyamuni Buddha did not try to fruit the precepts; *fruit* is [that] naturally something is matured, nurtured. Not only by one person; no, you cannot mature anything [that way], you cannot ripen anything by yourself. You need lots of help. You know, others: trees, birds, all sentient beings, past, present, future. All sentient beings [are there], *then* something is ripened. 
 > 
@@ -1652,6 +1760,8 @@ And also, this kind of maturation does not happen alone. Here we again see the c
 > That is important: A precept is not something produced or created by somebody or something. Realization of the whole universe, how it is going: fruit ripens. The person’s life, tree’s life, and all sentient beings, that is called *precept*, we say. First, you should remember this [point].
 >
 > – From [“The Way of Precept Practice: Restraint and Extermination” (August 13, 1988)](https://katagiritranscripts.net/1988-08-13-The-Way-of-Precept-Practice-Restraint-and-Extermination)
+
+Here we again see the connection between zazen and the Precepts.
 
 ---
 
@@ -1707,17 +1817,17 @@ Katagiri Roshi says that as part of facing the wall we must practice *deep faith
 > 
 > – From [“Mindfulness – Talk 3” (March 23, 1984) at 1-36:20](https://katagiritranscripts.net/1984-03-23-Mindfulness-Talk-3#1-3620)
 
-We will discuss this kind of faith more in the next chapter, Chapter 9: “Take the Backward Step.”
+We will discuss this kind of faith more in the next chapter, Chapter 10: “Take the Backward Step.”
 
 --- 
 
-Katagiri Roshi comments on a line from a verse in *The Blue Cliff Record*:
+Katagiri Roshi comments on a line from a verse in *The Blue Cliff Record*, speaking about the *truth*, or “the total picture of reality you live in”:
 
 > > Even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.  
 > 
-> Well, even Buddha Shakyamuni or Bodhidharma cannot understand it, cannot *know* what it is. But anyway Bodhidharma and Buddha Shakyamuni – or ancestors, your parents, your grandparents – continued to dwell in the beautiful life force of nature constantly, making their life mature, instead of *knowing* or *analyzing* constantly. [That] is a *part* of human activity, but it’s not all. 
+> Well, even Buddha Shakyamuni or Bodhidharma cannot understand it, cannot *know* what it is. But anyway Bodhidharma and Buddha Shakyamuni – or ancestors, your parents, your grandparents – continued to dwell in the beautiful life force of nature constantly, making their life mature, instead of *knowing* or *analyzing* constantly. [Knowing and analyzing] is a *part* of human activity, but it’s not all. 
 > 
-> So, it is not something to realize or to know, but to dwell in and make your life deepen or mature. That means that, here it says, “even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.” It’s not a matter of discussion. No. It is something you have to do. 
+> So, it is not something to realize or to know, but to dwell in and make your life deepen or mature. That means that, here it says, “even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.” It’s not a matter of discussion; no. It is something you have to do. 
 >
 > – From [“*Blue Cliff Record* Case 51: Hsueh Feng’s What Is It? – Talk 2” (January 18, 1984) at 50:30](https://katagiritranscripts.net/1984-01-18-Blue-Cliff-Record-Case-51-Talk-2#5030)
 
@@ -1725,29 +1835,29 @@ So, how can we today dispense with wholehearted practice?
 
 --- 
 
-In Chapters 1 through 8, we’ve looked at the first part of *Fukanzazengi*, where Dōgen Zenji more or less talks about *why* we do zazen. Of course, really we’ve been talking about what zazen *is* all along. But basically, we can say that in Chapters 9 through 11 we will now look at Dōgen Zenji’s statement of *what* to do. And then in Chapters 12 through 25, we will look into details of *how* to do it.
+In Chapters 1 through 9, we’ve looked at the first part of *Fukanzazengi*, where Dōgen Zenji more or less talks about *why* we do zazen. Of course, really we’ve been talking about what zazen *is* all along. But basically, we can say that in Chapters 10 through 12 we will now look at Dōgen Zenji’s statement of *what* to do. And then in Chapters 13 through 26, we will look into details of *how* to do it.
 
 ```{=typst}
 #pagebreak()
 ```
 
-# Chapter 9: Take the Backward Step
+# Chapter 10: Take the Backward Step
 
 ## Paragraph 4 Part 1
 
 > 所以須休尋言逐語之解行、須學回光返照之退歩。
 
-> You should therefore cease from practice based on intellectual understanding, pursuing words and following after speech, and learn the backward step that turns your light inwardly to illuminate your self. [EB] 
+> You should therefore cease from practice based on intellectual understanding, pursuing words and following after speech, and learn the backward step that turns your light inwardly to illuminate your self. (EB) 
 
-> Therefore, put aside the intellectual practice of investigating words and chasing phrases, and learn to take the backward step that turns the light and shines it inward. [SZ] 
+> Therefore, put aside the intellectual practice of investigating words and chasing phrases, and learn to take the backward step that turns the light and shines it inward. (SZ) 
 
 ## Commentary
 
-The first part of *Fukanzazengi*, which we discussed in Chapters 1 through 8, discusses *the Way* and *practice-realization*. We could say that the first part is explaining *why* we do zazen. Having established that, next is a direct statement of *what* we should do:
+The first part of *Fukanzazengi*, which we discussed in Chapters 1 through 9, discusses *the Way* and *practice-realization*. We could say that the first part is explaining *why* we do zazen. Having established that, next is a direct statement of *what* we should do:
 
-> You should therefore cease from practice based on intellectual understanding, pursuing words and following after speech, and learn the backward step that turns your light inwardly to illuminate your self. Body and mind of themselves will drop away, and your original face will be manifest. If you want to attain suchness, you should practice suchness without delay. [EB]
+> You should therefore cease from practice based on intellectual understanding, pursuing words and following after speech, and learn the backward step that turns your light inwardly to illuminate your self. Body and mind of themselves will drop away, and your original face will be manifest. If you want to attain suchness, you should practice suchness without delay. (EB)
 
-These three sentences are the subjects of Chapters 9, 10, and 11. 
+These three sentences are the subjects of Chapters 10, 11, and 12. 
 
 ---
 
@@ -1765,7 +1875,7 @@ Katagiri Roshi says:
 >
 > – From [“Principles of Practice, Talk 4: Faith” (March 22, 1986) at 44:03](https://katagiritranscripts.net/1986-03-22-Principles-of-Practice-Talk-4#4403)
 
-If we’re expecting this line in *Fukanzazengi* to be a kind of special technique or trick to “do meditation,” what follows in this chapter may be surprising, perhaps even frustrating. Because to “take the backward step” is something simple – *very* simple. In fact, we already covered it, in Chapter 7, “Playing in the Entranceway”:
+If we’re expecting this line in *Fukanzazengi* to be a kind of special technique or trick to “do meditation,” what follows in this chapter may be surprising, perhaps even frustrating. Because to “take the backward step” is something simple – *very* simple. In fact, we already covered it, in Chapter 8, “Excursions about the Frontiers”:
 
 > So how do you be free from this very minute vibration of the mind, from moment to moment? It’s very difficult to say *how* you do it. No, we don’t know. But this is the *tathāgata* stage, according to *The Awakening of Faith*. It is true! So finally, that is the place [where] the one world, where the very minute vibration of the mind can be realized: by buddha-*tathāgata*. At that time, buddha-*tathāgata* knows how to live there. 
 > 
@@ -2111,15 +2221,15 @@ Far from withdrawing or escaping from life, “the backward step” is closely r
 #pagebreak()
 ```
 
-# Chapter 10: Body and Mind Will Drop Away
+# Chapter 11: Body and Mind Will Drop Away
 
 ## Paragraph 4 Part 2
 
 > 身心自然脱落、本來面目現前。
 
-> Body and mind of themselves will drop away, and your original face will be manifest. [EB]
+> Body and mind of themselves will drop away, and your original face will be manifest. (EB)
 
-> Body and mind of themselves will drop away, and your original face will manifest. [SZ]
+> Body and mind of themselves will drop away, and your original face will manifest. (SZ)
 
 ## Commentary
 
@@ -2421,15 +2531,15 @@ A good search term in KR’s talks is “drop off.” There are many references 
 #pagebreak()
 ```
 
-# Chapter 11: Practice Suchness Immediately
+# Chapter 12: Practice Suchness Immediately
 
 ## Paragraph 4 Part 4
 
 > 欲得恁麼事、 急務恁麼事。  
 
-> If you want to attain suchness, you should practice suchness without delay. [EB]
+> If you want to attain suchness, you should practice suchness without delay. (EB)
 
-> If you want to realize such, get to work on such right now. [SZ] 
+> If you want to realize such, get to work on such right now. (SZ) 
 
 ## Commentary
 
@@ -2491,19 +2601,19 @@ This is also close to the translation used by Confluence Zen Center ([external l
 #pagebreak()
 ```
 
-# Chapter 12: Surrender to Tranquility
+# Chapter 13: Surrender to Tranquility
 
 ## Paragraph 5 Part 1
 
 > 夫參禪者、 
 
-> For the practice of Zen, ... [EB]
+> For the practice of Zen, ... (EB)
 
-> For practicing Zen, ... [SZ]
+> For practicing Zen, ... (SZ)
 
 ## Commentary
 
-In Chapters 1 through 8, we discussed *why* we should do zazen, and in Chapters 9 through 11 we discussed *what* that means. In reality, of course, there is considerable overlap in these areas; we’ve really been discussing all along *what* zazen is and *why* to do it, and we will keep discussing it. Still, we can say in a broad sense that in Chapters 12 through 25 we now turn to *how* to do zazen. This is the part that includes details of the form of sitting Zen meditation. 
+In Chapters 1 through 9, we discussed *why* we should do zazen, and in Chapters 10 through 12 we discussed *what* that means. In reality, of course, there is considerable overlap in these areas; we’ve really been discussing all along *what* zazen is and *why* to do it, and we will keep discussing it. Still, we can say in a broad sense that in Chapters 13 through 26 we now turn to *how* to do zazen. This is the part that includes details of the form of sitting Zen meditation. 
 
 But before we step into the details, we actually need to back up and look at the big picture once again, because right away we encounter an important term: *sanzen* (參禪, or 参禅 in simplified Chinese), which is often translated as “Zen practice.” The opening of this section is usually translated as something like, “For the practice of Zen.” But *sanzen* means something deeper than we may hear from the English words “Zen practice.”
 
@@ -2606,15 +2716,15 @@ Arranging circumstances so as to manifest simplicity is the topic of the followi
 #pagebreak()
 ```
 
-# Chapter 13: A Quiet Room is Suitable
+# Chapter 14: A Quiet Room is Suitable
 
 ## Paragraph 5 Part 2
 
 > 靜室宜焉、飮食節矣。
 
-> ... a quiet room is suitable. Eat and drink moderately. [EB]
+> ... a quiet room is suitable. Eat and drink moderately. (EB)
 
-> ... a quiet room is suitable. Eat and drink moderately. [SZ]
+> ... a quiet room is suitable. Eat and drink moderately. (SZ)
 
 ## Commentary
 
@@ -2721,15 +2831,15 @@ In these lines of *Fukanzazengi*, “a quiet room is suitable” is discussed as
 #pagebreak()
 ```
 
-# Chapter 14: Put Aside All Involvements
+# Chapter 15: Put Aside All Involvements
 
 ## Paragraph 5 Part 3
 
 > 放捨諸縁、休息萬事。  
 
-> Cast aside all involvements and cease all affairs. [EB] 
+> Cast aside all involvements and cease all affairs. (EB) 
 
-> Put aside all involvements and suspend all affairs. [SZ] 
+> Put aside all involvements and suspend all affairs. (SZ) 
 
 ## Commentary
 
@@ -2816,15 +2926,15 @@ In a talk on the Buddhist arts, Katagiri Roshi discusses the tea ceremony:
 #pagebreak()
 ```
 
-# Chapter 15: Have No Designs on Becoming a Buddha
+# Chapter 16: Have No Designs on Becoming a Buddha
 
 ## Paragraph 5 Part 4
 
 > 不思善惡、莫管是非。停心意識之運轉、止念想觀之測量。莫圖作佛、豈拘坐臥乎。  
 
-> Do not think good or bad. Do not administer pros and cons. Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no designs on becoming a buddha. [*Sanzen*] has nothing whatever to do with sitting or lying down. [EB]
+> Do not think good or bad. Do not administer pros and cons. Cease all the movements of the conscious mind, the gauging of all thoughts and views. Have no designs on becoming a buddha. [*Sanzen*] has nothing whatever to do with sitting or lying down. (EB)
 
-> Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down? [SZ] 
+> Do not think "good" or "bad." Do not judge true or false. Give up the operations of mind, intellect, and consciousness; stop measuring with thoughts, ideas, and views. Have no designs on becoming a buddha. How could that be limited to sitting or lying down? (SZ) 
 
 ## Commentary
 
@@ -2934,7 +3044,7 @@ The general idea of this line appears in too many Katagiri Roshi talks to cite.
 #pagebreak()
 ```
 
-# Chapter 16: Steady, Immovable Sitting
+# Chapter 17: Steady, Immovable Sitting
 
 ## Paragraph 6 and Paragraph 7 Part 1
 
@@ -2942,10 +3052,11 @@ The general idea of this line appears in too many Katagiri Roshi talks to cite.
 
 > At the site of your regular sitting, spread out thick matting and place a cushion above it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, you first place your right foot on your left thigh and your left foot on your right thigh. In the half-lotus, you simply press your left foot against your right thigh. You should have your robes and belt loosely bound and arranged in order. Then place your right hand on your left leg and your left palm [facing upwards] on your right palm, thumb-tips touching. Thus sit upright in correct bodily posture, neither inclining to the left nor to the right, neither leaning forward nor backward. Be sure your ears are on a plane with your shoulders and your nose in line with your navel. Place your tongue against the front roof of your mouth, with teeth and lips both shut. Your eyes should always remain open, and you should breathe gently through your nose.
 >
->  Once you have adjusted your posture, take a deep breath, inhale and exhale, rock your body right and left and settle into a steady, immobile sitting position. [EB]
+>  Once you have adjusted your posture, take a deep breath, inhale and exhale, rock your body right and left and settle into a steady, immobile sitting position. (EB)
+
 > At your sitting place, spread out a thick mat and put a cushion on it. Sit either in the full-lotus or half-lotus position. In the full-lotus position, first place your right foot on your left thigh, then your left foot on your right thigh. In the half-lotus, simply place your left foot on your right thigh. Tie your robes loosely and arrange them neatly. Then place your right hand on your left leg and your left hand on your right palm, thumb-tips lightly touching. Straighten your body and sit upright, leaning neither left nor right, neither forward nor backward. Align your ears with your shoulders and your nose with your navel. Rest the tip of your tongue against the front of the roof of your mouth, with teeth together and lips shut. Always keep your eyes open, and breathe softly through your nose.
 >
-> Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. [SZ] 
+> Once you have adjusted your posture, take a breath and exhale fully, rock your body right and left, and settle into steady, immovable sitting. (SZ) 
 
 ## Commentary
 
@@ -3064,15 +3175,15 @@ Katagiri Roshi discusses zazen posture in much more detail in his zazen instruct
 #pagebreak()
 ```
 
-# Chapter 17: The Essential Art of Zazen
+# Chapter 18: The Essential Art of Zazen
 
 ## Paragraph 7 Part 2
 
 > 不思量底、如何思量、非思量、此乃坐禪之要術也。  
 
-> Think of not-thinking. How do you think of not-thinking? Non-thinking. This in itself is the essential art of zazen. [EB]
+> Think of not-thinking. How do you think of not-thinking? Non-thinking. This in itself is the essential art of zazen. (EB)
 
-> Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen. [SZ] 
+> Think of not thinking, "Not thinking --what kind of thinking is that?" Nonthinking. This is the essential art of zazen. (SZ) 
 
 ## Commentary
 
@@ -3084,7 +3195,7 @@ Katagiri Roshi discusses zazen posture in much more detail in his zazen instruct
 >> "How do you think of not-thinking?" asked the monk.   
 >> "Non-thinking," answered Yüeh-shan.
 >
-> – From [EB]
+> – From (EB)
 
 
 Here is body, breath, and mind, and also no-mind.
@@ -3171,15 +3282,15 @@ For *shujo shin* (“one-mind”) as *non-thinking*, see [“*The Awakening of 
 #pagebreak()
 ```
 
-# Chapter 18: The Dharma Gate of Joyful Ease
+# Chapter 19: The Dharma Gate of Joyful Ease
 
 ## Paragraph 8 Part 1
 
 > 所謂、坐禪非習禪也、唯是安樂之法門也、究盡菩提之修證也。  
 
-> The zazen I speak of is not learning meditation. It is simply the Dharma-gate of repose and bliss, the practice-realization of totally culminated enlightenment. [EB]
+> The zazen I speak of is not learning meditation. It is simply the Dharma-gate of repose and bliss, the practice-realization of totally culminated enlightenment. (EB)
   
-> The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. [SZ] 
+> The zazen I speak of is not meditation practice. It is simply the dharma gate of joyful ease, the practice realization of totally culminated enlightenment. (SZ) 
 
 ## Commentary
 
@@ -3207,15 +3318,15 @@ Search for “repose and bliss.” New good reference in Kuge Talk 7.
 #pagebreak()
 ```
 
-# Chapter 19: The Koan Realized
+# Chapter 20: The Koan Realized
 
 ## Paragraph 8 Part 2
 
 > 公案現成、籮籠未到。若得此意、如龍得水、似虎靠山。  
 
-> It is the manifestation of ultimate reality. Traps and snares can never reach it. Once its heart is grasped, you are like the dragon when he gains the water, like the tiger when he enters the mountain. [EB]
+> It is the manifestation of ultimate reality. Traps and snares can never reach it. Once its heart is grasped, you are like the dragon when he gains the water, like the tiger when he enters the mountain. (EB)
 
-> It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. [SZ] 
+> It is the koan realized; traps and snares can never reach it. If you grasp the point, you are like a dragon gaining the water, like a tiger taking to the mountains. (SZ) 
 
 ## Commentary
 
@@ -3228,15 +3339,15 @@ Search for “repose and bliss.” New good reference in Kuge Talk 7.
 #pagebreak()
 ```
 
-# Chapter 20: Dullness and Distraction Are Struck Aside
+# Chapter 21: Dullness and Distraction Are Struck Aside
 
 ## Paragraph 8 Part 3
 
 > 當知、正法自現前、昏散先撲落。  
 
-> For you must know that just there [in zazen] the right dharma is manifesting itself and that from the first dullness and distraction are struck aside. [EB] 
+> For you must know that just there [in zazen] the right dharma is manifesting itself and that from the first dullness and distraction are struck aside. (EB) 
 
-> For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside. [SZ] 
+> For you must know that the true dharma appears of itself, so that from the start dullness and distraction are struck aside. (SZ) 
 
 ## Commentary
 
@@ -3291,15 +3402,15 @@ But there is a second, perhaps even more extreme, kind of zazen, where rather th
 #pagebreak()
 ```
 
-# Chapter 21: When You Arise from Sitting
+# Chapter 22: When You Arise from Sitting
 
 ## Paragraph 9 Part 1
 
 > 若從坐起、徐徐動身、安詳而起、不應卒暴。  
 
-> When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. [EB]
+> When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. (EB)
 
-> When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. [SZ] 
+> When you arise from sitting, move slowly and quietly, calmly and deliberately. Do not rise suddenly or abruptly. (SZ) 
 
 ## Commentary
 
@@ -3318,15 +3429,15 @@ A practical example of moving calmly and deliberately appears in [“*Bendōwa*:
 #pagebreak()
 ```
 
-# Chapter 22: Dying While Either Sitting or Standing
+# Chapter 23: Dying While Either Sitting or Standing
 
 ## Paragraph 9 Part 2
 
 > 嘗觀、超凡越聖、坐脱立亡、一任此力矣。  
 
-> In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength [of zazen]. [EB] 
+> In surveying the past, we find that transcendence of both un-enlightenment and enlightenment, and dying while either sitting or standing, have all depended entirely on the strength [of zazen]. (EB) 
   
-> In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen. [SZ] 
+> In surveying the past, we find that transcendence of both mundane and sacred, and dying while either sitting or standing, have all depended entirely on the power of zazen. (SZ) 
 
 ## Commentary
 
@@ -3359,15 +3470,15 @@ Unfortunately there’s far too much material in the talk to include here.
 #pagebreak()
 ```
 
-# Chapter 23: It Cannot Be Understood by Discriminative Thinking
+# Chapter 24: It Cannot Be Understood by Discriminative Thinking
 
 ## Paragraph 10 Part 1
 
 > 況復拈指竽針鎚之轉機、擧拂拳棒喝之證契、未是思量分別之所能解也、  
 
-> In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking. [EB] 
+> In addition, the bringing about of enlightenment by the opportunity provided by a finger, a banner, a needle, or a mallet, and the effecting of realization with the aid of a hosu (that is, a whisk), a fist, a staff, or a shout cannot be fully understood by one’s discriminative thinking. (EB) 
 
-> In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; ... [SZ] 
+> In addition, triggering awakening with a finger, a banner, a needle, or a mallet, and effecting realization with a whisk, a fist, a staff, or a shout --these cannot be understood by discriminative thinking; ... (SZ) 
 
 ## Commentary
 
@@ -3408,15 +3519,15 @@ This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Z
 #pagebreak()
 ```
 
-# Chapter 24: Deportment Beyond Seeing and Hearing
+# Chapter 25: Deportment Beyond Seeing and Hearing
 
 ## Paragraph 10 Part 2
 
 > 豈爲神通修證之所能知也。可爲聲色之外威儀。那非知見之前軌則者歟。
 
-> It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions? [EB]
+> It cannot be fully known by the practicing or realizing of supernatural power either. It must be deportment beyond one’s hearing and seeing. Is it not the principle that is prior to one’s knowledge and perceptions? (EB)
 
-> ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views? [SZ]
+> ... much less can they be known through the practice of supernatural power. They must represent conduct beyond seeing and hearing. Are they not a standard prior to knowledge and views? (SZ)
 
 ## Commentary
 
@@ -3462,15 +3573,15 @@ This is discussed in [“*Fukanzazengi*: Dōgen's Universal Recommendation for Z
 #pagebreak()
 ```
 
-# Chapter 25: Intelligence or Lack Of It Is Not an Issue
+# Chapter 26: Intelligence or Lack Of It Is Not an Issue
 
 ## Paragraph 11
 
 > 然則不論上智下愚、莫簡利人鈍者。專一功夫、正是辦道。修證自不染汙、趣向更是平常者也。
 
-> This being the case, intelligence or lack of it does not matter; between the dull and the sharp-witted there is no distinction. If you concentrate your effort singlemindedly, that in itself is negotiating the Way. Practice-realization is naturally undefiled. Going forward [in practice] is a matter of every-dayness. [EB]
+> This being the case, intelligence or lack of it does not matter; between the dull and the sharp-witted there is no distinction. If you concentrate your effort singlemindedly, that in itself is negotiating the Way. Practice-realization is naturally undefiled. Going forward [in practice] is a matter of every-dayness. (EB)
 
-> This being the case, intelligence or lack of it is not an issue; make no distinction between the dull and the sharp-witted. If you concentrate your effort single-mindedly, that in itself is wholeheartedly engaging the way. Practice-realization is naturally undefiled. Going forward is, after all, an everyday affair. [SZ] 
+> This being the case, intelligence or lack of it is not an issue; make no distinction between the dull and the sharp-witted. If you concentrate your effort single-mindedly, that in itself is wholeheartedly engaging the way. Practice-realization is naturally undefiled. Going forward is, after all, an everyday affair. (SZ) 
 
 ## Commentary
 
@@ -3482,15 +3593,15 @@ For a good look at the meaning of the term *undefiled* in Buddhism, see “*Blue
 #pagebreak()
 ```
 
-# Chapter 26: Why Leave Behind the Seat in your Own Home
+# Chapter 27: Why Leave Behind the Seat in your Own Home
 
 ## Paragraph 12
 
 > 凡夫自界他方、西天東地、等持佛印、一擅宗風。唯務打坐、被礙兀地。雖謂萬別千差、秪管參禪辦道。何抛卻自家之坐牀。謾去來他國之塵境。若錯一歩、當面蹉過。  
 
-> In general, this world and other worlds as well, both in India and China, equally hold the Buddha-seal, and over all prevails the character of this school, which is simply devotion to sitting, total engagement in immobile sitting. Although it is said that there are as many minds as there are men, still they (all) negotiate the Way solely in zazen. Why leave behind the seat that exists in your home and go aimlessly off to the dusty realms of other lands? If you make one misstep you go astray from (the Way) directly before you. [EB]
+> In general, this world and other worlds as well, both in India and China, equally hold the Buddha-seal, and over all prevails the character of this school, which is simply devotion to sitting, total engagement in immobile sitting. Although it is said that there are as many minds as there are men, still they (all) negotiate the Way solely in zazen. Why leave behind the seat that exists in your home and go aimlessly off to the dusty realms of other lands? If you make one misstep you go astray from (the Way) directly before you. (EB)
   
-> In general, in our world and others, in both India and China, all equally hold the buddha-seal. While each lineage expresses its own style, they are all simply devoted to sitting, totally blocked in resolute stability. Although they say that there are ten thousand distinctions and a thousand variations, they just wholeheartedly engage the way in zazen. Why leave behind the seat in your own home to wander in vain through the dusty realms of other lands? If you make one misstep, you stumble past what is directly in front of you. [SZ] 
+> In general, in our world and others, in both India and China, all equally hold the buddha-seal. While each lineage expresses its own style, they are all simply devoted to sitting, totally blocked in resolute stability. Although they say that there are ten thousand distinctions and a thousand variations, they just wholeheartedly engage the way in zazen. Why leave behind the seat in your own home to wander in vain through the dusty realms of other lands? If you make one misstep, you stumble past what is directly in front of you. (SZ) 
 
 ## Commentary
 
@@ -3503,15 +3614,15 @@ For a good look at the meaning of the term *undefiled* in Buddhism, see “*Blue
 #pagebreak()
 ```
 
-# Chapter 27: The Pivotal Opportunity of Human Form
+# Chapter 28: The Pivotal Opportunity of Human Form
 
 ## Paragraph 13 Part 1
 
 > 既得人身之機要、莫虚度光陰。  
 
-> You have gained the pivotal opportunity of human form. Do not use your time in vain. [EB]
+> You have gained the pivotal opportunity of human form. Do not use your time in vain. (EB)
 
-> You have gained the pivotal opportunity of human form. Do not pass your days and nights in vain. [SZ] 
+> You have gained the pivotal opportunity of human form. Do not pass your days and nights in vain. (SZ) 
 
 ## Commentary
 
@@ -3549,15 +3660,15 @@ Katagiri Roshi also discussed *ki* in his final talk:
 #pagebreak()
 ```
 
-# Chapter 28: Emptied in an Instant, Vanished in a Flash
+# Chapter 29: Emptied in an Instant, Vanished in a Flash
 
 ## Paragraph 13 Part 2
 
 > 保任佛道之要機、誰浪樂石火。加以、形質如草露、運命似電光。倐忽便空、須臾即失。  
 
-> You are maintaining the essential working of the Buddha Way. Who would take wasteful delight in the spark from the flintstone? Besides, form and substance are like the dew on the grass, destiny like the dart of lightning – emptied in an instant, vanished in a flash. [EB]
+> You are maintaining the essential working of the Buddha Way. Who would take wasteful delight in the spark from the flintstone? Besides, form and substance are like the dew on the grass, destiny like the dart of lightning – emptied in an instant, vanished in a flash. (EB)
   
-> You are taking care of the essential activity of the buddha-way. Who would take wasteful delight in the spark from a flintstone? Besides, form and substance are like the dew on the grass, the fortunes of life like a dart of lightning – emptied in an instant, vanished in a flash. [SZ] 
+> You are taking care of the essential activity of the buddha-way. Who would take wasteful delight in the spark from a flintstone? Besides, form and substance are like the dew on the grass, the fortunes of life like a dart of lightning – emptied in an instant, vanished in a flash. (SZ) 
 
 ## Commentary
 
@@ -3576,15 +3687,15 @@ Katagiri Roshi comments on that verse extensively in [“*Diamond Sutra*, Talk 4
 #pagebreak()
 ```
 
-# Chapter 29: Do Not Doubt the True Dragon
+# Chapter 30: Do Not Doubt the True Dragon
 
 ## Paragraph 14 Part 1
 
 > 冀其參學高流、久習摸象。勿怪眞龍。  
 
-> Please, honored followers of Zen. Long accustomed to groping for the elephant, do not be suspicious of the true dragon. [EB]
+> Please, honored followers of Zen. Long accustomed to groping for the elephant, do not be suspicious of the true dragon. (EB)
 
-> Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. [SZ] 
+> Please, honored followers of Zen, long accustomed to groping for the elephant, do not doubt the true dragon. (SZ) 
 
 ## Commentary
 
@@ -3602,15 +3713,15 @@ Katagiri Roshi mentions the story of the blind men touching the elephant, connec
 #pagebreak()
 ```
 
-# Chapter 30: The Treasure Store
+# Chapter 31: The Treasure Store
 
 ## Paragraph 14 Part 2
 
 > 精進直指端的之道、尊貴絶學無爲之人。合沓佛佛之菩提、嫡嗣祖祖之三昧。久爲恁麼、須是恁麼、寶藏自開、受用如意。    
 
-> Devote your energies to a way that directly indicates the absolute. Revere the [person] of complete attainment who is beyond all human agency. Gain accord with the enlightenment of the buddhas; succeed to the legitimate lineage of the patriarchs' samadhi. Constantly perform in such a manner and you are assured of being a person such as they. Your treasure-store will open of itself, and you will use it at will. [EB]
+> Devote your energies to a way that directly indicates the absolute. Revere the [person] of complete attainment who is beyond all human agency. Gain accord with the enlightenment of the buddhas; succeed to the legitimate lineage of the patriarchs' samadhi. Constantly perform in such a manner and you are assured of being a person such as they. Your treasure-store will open of itself, and you will use it at will. (EB)
 
-> Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely. [SZ] 
+> Devote your energies to the way of direct pointing at the real. Revere the one who has gone beyond learning and is free from effort. Accord with the enlightenment of all the buddhas; succeed to the samadhi of all the ancestors. Continue to live in such a way, and you will be such a person. The treasure store will open of itself, and you may enjoy it freely. (SZ) 
 
 ## Commentary
 
@@ -3808,7 +3919,7 @@ So, to rephrase the question in this line of *Fukanzazengi*: “How could the Wa
 
 In a sense, it doesn’t – because the Way is already perfect and all-pervading. But there is another sense where, because we already *are* Buddha, we should *practice* as a buddha. And when we do that, our lives can *bloom* – just like a flower. 
 
-This is really the central point of *Fukanzazengi*, so we will keep returning to this in the coming chapters. In particular we will look at practice *ripening* in Chapter 8: “Buddha and Bodhidharma.”
+This is really the central point of *Fukanzazengi*, so we will keep returning to this in the coming chapters. In particular we will look at practice *ripening* in Chapter 9: “Buddha and Bodhidharma.”
 
 ---
 
@@ -3841,3 +3952,19 @@ How can you build it up? This is a key point you have to learn from now on, towa
 > So if you do zazen, don’t be hanging around the small self. “I am doing zazen, zazen is helping me” – that is really the small self, it is not real zazen. Because if you think so, you make the function of zazen small – separated from you, separate from others. Anyway, zazen and you, or trees, birds, all sentient beings, are exactly the same and living in the realm of silence. Silence is energy, it is just working, functioning. 
 >
 > – From [“*Blue Cliff Record* Case 42: Layman P’ang’s Good Snowflakes, Talk 1” (March 2, 1983) at 20:34](https://katagiritranscripts.net/1983-03-02-Blue-Cliff-Record-Case-42-Talk-1#2034)
+
+----------
+
+Omitted from “Never Apart”:
+
+>> He continued, “Mendicant Pei, why aren’t you going on a pilgrimage?” 
+>
+> Because he had tried to leave for other temples, to see other Zen teachers and complete his practice; so Seppō asks, “Why don’t you go there? Why aren’t you going on pilgrimage?” 
+>
+>> Gensha said, “Bodhidharma didn’t come to the East. The Second Patriarch didn’t go to the West.” 
+>
+> That means we shouldn’t go to before zazen, we shouldn’t go to after zazen. So that is, “Bodhidharma didn’t go east, west.” 
+>
+> – 1979-06-13-Fukanzazengi-Talk-5
+
+

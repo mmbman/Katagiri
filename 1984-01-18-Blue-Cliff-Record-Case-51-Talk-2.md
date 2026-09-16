@@ -257,9 +257,9 @@ Okay. So, next:
 > Utterly separated—  
 > Even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.  
 
-Well, even Buddha Shakyamuni or Bodhidharma cannot understand it, cannot *know* what it is. But anyway Bodhidharma and Buddha Shakyamuni – or ancestors, your parents, your grandparents – continued to dwell in the beautiful life force of nature constantly, making their life mature, instead of *knowing* or *analyzing* constantly. [That] is a *part* of human activity, but it’s not all. 
+Well, even Buddha Shakyamuni or Bodhidharma cannot understand it, cannot *know* what it is. But anyway Bodhidharma and Buddha Shakyamuni – or ancestors, your parents, your grandparents – continued to dwell in the beautiful life force of nature constantly, making their life mature, instead of *knowing* or *analyzing* constantly. [Knowing and analyzing] is a *part* of human activity, but it’s not all. 
 
-So, it is not something to realize or to know, but to dwell in and make your life deepen or mature. That means that, here it says, “even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.” It’s not a matter of discussion. No. It is something you have to do. 
+So, it is not something to realize or to know, but to dwell in and make your life deepen or mature. That means that, here it says, “even Yellow Head (Buddha) and Blue Eyes (Bodhidharma) have yet to discern.” It’s not a matter of discussion; no. It is something you have to do. 
 
 > South, North, East, West, let us return—  
 
