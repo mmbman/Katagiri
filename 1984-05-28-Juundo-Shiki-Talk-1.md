@@ -14,17 +14,19 @@ title: "Jūundō Shiki, Rules for the Monks Annex – Talk 1"
 
 #### 0:00
 
-At this time I would like to study with you *Jūundō Shiki* of *Shōbōgenzō*, the “Regulations for the Auxiliary Cloud Hall.” The title [in] *Shōbōgenzō* is *Jūundō Shiki* in Japanese. Here in the translation it says, "Regulations for the Auxiliary Cloud Hall." *Cloud Hall* means zazen hall. 
+[At] this time I would like to study with you *Jūundō shiki* of *Shōbōgenzō*: the “Regulations for the Auxiliary Cloud Hall.” The title [in] *Shōbōgenzō* is *Jūundō shiki* in Japanese. Here the translation says, "Regulations for the Auxiliary Cloud Hall." *Cloud Hall* means zazen hall. 
 
-In Japanese we say *jūundō shiki*. *Jū* means “double.” Probably when Dōgen Zenji was alive, many people came to his zendo and practiced with him; so probably there were double zendos, double zazen halls. The first zendo is called “*zen do*,” front zendo, front hall, literally. And another zendo is called *godo*: rear zazen hall. So front zendo and rear zendo. 
+In Japanese we say *jūundō shiki*. *Jū* means “double.” Probably when Dōgen Zenji was alive, many people came to his zendo and practiced with him; so probably there were double zendos, double zazen halls. The first zendo is called “*zen do*,” front zendo, front hall, [literally]. And another zendo is called *godo*: rear zazen hall. So front zendo and rear zendo. 
 
-And the head of the front zendo is the *seido* (聖堂 / 西堂) position. The head of the front zendo is the *seido*, we say. And the head of the rear zendo is the *godō*. In San Francisco, we have a position named *godō*; that is the head of the rear zendo. So anyway, *seido* is used now in a different way. In *Eiheiji* monastery, *seido* is a pretty high position, next to the vice abbot, and they take a very big responsibility for teaching the monks – pretty often in the abbot’s place. He is a person invited out of the monastery. But in ancient times, *seido* position was the head of the front zendo, which was exactly the same position as the *godō* position, head of the rear zendo. 
+And the head of the front zendo is the *seido* (聖堂  or 西堂) position. The head of the front zendo is the *seido*, we say. And the head of the rear zendo is the *godō*. In San Francisco, we have a position named *godō*; that is the head of the rear zendo. So anyway, *seido* is used now in a different way. In *Eiheiji* monastery, *seido* is a pretty high position, next to the vice abbot, and they take a very big responsibility for teaching the monks – pretty often in the abbot’s place. He is a person invited out of the monastery. But in ancient times, *seido* position was the head of the front zendo, which was exactly the same position as the *godō*, head of the rear zendo. 
 
 So anyway, that is the *jū*: “double.” 
 
-*Undō* means “cloud hall.” *Cloud* is another name for the monks. We say *unsui*: “cloud and water” – that is another name for the monks. So the *undō*, cloud hall, means the hall for monks. But now mainly we say *sōdō*; *sō* means “monk,” so, “monks hall.” So *sōdō*, *undō*, *zendo*; many names. But here, Dōgen Zenji used the *undō*. So, double *undō*. 
+*Undō* means “cloud hall.” *Cloud* is another name for the monks. We say *unsui*: “cloud and water” – that is another name for the monks. So the *undō*, cloud hall, means the hall for the monks. But now mainly we say *sōdō*; *sō* means “monk,” so, “monks’ hall.” 
 
-*Shiki* of *jūundō shiki* means “regulations.” So, the translation here says, “Regulations for the Auxiliary Cloud Hall.” Well, it’s alright. 
+So *sōdō*, *undō*, *zendo*; many names. But here, Dōgen Zenji used the *undō*. So, double *undō*. 
+
+*Shiki* of *jūundō shiki* means “regulations.” So the translation here says, “Regulations for the Auxiliary Cloud Hall.” Well, it’s alright. 
 	
 #### 06:13
 
@@ -32,7 +34,7 @@ And first, Dōgen Zenji says:
 
 > 1.
 >
-> Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity should not enter. If the entry is a mistake, after some consideration one maybe asked to leave.
+> Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity should not enter. If the entry is a mistake, after some consideration they may be asked to leave.
 >
 > When the way-seeking mind is aroused inwardly, there is immediately freedom from fame and profit. In the vastness of billions of worlds, true heirs (who have been entrusted with the) dharma are rare. In spite of the long history of our country you should make the (true heirs) the true source, having compassion for later generations by giving emphasis to the present.
 > 
@@ -40,67 +42,73 @@ And first, Dōgen Zenji says:
 
 First, “Those who have way-seeking mind and wish to abandon fame and profit should enter. Those who are half-hearted and lack sincerity shouldn’t enter. If the entry is a mistake, after some consideration, they may be asked to leave.”
 
-So first of all, we need *way-seeking mind*. If you don’t have way-seeking mind, Dōgen emphasizes not to allow you to enter the zendo. So the way-seeking mind is most important – for not only the religious practice, [but] whatever you do. Generally speaking, maybe the way-seeking mind is your intention or your will. [The words are] quite different, between aspiration and will, [or] intention is different, but anyway: aspiration, or intention, or will. Without aspiration, you cannot do *anything*. 
+So first of all, we need *way-seeking mind*. If you don’t have way-seeking mind, Dōgen emphasizes not to allow you to enter the zendo. So the way-seeking mind is most important. For not only religious practice, [but] whatever you do, generally speaking maybe the way-seeking mind is your intention or your will. [The words are] quite different, between aspiration, [or] will, [or] intention is different. But anyway: aspiration, or intention, or will – without aspiration, you cannot do *anything*. 
 
-But in religion, aspiration is called *the way-seeking mind*, which is a little different from the usual aspiration or will or intention, because the way-seeking mind must go not in the world of give and take, but in the world of *no merit*, in the world of *emptiness*. Nevertheless you have to keep your aspiration on and on, constantly, under all circumstances. So that’s why it’s a little hard. But the usual aspiration is kind of one of the human desires, to accomplish something, for getting a certain fame, riches – well, many things. You want to satisfy your desire. So very naturally, it’s pretty easy to get the aspiration because you can see the result. So it’s easy for us to “push a button,” so-called *aspiration* or *desire* as a cause, and then you can get the result, pretty clearly.
+But in religion, aspiration is called *the way-seeking mind*, which is a little different from the usual aspiration or will or intention, because the way-seeking mind must go not in the world of give and take, but in the world of *no merit*, in the world of *emptiness*. Nevertheless you have to keep your aspiration on and on, constantly, under all circumstances. So that’s why it’s a little hard. But the usual aspiration is kind of one of the human desires, to accomplish something, for getting a certain fame, riches – well, many things – in order to satisfy your desire. So very naturally it’s pretty easy to get the aspiration, because you can see the result. So it’s easy for us to “push a button,” so-called *aspiration* or *desire* as a *cause*, and then you can get the *result*, pretty clearly.
 
-The usual aspiration or will or intention is just like a slot machine. You know the slot machine, and the mechanical vending machine? (*Transcriber’s Note:* Katagiri Roshi uses the term *slot machine*, but he pretty clearly means *vending machine*, as described below. I have substitued the term *vending machine*.)
+So the usual aspiration or will or intention is just like a slot machine. Do you know the slot machine, and the mechanical vending machine? 
 
-If you go to Japan, there are many vending machines. They’re *everywhere*. At the platform, at the corner of the street, or by the newspaper or magazine stand. Wherever you may go in Japan, you can get a 7-Up, and hot noodles, and hot *sake*, cold *sake*, and magazines; many kinds of magazines. So *everywhere*, there’s all [these] vending machines there. Then you put in the dime or the quarters, and then you can get [something]. If you push a button, you immediately get [something].
+(*Transcriber’s Note:* Katagiri Roshi uses the term *slot machine* below, but from his description he pretty clearly means *vending machine*. I have substitued the term *vending machine*.)
+
+If you go to Japan, there are many vending machines. They’re *everywhere*. At the platform, at the corner of the street, or by the newspaper or magazine stand. Wherever you may go in Japan, you can get a 7 Up, and hot noodles, and hot *sake*, cold *sake*, and magazines; many kinds of magazines. So *everywhere*, there’s all [these] vending machines there. Then you put in the dime or the quarters, and then you can get [something]. If you push a button, you immediately get [something].
 
 But the problem is... *[he chuckles]*... you don’t know what’s going on *inside*. The inside is completely a black box. Do you understand *black box*? *Black box* [means] the internal mechanism is completely hidden and mysterious to the user. 
 
-So the more the human world is civilized by mechanisms, technology, the more human life becomes convenient, and you can get a better life. But, your life becomes a black box – just like a vending machine. At that time, it’s not necessary to know carefully what’s going on the inside of the internal mechanism of life. Just push a button, and you can get it. It’s pretty easy. 
+So the more the human world is civilized by mechanisms, technologies, the more human life becomes convenient, and you can get a better life. But, your life becomes a black box – just like a vending machine. At that time, it’s not necessary to know carefully what’s going on the inside of the internal mechanism of life. Just push a button, and you can get it. It’s pretty easy. 
 
 And then that is the so-called *intellectual way of life*. You know, systematical. There is a cause, and effect. So if you have a cause, very naturally the result comes up, and then that result is influencing A, B, C, and D, [and] finally it’s gone. Do you understand? That teaching of cause and effect is very *flat*. [It’s] just like a water ring. If you throw a pebble in the ocean, you can make a water ring, and the water ring is going, but finally it disappears. So, one cause creates lots of things – the activity of the one pebble influences many water rings – but finally that influence disappears. That is our intellectual sense. 
 
-But recently [...] in human society we realize that cause and effect is not operating in this very flat world. In other words, if you do something as a cause, then you can create a result, but simultaneously that result comes back to the cause. So, that is called, what would it be called – [a cycle]. [...] Everything is going, everything is coming back, connected. We’ve had that science for many, many years, but we didn’t pay attention to it. And then [more] recently we pay attention to how important it is, because in the oceans, micro-creatures and [macro]-creatures, all sentient beings are connected. *Ecology* – yes, it is ecology, I think. So we realized, “Well, the understanding of the cause and effect which we had is not right!” So very naturally we should pay attention to the *ecology*, thinking carefully how all sentient beings are connected. 
+ But recently [...] in human society we realize that cause and effect is not operating in this very flat world. In other words, if you do something as a cause, then you can create a result, but simultaneously that result comes back to the cause. So, that is called [a cycle]. [...] Everything is going, everything is coming back, connected. We’ve had that science for many, many years, but we didn’t pay attention to it. And then [more] recently we pay attention to how important it is, because microscopic creatures in the oceans and [land] creatures, all sentient beings are connected. *Ecology* – yes, it is ecology, I think. So we realized, “Well, the understanding of the cause and effect which we had is not right!” So very naturally we should pay attention to the *ecology*, thinking carefully how all sentient beings are connected. [...]
 
-So, that’s why I mentioned before, in ancient times, intellectually we understood the cause and effect in a flat way. Just like a one line, a straight line: A, B, C, D, E, F, G. We saw the pebbles in the ocean, and we influenced somebody, and another one, A, B, C, D, E, and finally influences disappeared. Never come back; it’s just go. But recently we realized [that] no, that’s not right. Influencing constantly, but finally, sooner or later, we don’t know when, but sooner or later it comes back to the origin. That is ecology. 
+That’s why I mentioned before, in ancient times, intellectually we understood the cause and effect in a flat way. Just like a straight line: A, B, C, D, E, F, G. We throw the pebbles in the ocean, and we influence somebody, and another one, A, B, C, D, E, and finally the influences disappeared. They never come back; they just go. But recently we realized [that] no, that’s not right. [...] Finally, sooner or later – we don’t know when, but sooner or later – it comes back to the origin. That is ecology. 
 
-But, the basic idea of a vending machine is based on the understanding of cause and effect in the flat world. You don’t know. If all you have to do is just throw the pebbles or push a button, and then by your aspiration and desires, very naturally you can get any money, fame, position – why don’t you do it? Just push the button. That is the basic idea of the vending machine. Do you understand? *[He chuckles.]*
+But the basic idea of a vending machine is based on the understanding of cause and effect in the flat world. So you don’t know. If all you have to do is just throw the pebbles or push a button, and then by your aspiration and desires, very naturally you can get any money, fame, position – why don’t you do it? Just push the button. That is the basic idea of the vending machine. *[He chuckles.]* If you use your usual idea of aspiration or desire, very naturally you can live like this, just like a vending machine. Push a button, and you get something. If you don’t [want something], don’t push a button. This is very common. 
 
-That is also, if you use your usual idea of aspiration or desire, very naturally you can live like this, just like a vending machine. Push a button, and you get something. If you don’t get, don’t push a button. This is very common. 
+[...] In Zen Buddhism, [and really all] Buddhist teaching, [we say that] cause and effect become one simultaneously. So cause is a cause, but simultaneously cause becomes result. So that is an interesting teaching [that] you don’t understand; but in science, we realize this.
 
-And also in Zen Buddhism, [and really all] Buddhist teaching, [we say that] cause and effect become one simultaneously. So cause is a cause, but simultaneously cause becomes result. That is an interesting teaching [that] you don’t understand; but in science, we realize this.
+#### 20:57
+ 
+For instance, I don’t know about computers, but recently, whatever you do, always [there is a] computer there. So [for example] it’s not necessary to have a pilot when you want to drive a battleship; you put the computer there. And then there is only one person in a hundred who handles the computer and pushes the button. And then, simultaneously, the ship starts to operate. 
 
-For instance, I don’t know about computers, but recently, whatever you do, always [there is a] computer there. So it’s not necessary to have a driver, or a pilot, and, you know, where you want to drive a battleship; you should put the computer there. And then there is only one person in a hundred who handles the computer and the pushes the button. And then, simultaneously, the ship starts to operate. So, the computer gives you lots of, what would you say, output. But, if a computer gives always an output – is that it? No. You can’t drive the ship in that way, just give the output from the computer and to operate, in order to operate the ship. Is that enough? What do you need more? What do you think? 
+So, the computer gives you lots of – what would you say – output. But, if a computer gives always output – is that it? No. You cannot drive a ship in that way, just give the output from the computer in order to operate the ship. Is that enough? What do you need more? What do you think? 
 
 **People:** Input.
 
-**Katagiri Roshi:** Input, yes. If you have an output, simultaneously you need an input.
+**Katagiri Roshi:** Input. Yes. If you have output, simultaneously you need input.
 
-And then, how can you get the input? For instance, in order to drive the ship, what happens around the ship? Not only to operate the engine, you know. There are lots of things, and there are many kinds of circumstances around the ship. What does computer do? What what must computer do? Do you understand? What? 
+And then, how can you get the input? For instance, in order to drive the ship. What happens around the ship? Not only to operate the engines, you know? There are many kinds of circumstances around the ship. What must the computer do? Do you understand? First the computer has to make the ship operate; next, what? How do you use the output? 
 
-First, computer has to make the ship to operate. Next, what? By the output, and then, how do you use the output? Do you understand? 
+Do you understand? Say *something* about this. *[Laughter.]*
 
-Say *something* about it! *[Laughter.]*
-
-**Someone:** Computer keeps track of the circumstances. Computer keeps track of the changing variables, you know. 
+**Someone:** The computer keeps track of the circumstances; the computer keeps track of the changing variables, you know?
 
 **Katagiri Roshi:** Great. Yes, that’s true. For instance? 
 
 **Someone:** Weather.
 
-**Katagiri Roshi:** Sure. Other ships? Sure. 
+**Katagiri Roshi:** Sure. 
 
-**Someone:** Destination? 
+**Someone:** Other ships?
 
-**Katagiri Roshi:** Destination. Right, but the destination is constantly you have to direct to a certain direction that you want to go. Do you understand? So, before you know the direction, before you direct the ship to a certain direction you want to go, the computer has to do many things. The computer gives you output, and then, how do you use the output? That is, getting the information of circumstances, changes of circumstances; so-called weather, waves, wind, many things. Do you understand? And the wind is always changing constantly; waves, big change. 
+**Katagiri Roshi:** Other ships. Sure. 
 
-So, we need the lots of information about those things. And then, if a computer gets the lots of information of the changes of circumstances, and then, again, that information is called input. Simultaneously, that input is turned into the output. In order to what? 
+**Someone:** Destination? *[Unintelligible.]*
 
-**Someone:** Make the ship go. 
+**Katagiri Roshi:** Destination. Right, but the destination is constantly you have to direct to a certain direction that you want to go. Do you understand? So, before you know the direction, before you direct the ship to a certain direction you want to go, the computer has to do many things. The computer gives you output, and then, how do you use the output? That is, getting the information of circumstances, changes of the circumstances: so-called weather, waves, wind, many things. Do you understand? And the wind is always changing constantly; the waves, big change. 
+
+So, we need lots of information about those things. And then, if a computer gets the lots of information about the changes of circumstances, then again, that information is called input. Simultaneously, that input is turned into the output. In order to what? 
+
+**Someone:** Make the ship go!
 
 **Katagiri Roshi:** Go where? 
 
 **Someone:** Wherever it’s going. 
 
-**Katagiri Roshi:** In the proper way, yes. Following the right route, the right course, anyway. Constantly the computer driver has to keep the ship in the right course. For this, we need lots of information. 
+**Katagiri Roshi:** In the proper way. Yes. Following the right route, the right course. Constantly the computer driver has to keep the ship on the right course. For this, we need lots of information. 
 
-So, from this point, the output is simultaneously output, but not only the output just like a vending machine, no. Output is simultaneously input. The input simultaneously is output. And then, you have to use the output and get the information as input, lots of input. And then, always computer works like this. That’s why computers can drive the ship, or tank, or the train in San Francisco, plane, many things. No drivers, just a computer. Pretty interesting. 
+So from this point, the output is simultaneously output, but not only the output just like a vending machine. No; output is simultaneously input. The input simultaneously is output. And then, you have to use the output and get the information as input, lots of input. And then the computer always works like this; that’s why the computer can drive a ship, or tank, or the train in San Francisco, planes... many things. No drivers, just a computer. Pretty interesting. 
 
-Now we realize how important that is. Cause is not cause; cause is cause, but simultaneously is result. In Buddhism, twenty-five hundred years ago, we already knew that. But science realizes it now, and uses it for our every day life. 
+*Now* we realize how important that is: cause is not cause; cause is cause, but simultaneously [cause] is result. *[He laughs.]* In Buddhism, twenty-five hundred years ago, we already knew that. But science realizes it now, and uses it for our every day life. 
 
 But Buddhism didn’t work in everyday life. *[He chuckles.]* Just understanding the human world in a universal perspective. And then, how to take care of human life, how to take care of the human world – not mechanically, not intellectually. Practically. Buddhism has always taught for many, many years in that way. 
 
