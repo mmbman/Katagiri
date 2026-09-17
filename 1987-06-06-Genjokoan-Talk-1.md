@@ -227,7 +227,7 @@ But when your stomach is a little bit expressing some sound; you know, your stom
 
 That is not something to know. It's pretty difficult to know. So all you can do is just to manifest. That is called *Genjōkōan*. Okay? The title of this, called *Genjōkōan*. 
 
-*Gen* of *genjō* is “manifestion” or “present.” *Jo* is “becoming,” “to become,” or “to complete.” So literally [it is] manifestation and completion. *Genjō* means what has been completed, and is completing, is being completed, and will be completed – from day to day, from moment to moment. That is what? That is called *present*, *reality*. So reality is something more than you have understood – or you tried to understand. Something more than that. That is called *gen-jō*.
+*Gen* (現) of *genjō* (現成) is “manifestion” or “present.” *Jo* (成) is “becoming,” “to become,” or “to complete.” So literally [it is] manifestation and completion. *Genjō* means what has been completed, and is completing, is being completed, and will be completed – from day to day, from moment to moment. That is what? That is called *present*, *reality*. So reality is something more than you have understood – or you tried to understand. Something more than that. That is called *gen-jō*.
 
 So in *genjō*, “present” is what has ...
 
