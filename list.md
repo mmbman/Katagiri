@@ -183,15 +183,15 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 1. [*The Awakening of Faith* – Talk 12: Tathāgatagarbha](1984-05-22-Awakening-of-Faith-Talk-12)
 1. [*The Awakening of Faith* – Talk 13: Tathāgatagarbha and Alayavijinana](1984-05-24-Awakening-of-Faith-Talk-13)
 
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 1
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 2
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 3
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 4
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 5
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 7
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 8
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 10
-1. *Juundo Shiki*: Rules for the Monks Annex – Talk 11
+1. [*Jūundō Shiki*, Rules for the Monks’ Annex – Talk 1](1984-05-28-Juundo-Shiki-Talk-1)
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 2
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 3
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 4
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 5
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 7
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 8
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 10
+1. *Jūundō Shiki*: Rules for the Monks’ Annex – Talk 11
 
 1. *Blue Cliff Record* Case 58 Talk 1
 1. *Blue Cliff Record* Case 58 Talk 2
