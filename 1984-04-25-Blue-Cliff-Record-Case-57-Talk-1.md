@@ -7,7 +7,7 @@ title: "Blue Cliff Record Case 57: Chao Chou’s Stupid Oaf, Talk 1"
 
 ### Transcript
 
-**This transcript is in draft stage.**
+#### This transcript is in draft stage.
 
 #### [Listen to this talk](https://www.mnzencenter.org/the-dainin-katagiri-audio-archive/blue-cliff-record-case-57-1-of-2)
 
