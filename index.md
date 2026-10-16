@@ -47,7 +47,5 @@ More:
 
 ### Latest Updates
 
+- October 15, 2026: Posted [“*Blue Cliff Record* Case 57: Chao Chou’s Stupid Oaf, Talk 1”](1984-04-25-Blue-Cliff-Record-Case-57-Talk-1).
 - September 18, 2026: Posted [“*Jūundō Shiki*, Rules for the Monks’ Annex – Talk 1”](1984-05-28-Juundo-Shiki-Talk-1).
-- August 4, 2026: A lot of work is happening behind the scenes. Visible updates to the site may be limited for a while.
-- August 4, 2026: Rough drafts of the remainder of the [*Awakening of Faith*](awakening-of-faith) series are now posted, at least for the talks that are available. Please bear in mind that they are rough drafts.
-- April 24, 2026: Posted drafts of [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 1”](1984-02-18-Blue-Cliff-Record-Case-55-Talk-1) and [“*Blue Cliff Record* Case 55: Tao Wu’s Condolence Call, Talk 3”](1984-04-11-Blue-Cliff-Record-Case-55-Talk-3).
