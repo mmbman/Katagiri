@@ -27,7 +27,7 @@ title: "Blue Cliff Record Case 57: Chao Chou’s Stupid Oaf, Talk 1"
 
 **Katagiri Roshi:** Okay. The case, please.
 
-**Reader:**
+**Student:**
 
 > A monk asked Chao Chou, “‘The Ultimate Path has no difficulties—just avoid picking and choosing.’ What is not picking and choosing?”
 > 
@@ -49,27 +49,25 @@ Let's [look at] the simple meaning of the sentence. Can you say something about 
 
 **Katagiri Roshi:** Sure. That’s fine. *[Laughter.]*
 
-But that silver mountain is an example. But silver mountain or iron wall is an implication of the truth. Okay? If so, can you say [something about it]? The first sentence: “Before you have penetrated, it *all* seems like a silver mountain, like an iron wall.” What does it mean?
+But that silver mountain is an example. That silver mountain or iron wall is an implication of the truth. Okay? If so, can you say [something about it]? The first sentence: “Before you have penetrated, it *all* seems like a silver mountain, like an iron wall.” What does it mean?
  
- **Student:** Now that you said that they're symbols of the truth, I'm kind of confused. I was thinking that it meant [the] dualistic world, you've set up self and object; it seems like an iron wall. 
+ **Student:** Now that you’ve said that they're symbols of the truth, I'm kind of confused. I was thinking that it meant [the] dualistic world: you've set up self and object, it seems like an iron wall. 
  
- **Katagiri Roshi:** Mm-hmm. Sure. 
- 
- Before you have experienced the truth, truth can be seen objectively. So no matter how long you try to reach it, it's pretty hard to understand it. It's pretty hard to reach. So that's why truth you are seeking objectively is like a silver mountain. The more you try to climb, the more you can't. It's a *huge*, high silver mountain. And also, an iron wall is very hard. You cannot understand it. 
+ **Katagiri Roshi:** Mm-hmm. Sure. Before you have experienced the truth, truth can be seen objectively. So no matter how long you try to reach it, it's pretty hard to understand it, it's pretty hard to reach. That's why truth you are seeking objectively is like a silver mountain. The more you try to climb, the more you can't. It's a *huge*, high silver mountain. And also, an iron wall is very hard. You cannot understand it. 
 
 Do you understand? It’s alright. 
 
-Trying to understand the truth objectively means intellectually. Intellectually, you try to approach, you try to have access to the truth intellectually. 
+Trying to understand the truth *objectively* means intellectually. Intellectually you try to approach, you try to have access to the truth intellectually. 
 
 So the next sentence: “When you have been able to penetrate, from the beginning it was your self that was the silver mountain, the iron wall.” What is this? “When you have been able to penetrate” – what does it mean? 
 
-**Student:**  Once you understand. 
+**Student:** Once you understand. 
 
- **Katagiri Roshi:** Undertand. Experience. If you really experience the truth, from the beginning. From the beginning. Okay? Before you understand, before you experience or not, *from the beginning* it was yourself that was the silver mountain and the iron wall. What does it mean? 
+ **Katagiri Roshi:** Understand. Experience. If you really experience the truth, from the beginning. From the beginning, okay? Before you understand, before you experience or not, *from the beginning* it was your self that was the silver mountain and the iron wall. What does it mean? 
  
 **Student:** Could it mean ego? Penetrating ego? It’s not? Hmm.
 
-**Student:** That it’s really always accessible?
+**Student:** [It means] that it’s really always accessible?
 
 **Katagiri Roshi:** Yeah, pretty close, pretty close. 
 
@@ -79,41 +77,39 @@ So the next sentence: “When you have been able to penetrate, from the beginnin
 
 **Student:** They’re all the same. 
 
-**Katagiri Roshi:** Yes, the same. Exactly. Not “in” you, okay? You know, if you use the words “the truth is *in* you,” or “the truth is *exactly* you” – it's quite different, don’t you think so? 
+**Katagiri Roshi:** Yes, the same, exactly. Not “in” you, okay? You know, if you use the words “the truth is *in* you,” or “the truth is *exactly* you” – it's quite different, don’t you think so? 
   
 Even though you say “the truth is in you,” or “you are in truth,” it’s still dualistic. “In you” is extra, anyway. *[He laughs.]* So “no gap between.” That is exactly the same. 
 
-So that's why it says, “from the beginning.” “From the beginning” is before you experience the truth or not, from the beginning your body and mind are truth itself. Silver mountain. Iron wall.
+So that's why it says “from the beginning.” “From the beginning” is before you experience the truth or not, from the beginning your body and mind are truth itself. Silver mountain. Iron wall.
 
 That's why the more you try to climb the mountain – [your life,] your body and your mind – it’s pretty hard! It's *deep*. Don't you think so? In your *whole* life, you have to study, you have to learn – what the human body is, what the human mind is. 
 
-And then running your body and your mind, is simultaneously is to run the human world. That is because your body is really interconnected with the human world. So to understand you is to understand human world. That's why it's *huge*. That is a silver mountain. 
+And then [learning] your body and your mind is simultaneously is to [learn] the human world. That is because your body is really interconnected with the human world, so to understand you is to understand human world. That's why it's *huge*. That is a silver mountain. 
 
-So that's why [...] Dōgen Zenji says “to study Buddhism is to learn the self.” To learn the Buddha-dharma is to learn the self. So let's study,  let's learn who you are. Because you are a silver mountain: very stable human life – interconnected, interpenetrated with a huge universe. So you cannot break down, you cannot destroy your body and mind, by your understanding, by your own standard, or by your prejudice. You cannot destroy your body and mind. It’s [really an] iron wall. 
+So that's why [...] Dōgen Zenji says “to study Buddhism is to learn the self.” To learn the buddha-dharma is to learn the self. So let's study, let's learn who you are. Because you are a silver mountain: very stable human life, interconnected, interpenetrated with a huge universe. 
+
+So you cannot break down, you cannot destroy your body and mind, by your understanding, by your own standard, or by your prejudice. You cannot destroy your body and mind. It’s [really an] iron wall. 
 
 #### 9:30 
 
 And then, would you read the next paragraph. 
 
-**Reader:**
+**Student:**
 
 > If someone asks me, “So what?” I would just say to him, “Here, if you can reveal an action and observe an environment, occupy the essential bridge without letting profane or holy pass, this would not be beyond your inherent capacity.”
 
-**Katagiri Roshi:** 
-
-In other words, the truth is exactly your body and mind – and then someone says, “So what?” *[He laughs.]* Okay? “So what?” How do you answer this?
+**Katagiri Roshi:** In other words, the truth is exactly your body and mind – and then someone says, “So what?” *[He laughs.]* Okay? “So what?” How do you answer this?
 
 Then, “I would just say to him, ‘Here, if you can reveal an action and observe an environment...’” It means you can reveal an action and observe an environment. Do you understand this one? 
 
 **Student:** If you can understand the functioning of a thing, how something works through and through?
 
-**Katagiri Roshi:** To reveal action, observe environment. 
+**Katagiri Roshi:** “To reveal action, observe environment.”
 
 **Student:**  To understand how something works is through and through. 
 
-**Katagiri Roshi:** Through and through. Yeah, pretty close. Pretty close. 
-
-Not understand. 
+**Katagiri Roshi:** Through and through. Yeah, pretty close. Pretty close. Not “understand.” 
 
 **Student:** Manifest?
 
@@ -141,7 +137,7 @@ That's why “if you can reveal an action” means you have to you have to revea
 
 **Student:** The interconnectedness of everything.
 
-**Katagiri Roshi:** Mm-hmm. Can you say it more simply? You understand, you can reveal the truth in action ... and next, you observe...
+**Katagiri Roshi:** Mm-hmm. Can you say it more simply? You understand, you can reveal the truth in action... and next, you observe...
 
 **Student:** Of the universe?
 
@@ -151,9 +147,9 @@ That's why “if you can reveal an action” means you have to you have to revea
 
 **Student:** The law of cause and effect? 
 
-**Katagiri Roshi:** Yeah, that’s pretty “logical.” Even more simple. The universe, or truth. Okay? 
+**Katagiri Roshi:** Yeah, [but] that’s pretty “logical.” Even more simple. The universe, or truth. Okay? 
 
-That’s why here it says, if you can if you can reveal the truth in action, observe the truth in every environment you meet.
+That’s why here it says, if you can reveal the truth in action, observe the truth in every environment you meet.
 
 So wherever you may be, you have to manifest, you have to reveal the truth. Truth means something more than *you*.  Okay? Something more than the *you* [which] you have understood. Something more than that. 
 
@@ -163,9 +159,9 @@ So through that human body, actually who acts? Who observes?
 
 **Katagiri Roshi:** *[Laughs.]* 
 
-I am asking a simple question, okay? Nothing complicated. Sure – you. You. *[Laughter.]* 
+I am asking a simple question, okay? Nothing complicated. Sure: *you*. You. *[Laughter.]* 
 
-So *you* act. who are you?
+So *you* act. Who are *you*?
 
 *[Unintelligible.]*
  
@@ -173,7 +169,7 @@ So *you* act. who are you?
  
 **Students:** Truth. 
  
-**Katagiri Roshi:** But action. The person who is acting is who? What kind of person? In the dualistic world? 
+**Katagiri Roshi:** But action. The person who is acting is who? What kind of person, in the dualistic world? 
  
 **Student:** The actor. 
   
@@ -181,9 +177,9 @@ So *you* act. who are you?
 
 **Student:** The act-or is the person who is acting?
 
- **Katagiri Roshi:** Door? *[Laughter.]* Oh, actor. Yes. Actor, actress. *[Laughter.]* It means small guys, these funny guys. Funny little guys over there. 
+ **Katagiri Roshi:** “Door”? *[Laughter.]* Oh, *actor*. Yes. Actor, actress. *[Laughter.]* It means small guys, these funny guys. Funny little guys over there. 
  
-So *you act* means pretty common, usual human being acts, observes. Don’t forget this! *[He laughs.]* Even if you try to forget, you cannot escape. 
+So *you act* means [a] pretty common, usual human being acts, observes. Don’t forget this! *[He laughs.]* Even if you try to forget, you cannot escape. 
 
 #### 15:50
 
@@ -199,7 +195,7 @@ Okay. So through this small scale of the human body, human mind, you have to rev
 
 Is that possible? 
 
-**Student:** If you say so. *[Audience laughter.]*
+**Student:** If you say so. *[Laughter.]*
   
 **Katagiri Roshi:** But then, if I don’t?
 
@@ -207,11 +203,7 @@ Is that possible?
 
 **Student:** Is it possible not to do it that way? 
 
-**Katagiri Roshi:** No way to escape. 
-
-Whatever you say – “it’s harder” or “it's easier” – we have to do it. Whether it is possible, or it is impossible, whatever you say, we have to do it.
-
-Because you are there. Your body and minds are already truth. The universe. 
+**Katagiri Roshi:** No way to escape. Whatever you say – “it’s harder” or “it's easier” – we have to do it. Whether it is possible, or it is impossible, whatever you say, we have to do it. Because you are there. Your body and minds are already truth. The universe. 
 
 So then people ask, “So what?” And then I say, “If you can reveal an action and observe an environment, occupy the essential bridge without letting profane or holy pass...”
 
@@ -219,7 +211,7 @@ In Case 52, page 355, the second line from the top:
 
 > He cuts off the essential crossing place and doesn’t let profane or holy pass. 
 
-Exactly the same sentence here. But here, he translats it [as] “occupy the essential bridge without letting profane or holy pass.” 
+Exactly the same sentence here. But here, he translates it [as] “occupy the essential bridge without letting profane or holy pass.” 
 
 “Essential bridge” means a *ferry*: a ferry to carry the people from this shore of life and death [to] nirvana. From delusion to nirvana [or] enlightenment; or from evil to good, something like this. A ferry.
 
@@ -251,25 +243,23 @@ According to a sense of rationality, it's impossible to cross over the river fro
 
 **Student:** You drop off body and mind? 
 
-**Katagiri Roshi:** Sure! That's true. But it's not idealistical, you know? You have to do something in a concrete way. 
+**Katagiri Roshi:** Sure! That's true. But it's not *idealistical*, you know? You have to do something in a concrete way. 
 
 **Student:** Open your eyes to see what's going on?
 
 **Katagiri Roshi:** Sure. What does he say in this paragraph? 
 
-**Student:** Do you have to act without discriminating between the holy and profane, meaning you have to just take care of things, whether they're little or small. 
+**Student:** You have to act without discriminating between the holy and profane, meaning you have to just take care of things, whether they're little or small. 
 
 **Katagiri Roshi:** Yeah, but if you use this sentence in the second paragraph. 
 
-**Student:** Reveal an action and observe an environment?
+**Student:** “Reveal an action and observe an environment”?
 
-**Katagiri Roshi:** Right! You have to reveal the truth in every action you do. Alright? 
-
-And then, it's possible. It's possible. Impossibility becomes possible. 
+**Katagiri Roshi:** Right! You have to reveal the truth in every action you do. And then, it's possible. It's possible. Impossibility becomes possible. 
 
 And you have to observe the truth in every circumstance you are meeting. 
 
-That is what? That is practice. Alright? This is a practice. 
+That is what? That is *practice*. Alright? This is a practice. 
 
 #### 23:38
 
@@ -279,7 +269,7 @@ What does it mean?
 
 **Student:** We are Buddha nature, and therefore we can go, not profane it. 
 
-**Katagiri Roshi:** Mm-hmm. Beyond your inherent capacity. 
+**Katagiri Roshi:** Mm-hmm. “Beyond your inherent capacity. ”
 
 **Student:** It's within you to do this particular thing. 
 
@@ -287,7 +277,7 @@ What does it mean?
 
 **Student:** Beyond our understanding. 
 
-**Katagiri Roshi:** Mm-hmm. So what is beyond your inherent capacity?
+**Katagiri Roshi:** Mm-hmm. So what is “beyond your inherent capacity”?
 
 **Students:** It says “not beyond.”
 
@@ -321,11 +311,11 @@ But most of people cannot do it because everyone tries to approach to [it] throu
 
 For instance, if you want to swim: no matter how long you study swimming through a book or thinking of swimming, it's not real swimming. Do you understand that? 
 
-But in spiritual life, people are always thinking. *[He laughs.]* And [they are on] a spiritual “trip.” That means sometimes a spiritual trip which makes you completely “spaced out.” Sometimes a philosophical head trip. Sometimes a  psychological head trip. 
+But in spiritual life, people are always *thinking*. *[He laughs.]* And [they are on] a spiritual “trip.” Sometimes that means a spiritual trip which makes you completely “spaced out.” Sometimes a philosophical head trip. Sometimes a  psychological head trip. 
 
-Lots of people do that. And that's fine. But you should know when you have to do it. [You should know] when you should stop this and then when you have to jump in. When you are ready, you have to jump in. [Or] even though you don't feel you are ready to jump in, sometimes you should jump in. 
+Lots of people do that. And that's fine. But you should know when you have to *do it*: when you should stop this and then when you have to jump in. When you are ready, you have to jump in. [Or] even if you don't feel you are ready to jump in, sometimes you should jump in. 
 
-So from this point, what does it say in this pointer? Can you say simply the main point of this pointer mentions?
+So from this point, what does it say in this pointer? Can you say simply the main point that this pointer mentions?
 
 **Student:** You are the truth and you manifest yourself in your action. 
 
@@ -335,29 +325,29 @@ So from this point, what does it say in this pointer? Can you say simply the mai
 
 **Student:** Because it is there. 
 
-**Katagiri Roshi:** Because it is there, where? 
+**Katagiri Roshi:** Because it is there – where? 
 
 **Student:** Everywhere. 
 
-**Katagiri Roshi:** Everywhere. Oh. If you want to do, the truth is where? 
+**Katagiri Roshi:** Everywhere. Oh. If you want to do [it], the truth is where? 
 
 **Student:** Inside yourself and outside yourself. 
 
-**Katagiri Roshi:** Not outside and inside, anyway. Your whole body and mind is truth. 
+**Katagiri Roshi:** Not *outside* and *inside*, anyway. Your whole body and mind is truth. 
 
 Not inside, not outside, not middle. Okay? The whole body. 
 
-Because our bodies, our minds are exactly totally the truth. Exactly. No gap between. Not “in” you, not in the truth. Alright? That is identity; exactly identity. Total identity with the truth. That is your body and your mind. 
+Because our bodies, our minds are exactly, totally the truth. Exactly. No gap between. Not “in” you, not in the truth. Alright? [It] is *identity*; exactly identity, total identity with the truth. That is your body and your mind. 
 
-That's why you cannot destroy. Even though you despair, you experience despair, but still you cannot destroy. Because your body is iron wall. Life is deep, like the ocean. Life is high as the mountains. That's why “silver mountain.”
+That's why you cannot destroy. Even if you experience despair, still you cannot destroy. Because your body is iron wall. Life is deep, like the ocean. Life is high as the mountains. That's why “silver mountain.”
 
 That is the meaning of the pointer. 
 
 #### 30:35
 
-**Katagiri Roshi:** The case. Would you read the case once again, please. 
+**Katagiri Roshi:** Would you read the case once again, please. 
 
-**Reader:**
+**Student:**
 
 > A monk asked Chao Chou, “‘The Ultimate Path has no difficulties—just avoid picking and choosing.’ What is not picking and choosing?”
 > 
@@ -377,20 +367,22 @@ That is the meaning of the pointer.
 
 **Student:** I get real stuck with – even though you talked about this during the sesshin, maybe, I don’t remember – the “I alone.” I'm still stuck on “I alone.” *[Unintelligible.]*
 
-**Katagiri Roshi:** Oh. Okay. That’s is your doubt. That’s a big doubt. That's pretty good. Any other doubt? 
+**Katagiri Roshi:** Oh. Okay. That is your doubt. That’s a big doubt. That's pretty good. Any other doubt? 
 
 **Student:** Well, does he mean that he’s the Buddha? “I alone am the honored one?”
 
-**Katagiri Roshi:** Mm-hmm. And also the first sentence: “The Ultimate Path has no difficulties – just avoid picking and choosing.” I have several copies, and will give [them to] you. 
+**Katagiri Roshi:** Mm-hm. And also the first sentence: “The Ultimate Path has no difficulties – just avoid picking and choosing.” I have several copies, and will give [them to] you. 
 
 In the beginning of that, would you read the first four lines? 
 
-**Reader:** 
+**Student:** 
 
 > The great way is not difficult for those who have no preferences.   
 > When love and hate are both absent, everything becomes clear and undisguised. 
+>
+> – From *Hsin Hsin Ming* (possibly the version translated by Richard B. Clarke)
 
-**Katagiri Roshi:** Yes, okay. That’s enough. That's is the point [of] this sentence. “The Ultimate Path has no difficult difficulties, just avoid picking and choosing” – it comes from this sutra. 
+**Katagiri Roshi:** Yes, okay. That’s enough. That is the point [of] this sentence, “The Ultimate Path has no difficult difficulties, just avoid picking and choosing” – it comes from this sutra. 
 
 So that sutra says, “The great Way is not difficult for those who have no preferences. When love and hate are both absent, everything becomes clear and undisguised.”
 
@@ -398,11 +390,11 @@ What do you think about this? Do you have a question or doubt about this?
 
 **Student:** Well rationally, it seems that... I sympathize with the monk's question, because it does seem that ... having no preference seems to be a choice. 
 
-**Katagiri Roshi:** Why did this monk make a question like this, when he read that this in this sutra? Why? 
+**Katagiri Roshi:** Why did this monk ask a question like this, when he read this in this sutra? Why? 
  
 **Student:** How can *I* not pick and choose? That's the doubt I have when I see it: how can *I* do that? 
 
-**Katagiri Roshi:** Mm-hmm. What do you mean, picking and choosing? In this sutra?
+**Katagiri Roshi:** Mm-hmm. What do you mean, “picking and choosing”? In this sutra?
 
 **Student:** Discriminating. 
 
@@ -412,7 +404,7 @@ What do you think about this? Do you have a question or doubt about this?
 
 **Student:**  Attachment.
 
-**Katagiri Roshi:** Many preferences; intellectual preferences, and also emotional preferences, affective preferences. And then what does this sutra say? 
+**Katagiri Roshi:** Many preferences: intellectual preferences, and also emotional preferences, affective preferences. And then what does this sutra say? 
 
 *[Laughter.]*
 
@@ -438,7 +430,7 @@ When love and hate are both absent, and then everything becomes clear. Can you a
 
 **Student:** By saying that, aren’t we choosing not to choose? 
 
-**Katagiri Roshi:** Well, picking and choosing is alright, but by picking and choosing and then what happens? After picking and choosing, then what will happen? 
+**Katagiri Roshi:** Well, picking and choosing is alright, but by picking and choosing then what happens? After picking and choosing, then what will happen? 
 
 **Student:** Attachment. 
 
@@ -454,7 +446,9 @@ When love and hate are both absent, and then everything becomes clear. Can you a
 
 **Student:** Human nature.
 
-**Katagiri Roshi:** Mm-hmm. Well, in a more concrete way, you can experience in everyday life. For instance, if the people who don't know about Buddhism and look at me, and then immediately he or she was very surprised at me, and then picking and choosing. And next... something happens. 
+**Katagiri Roshi:** Mm-hmm. 
+
+Well, in a more concrete way, you can experience in everyday life. For instance, if the people who don't know about Buddhism look at me, and then immediately they are very surprised at me, and then picking and choosing. And next... something happens. 
 
 And that is preferences. After judging or evaluating, and then affective preferences appear. Alright? 
 
@@ -476,7 +470,7 @@ But on the other hand: do you think it's really possible to go beyond this, to m
 
 **Katagiri Roshi:** Do you think so? No? Everyone? 
 
-No one's saying yes?
+No one's saying “yes”?
 
 **Student:** It seems like it's alright to experience both love and hate, but just not to become attached to either one. 
 
@@ -484,37 +478,33 @@ No one's saying yes?
 
 **Student:** Sometimes you're attached to love, sometimes to hate, and all the places in between. 
 
-**Katagiri Roshi:** Between is a pretty shaky situation. Between is not the situation that love and hate are absent. Do you understand? Just like a hamburger. *[Laughter.]*
+**Katagiri Roshi:** “Between” is a pretty shaky situation. Between is not the situation that love and hate are absent. Do you understand? Just like a hamburger. *[Laughter.]*
 
 Exactly you can go between...  
 
 **Student:** They're balanced?
 
-**Katagiri Roshi:** No, not balanced. It's very shaky. *[Laughter.]*
-
-“Hamburger” means between the bread. The bread is separated completely: This this is a past, this the future. The hamburger is your present. *[Laughter.]* But you can go any place, past, present, and future. Because without past and the future, without two pieces of bread, you cannot eat the hamburger. 
+**Katagiri Roshi:** No, not balanced. It's very shaky. *[Laughter.]* “Hamburger” means between the bread. The bread is separated completely: This this is a past, this the future. The hamburger is your present. *[Laughter.]* But you can go any place: past, present, and future. Because without past and the future, without two pieces of bread, you cannot eat the hamburger. 
 
 *(Tape change.)*
 
 ... a very shaky situation. It’s between. 
 
-So between is not absent. Between is not free from hatred and love. Between is also part of the hatred and love. 
+So *between* is not absent. *Between* is not free from hatred and love. *Between* is also part of the hatred and love. 
 
-So in Buddhism, we say suffering is suffering, and pleasure is also suffering, and also *neutral* is suffering. *[He chuckles.]* Neutral means between. 
+So in Buddhism, we say suffering is suffering, and pleasure is also suffering, and also *neutral* is suffering. *[He chuckles.]* *Neutral* means between. 
 
-**Student:** What's beyond? 
+**Student:** What's *beyond*? 
 
 **Katagiri Roshi:** That's the question. That's what I want to know. *[Laughter.]* 
  
 So first of all, in terms of the dualistic sense, it's really impossible to escape from love and hate. Because if you ignore this, if you deny this, you cannot be human. 
 
-But that's why most people misunderstand Buddhism. If they read Buddhism, they understand on just on the surface. Just like this. “If hate love and hate are both absent, then everything becomes clear.” That means complete negation of the love and hate. But actually, it's impossible. Why does Buddhism have to say so? Because it’s impossible; that's why we have to pay attention to it again. 
+But that's why most people misunderstand Buddhism. If they read Buddhism, they understand just on the surface, like this: “If love and hate are both absent, then everything becomes clear,” that means complete negation of the love and hate. But actually, it's impossible. Why does Buddhism have to say so? Because it’s impossible; that's why we have to pay attention to it again. [If] it's pretty easy to deal with love and hate, it's not necessary to emphasize, “please pay attention once again to love and hate.” 
 
-It's pretty easy to deal with love and hate. It's not necessary to emphasize, please pay attention once again to love and hate. 
+So love and hate are the inevitable situation for everyone, but that's why we have to take care of it. Because they make your life very complicated. 
 
-So love and hate are the inevitable situation for everyone, but that's why we have to take care of it. Because they makes your life very complicated. 
-
-So from this point, that's why this monk asks a question like this. 
+From this point, that's why this monk asks a question like this. 
 
 The picking and choosing – what is that? 
 
@@ -528,7 +518,7 @@ The picking and choosing – what is that?
 
 **Student:** Discrimination.
 
-**Katagiri Roshi:** Discriminations. Yes.
+**Katagiri Roshi:** Discrimination. Yes.
 
 So, discrimination. In your everyday life – if you see somebody or something – first of all, what function of consciousness comes up? 
 
@@ -546,11 +536,7 @@ So, discrimination. In your everyday life – if you see somebody or something �
 
 **Student:** Sense? 
 
-**Katagiri Roshi:** Before sense.
-
-What is that? When you come in – immediately, what operates?
-
-You can use it very often. 
+**Katagiri Roshi:** Before sense. What is that? When you come in – immediately, what operates? You use it very often. 
 
 **Student:** How about impression? An impression comes up. 
 
@@ -580,19 +566,17 @@ You can use it very often.
 
 **Katagiri Roshi:** Openness, yes. But the *consciousness*. What's that? 
 
-For example, pretty close to this one: instinct. Any other? 
+For example, pretty close to this one: *instinct*. Any other? 
 
 **Students:** Intuition. 
 
-**Katagiri Roshi:** Intuition. When you come in, intuition operates immediately. 
-
-Or if you see somebody, immediately it works, your consciousness operates. That is intuition. 
+**Katagiri Roshi:** Intuition. When you come in, *intuition* operates immediately. Or if you see somebody, immediately it works, your consciousness operates. That is intuition. 
 
 And then next?
 
-**Student:** Judgement.
+**Student:** Judgment.
 
-**Katagiri Roshi:** Judgement usually, yes. 
+**Katagiri Roshi:** Judgment usually, yes. 
 
 And then if you judge and evaluate, then what happens? 
 
@@ -606,7 +590,7 @@ That is called *samsara*. Samsaric life.
 
 **Student:** Is affective preferences like an active thing? Is that an expression of discrimination? 
 
-**Katagiri Roshi:** Pretty active. Affective preferences is very concrete aspect of human emotion, after judgment, evaluation, and thinking, and discriminations. 
+**Katagiri Roshi:** Pretty active. Affective preferences [are a] very concrete aspect of human emotion, after judgment, evaluation, and thinking, and discriminations. 
 
 But Buddhist practice is something you have to do *before* you evaluate, you discriminate. What is that? 
 
@@ -616,8 +600,8 @@ Intuition works, and then?
 
 **Katagiri Roshi:** Sure. We have to reveal the truth in your actions, yes. 
 
-What Buddha says. What you have to do – before you judge, evaluate. But your consciousness immediately operates in the common sense, the usual sense. 
-But even though you do like that every day, you have to do something important. What does the Buddha say? 
+What Buddha says; what you have to do – before you judge, evaluate. Your consciousness immediately operates in the common sense, the usual sense,
+but even though you do like that every day, you have to do something important. What does the Buddha say? 
 
 **Student:**  Be aware.
 
@@ -627,7 +611,7 @@ But even though you do like that every day, you have to do something important. 
  
 **Student:** That what you're observing or what's in front you is not separate from you? 
 
-**Katagiri Roshi:** Yeah. When the Buddha was attaining enlightenment, what he attained enlightenment? 
+**Katagiri Roshi:** Yeah. When the Buddha was attaining enlightenment, what he attained enlightenment [with]? 
 
 **Student:** “I alone.”
 
@@ -653,15 +637,15 @@ That is [what] you have to practice, *before* you judge. That's pretty hard.
 
 **Student:** You said intuition was the first act of consciousness? [...] What are the characteristics of intuition? What does that include?
 
-**Katagiri Roshi:** Well, as a whole, you can catch it. 
+**Katagiri Roshi:** Well, as a whole, you can *catch* it. 
 
 **Student:** See the whole picture? 
 
-**Katagiri Roshi:** Yeah, the whole picture. Before your six consciousnesses start to operate. Your intuition completely – what would you say – captures a certain situation as a whole. 
+**Katagiri Roshi:** Yeah, the whole picture. Before your six consciousnesses start to operate, your intuition completely – what would you say – captures a certain situation as a whole. 
 
-And then your six senses start to work. Then at that time, the six senses separate; dichotomize. And then pick up one. So-called “gong.” So-called “Greg.” And then, I judge, evaluate. Like this. 
+And then your six senses start to work. Then at that time, the six senses separate; dichotomize. And then [you] pick up one: so-called “gong.” So-called “Greg.” And then, I judge, evaluate. Like this. 
 
-If my consciousness picks up this only one person, my consciousness completely doesn't pay attention to others. So only this guy. That is picking and choosing.  
+If my consciousness picks up only this one person, my consciousness completely doesn't pay attention to others. So only this guy. That is picking and choosing.  
 
 Very picky. Very... precise. *[He laughs.]* Very clear: *one*. But intuition is completely working as a whole. 
 
@@ -671,7 +655,9 @@ Very picky. Very... precise. *[He laughs.]* Very clear: *one*. But intuition is 
 
 **Student:** So in order for me to try to experience and then treat my experience as the Buddha, for me that that would be discrimination, wouldn't it? 
 
-**Katagiri Roshi:** *(Whispering)* I have to tell you... 
+**Katagiri Roshi:** *[Whispers...]*
+
+I have to tell you... 
 
 Stupid oaf!
 
@@ -691,7 +677,7 @@ But before we judge, evaluate, still we have to do something. That is called *we
 
 **Student:** Act like a Buddha.
 
-**Katagiri Roshi:** Sure. But your consciousness always working. Your consciousness is barking at you. *[He laughs.]* But you you have to practice something, so-called *all sentient beings are Buddha*. So in order to maintain that practice, what should you do? 
+**Katagiri Roshi:** Sure. But your consciousness is always working. Your consciousness is “barking” at you. *[He laughs.]* But you you have to practice something, so-called *all sentient beings are Buddha*. So in order to maintain that practice, what should you do? 
 
 **Student:** Just do it.  Just jump into it. Right?
 
@@ -701,7 +687,7 @@ But before we judge, evaluate, still we have to do something. That is called *we
 
 **Student:** Does it have something to do with the essential bridge? 
 
-**Katagiri Roshi:** Well, I'm not not talking about that one. I'm talking now about what kind of practice you should do in order to maintain the truth *we are Buddha*.
+**Katagiri Roshi:** Well, I'm not not talking about that one, I'm talking now about what kind of practice you should do in order to maintain the truth *we are Buddha*.
  
 **Student:** Zazen, by any chance?
  
@@ -736,11 +722,11 @@ But before we judge, evaluate, still we have to do something. That is called *we
 **Katagiri Roshi:** Very noisy. Around your life, very noisy.
 
 Do you understand your situation? You are already going in a certain pattern, lifestyle. So you cannot stop it. But you have to do it, something important. 
-That is so-called the truth, that all sentient beings are Buddha. But your circumstances, your self, are very noisy, barking at you. What you should do? 
+That is so-called *the truth that all sentient beings are Buddha*. But your circumstances, your self, are very noisy, barking at you. What you should do? 
 
 **Student:** Acceptance? 
 
-**Katagiri Roshi:** Sure, accept, but you it's very difficult to accept in a noisy situation. 
+**Katagiri Roshi:** Sure, accept, but [...] it's very difficult to accept in a noisy situation. 
 
 **Student:** *Gassho.* 
 
@@ -764,9 +750,9 @@ What would you call it? Quietness?
 
 **Katagiri Roshi:** In technical terms, what is that? A technical term in Buddhism? 
 
-**Student:** Samadhi. 
+**Student:** *Samadhi*. 
 
-**Katagiri Roshi:** Samadhi! 
+**Katagiri Roshi:** *Samadhi!* 
 
 *[Laughter.]*
 
@@ -792,7 +778,7 @@ It's very concrete, don't you think so? No? Quietness is very concrete.
 
 **Katagiri Roshi:** Sure. That quietness is very important for you. 
 
-If you become quiet, can you rush into a certain destination by your judgment? Can you? Can you grasp somebody by your judgment quickly? Can you, if you become a quiet? 
+If you become quiet, can you rush into a certain destination by your judgment? Can you? Can you grasp somebody by your judgment quickly? Can you, if you become quiet? 
 
 No way. You can't. 
 
@@ -816,11 +802,9 @@ Alright?
 
 **Katagiri Roshi:** Well, it's easy in a sense, because it's a simple practice. 
 
-For instance, in the morning, very busy, okay? But, anyway, sit down and have a breakfast. Even for one minute, sit down and be quiet, and then *gassho* and chant the verse. Pretty good. Don’t you think so? 
+For instance, in the morning – very busy, okay? But, anyway, sit down and have breakfast. Even for one minute, sit down and be quiet, and then *gassho* and chant the verse. Pretty good. Don’t you think so? 
  
-This practice is very important for us. If you do that, very naturally you don't judge the food, your object, in the common sense, so called flavor or not flavor. So you are already facing the meal in a completely different way, dealing with the food as a Buddha. 
-
-That is called *gassho*, and chant. 
+This practice is very important for us. If you do that, very naturally you don't judge the food, your object, in the common sense, so called flavor or not flavor. So you are already facing the meal in a completely different way, dealing with the food as a Buddha. That is called *gassho*, and chant. 
 
 That is what? How can you do this? 
 
@@ -840,7 +824,7 @@ Be quiet. Sit down there. Samadhi.
 
 It's pretty hard to study this kind of book, isn't it? But *you* made it. A human being made it like this. If you think simply, no problem; it's not necessary to make a [discussion].
 
-If you become calm: *yes*, there is still love and hate. But that is just flashing lights. Just blinking.
+If you become calm: *yes*, there is still love and hate. But that is just flashing lights; just blinking.
  
 Just like dancing. Right in the middle of dance – you think, don’t you? You think: “Oh, pretty good dance.” *[Laughter.]* Your body and mind is right in the middle of performance of the dance, but your head is still blinking. Do you understand? That is love, hate... fighting... many emotions come up. 
 
@@ -866,22 +850,15 @@ Is that alright?
 
 **Student:** Well, what's there? 
 
-**Katagiri Roshi:** We [don’t stand]. We are Buddha. 
+**Katagiri Roshi:** We don’t *[unintelligible]*. We are Buddha. 
 
 *We are Buddha* means you have to deal with you and your object as a Buddha. Something more than judgment. Not by your judgment. 
 
-Anyway, *deal [with]*. Because mind is always sticky, catching. But you can't deal with your life by your mind because mind is already touch it. 
+Anyway, *deal [with]*. Because mind is always sticky, catching. You can't deal with your life by your mind because mind is already touching it. [The] body is still free. Then by your body, you have to do it. Move forward. 
 
-So body is still free. And then by your body, you have to do it. Move forward. 
+You know *pilgrimage*? Pilgrimage is very good religious practice, because you have to continue to move forward, just like a trip. Just move, always forward. Because mind is always sticking to something, to object. So you cannot deal with your life by your mind, particularly in the middle of pilgrimage. 
 
-You know the pilgrimage? Pilgrimage is very good religious practice because you have to continue to move forward, just like a trip. Just move, always forward. 
-
-Because mind is always sticking to something, to object. So you cannot deal with your life by your mind, particularly in the middle of pilgrimage. 
-
-So carrying the [cane] with Buddha. Anyway, all sentient beings are Buddha. With the universe, whatever you say. Anyway, just moving, in the universe. 
-
-And then mind catches up you, catches up to your body. That's pretty good. 
-Well, not catch up – immediately there. 
+So carrying the *[unintelligible]* with Buddha. Anyway, all sentient beings are Buddha. With the universe, whatever you say. Anyway, just moving, in the universe. And then mind catches up to you, catches up to your body. That's pretty good. Well, not “catch up” – immediately there. 
 
 That's why Dōgen Zenji says to do zazen with the body. Okay? With the body. 
 The body is pretty good for us.
