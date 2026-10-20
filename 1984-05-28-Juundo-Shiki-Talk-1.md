@@ -14,7 +14,7 @@ title: "Jūundō Shiki, Rules for the Monks’ Annex – Talk 1"
 
 #### 0:00
 
-[At] this time I would like to study with you *Jūundō shiki* of *Shōbōgenzō*: the “Regulations for the Auxiliary Cloud Hall.” The title [in] *Shōbōgenzō* is *Jūundō shiki* in Japanese. Here the translation says, "Regulations for the Auxiliary Cloud Hall." *Cloud Hall* means zazen hall. 
+**Katagiri Roshi:** [At] this time I would like to study with you *Jūundō shiki* of *Shōbōgenzō*: the “Regulations for the Auxiliary Cloud Hall.” The title [in] *Shōbōgenzō* is *Jūundō shiki* in Japanese. Here the translation says, "Regulations for the Auxiliary Cloud Hall." *Cloud Hall* means zazen hall. 
 
 In Japanese we say *jūundō shiki*. *Jū* means “double.” Probably when Dōgen Zenji was alive, many people came to his zendo and practiced with him; so probably there were double zendos, double zazen halls. The first zendo is called “*zen do*,” front zendo, front hall, [literally]. And another zendo is called *godo*: rear zazen hall. So front zendo and rear zendo. 
 

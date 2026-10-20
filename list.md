@@ -172,7 +172,7 @@ Go to: [1979](#1979) [1980](#1980) [1981](#1981) [1982](#1982) [1983](#1983) [19
 
 1. [*The Awakening of Faith* – Talk 6: Truth and Mind](1984-04-27-Awakening-of-Faith-Talk-6)
 
-1. *Blue Cliff Record* Case 57 Talk 2
+1. [*Blue Cliff Record* Case 57: Chao Chou’s Stupid Oaf, Talk 2](1984-05-02-Blue-Cliff-Record-Case-57-Talk-2)
 
 1. [*The Awakening of Faith* – Talk 7](1984-05-04-Awakening-of-Faith-Talk-7)
 1. [*The Awakening of Faith* – Talk 8](1984-05-11-Awakening-of-Faith-Talk-8)

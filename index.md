@@ -47,5 +47,6 @@ More:
 
 ### Latest Updates
 
+- October 20, 2026: Posted [“*Blue Cliff Record* Case 57: Chao Chou’s Stupid Oaf, Talk 2”](1984-05-02-Blue-Cliff-Record-Case-57-Talk-2).
 - October 15, 2026: Posted [“*Blue Cliff Record* Case 57: Chao Chou’s Stupid Oaf, Talk 1”](1984-04-25-Blue-Cliff-Record-Case-57-Talk-1).
 - September 18, 2026: Posted [“*Jūundō Shiki*, Rules for the Monks’ Annex – Talk 1”](1984-05-28-Juundo-Shiki-Talk-1).

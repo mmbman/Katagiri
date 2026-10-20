@@ -380,7 +380,7 @@ In the beginning of that, would you read the first four lines?
 > The great way is not difficult for those who have no preferences.   
 > When love and hate are both absent, everything becomes clear and undisguised. 
 >
-> – From *Hsin Hsin Ming* (possibly the version translated by Richard B. Clarke)
+> – From *Hsin Hsin Ming*, “Belief in Mind” (possibly the version translated by Richard B. Clarke).
 
 **Katagiri Roshi:** Yes, okay. That’s enough. That is the point [of] this sentence, “The Ultimate Path has no difficult difficulties, just avoid picking and choosing” – it comes from this sutra. 
 
